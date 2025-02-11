@@ -1,7 +1,7 @@
 ---
 title: Worldwide Spanish-Speaking States Index
-date: 2024-09-15T17:30:22.375Z
-updated: 2024-09-21T16:41:23.718Z
+date: 2025-02-06T18:15:40.414Z
+updated: 2025-02-11T00:44:16.286Z
 tags:
   - speak
   - english
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/02ef47e4fa1bec9703102ec97417713d4516fad50
 
  Now just imagine how many new friends you could make if you started [learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) now!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## List of Spanish-speaking countries
 
  **Formally, Spanish is the official language of 20 countries and one dependent territory: Argentina, Bolivia, Chile, Colombia, Costa Rica, Cuba, Dominican Republic, Ecuador, El Salvador, Equatorial Guinea, Guatemala, Honduras, Mexico, Nicaragua, Panama, Paraguay, Peru, Spain, Uruguay, Venezuela and Puerto Rico.**
@@ -72,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/02ef47e4fa1bec9703102ec97417713d4516fad50
 * Uruguay — 98%
 * Venezuela — 97%
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in Central America
 
  Out of the seven countries in Central America, only Belize doesn’t have Spanish as its official language. However, the majority of the Belizeans can speak Spanish. Thus, if you’re planning a trip to Central America, speaking Spanish will definitely come in handy.
@@ -92,18 +89,15 @@ thumbnail: https://thmb.techidaily.com/02ef47e4fa1bec9703102ec97417713d4516fad50
 
  \* the number represents the percentage of the population who speak Spanish.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
 
@@ -113,18 +107,15 @@ thumbnail: https://thmb.techidaily.com/02ef47e4fa1bec9703102ec97417713d4516fad50
 * Dominican Republic — 98%
 * Puerto Rico — 99%
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in Europe
 
  We’re finally almost at the end of our exploration with Spain: the home country of the Spanish language. It’s truly surprising how few people speak Spanish here! The reason for this is that a significant number of people in Spain speak Catalan.
 
 * Spain — 92% (percentage of the entire population speaking Spanish)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in Africa
 
@@ -133,6 +124,14 @@ thumbnail: https://thmb.techidaily.com/02ef47e4fa1bec9703102ec97417713d4516fad50
 * Equatorial Guinea — 74% (percentage of the entire population speaking Spanish)
 
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
 
@@ -190,5 +189,23 @@ thumbnail: https://thmb.techidaily.com/02ef47e4fa1bec9703102ec97417713d4516fad50
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/levating-your-video-content-youtube-to-igtv-transition/"><u>[New] Elevating Your Video Content YouTube to IGTV Transition</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-editors-toolkit-elevating-your-video-with-inshot-transitions/"><u>[Updated] 2024 Approved The Editor's Toolkit Elevating Your Video with Inshot Transitions</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-15-tips-for-accessing-nba-games-online/"><u>2024 Approved Top 15 Tips for Accessing NBA Games Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-languages-confidently-with-mondlys-ar-technology/"><u>Conquer Languages Confidently With Mondly's AR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/data-protection-strategy-updated/"><u>Data Protection Strategy Updated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forsok-till-swedish-valkommen-pa-sverige/"><u>Försök Till Swedish: Välkommen På Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-monolingual-to-polylingual-a-century-for-europe-day/"><u>From Monolingual to Polylingual: A Century for Europe Day</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-expert-recommendations-best-phonespcs-for-chatting-online/"><u>In 2024, Expert Recommendations Best Phones/PCs for Chatting Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-tongue-mastery-uk-phrases-and-sayings/"><u>Local Tongue Mastery: UK Phrases & Sayings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-custom-youtube-shorts-image-credits-with-ease/"><u>Mastering Custom YouTube Shorts Image Credits with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579854344-saying-i-love-you-in-over-50-countries-today/"><u>Saying 'I Love You' In Over 50 Countries Today!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solved-why-is-my-apex-legends-voice-chat-on-pause-get-it-running-today/"><u>Solved: Why Is My Apex Legends Voice Chat on Pause? Get It Running Today</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transform-your-listening-experience-into-a-learning-adventure-with-podcasts/"><u>Transform Your Listening Experience Into a Learning Adventure (With Podcasts)</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-2024-smartphone-mounts-ranking-for-perfect-video-shooting-experience/"><u>Ultimate 2024 Smartphone Mounts Ranking for Perfect Video Shooting Experience</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-lava-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Lava</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pista-logia-eygnwmwn-gkreman/"><u>Πιστά Λόγια Ευγνώμων Γκρεμάν</u></a></li>
+</ul></div>
 

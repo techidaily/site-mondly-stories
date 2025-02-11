@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2025-01-27T18:09:15.119Z
-updated: 2025-01-29T17:49:31.802Z
+date: 2025-02-05T23:13:00.588Z
+updated: 2025-02-10T16:41:56.730Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,17 +127,21 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-master-quick-red-eye-correction-with-this-free-ios-tool-for-2024/"><u>[Updated] Master Quick Red-Eye Correction with This Free iOS Tool for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-capturing-lessons-with-ease-top-screen-recorders/"><u>2024 Approved Capturing Lessons with Ease Top Screen Recorders</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/2024s-ultimate-lenovo-laptop-guide-elite-ratings-and-in-depth-analysis-digital-trends/"><u>2024'S Ultimate Lenovo Laptop Guide: Elite Ratings and In-Depth Analysis | Digital Trends</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-communication-skills-fastest-way-7-ways-through-mondlys-afrikaans-lessons/"><u>Elevate Your Communication Skills Fastest Way - 7 Ways Through Mondly's Afrikaans Lessons</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixes-to-overcome-remote-connection-errors-on-windows/"><u>Fixes to Overcome Remote Connection Errors on Windows</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/iphone-intelligence-revealed-10-insights-behind-auto-dimming-screens/"><u>IPhone Intelligence Revealed: 10 Insights Behind Auto-Dimming Screens</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/los-dias-pasan-aprende-su-nombre-en-espanol/"><u>Los Días Pasan, Aprende Su Nombre en Español</u></a></li>
-<li><a href="https://win11.techidaily.com/making-win1011-recycle-bin-error-free-quick-solutions/"><u>Making Win10/11 Recycle Bin Error-Free: Quick Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581905222-norwegian-mastery-unlocked-in-brief-bursts/"><u>Norwegian Mastery Unlocked in Brief Bursts!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essence-of-the-swedish-phonetic-system/"><u>The Essence of the Swedish Phonetic System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-multilingual-potential-with-google-endorsed-mondly/"><u>Unlock Multilingual Potential with Google-Endorsed Mondly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nleash-potential-quick-tips-for-establishing-a-business-and-personal-youtube-presence-for-2024/"><u>[New] Unleash Potential Quick Tips for Establishing a Business & Personal YouTube Presence for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solve-how-to-block-ads-in-firefox-quickly-and-easily/"><u>[Solve] How to Block Ads in Firefox | Quickly & Easily</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-crafting-a-youtube-video-essential-writing-guide/"><u>[Updated] 2024 Approved Crafting a YouTube Video Essential Writing Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-basics-of-aspect-ratio-compliance-on-twitter/"><u>[Updated] The Basics of Aspect Ratio Compliance on Twitter</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-guide-to-populating-powerpoint-decks-with-youtube-videos/"><u>[Updated] The Essential Guide to Populating PowerPoint Decks With YouTube Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-sandbox-games-for-aspiring-explorers/"><u>[Updated] Top Sandbox Games for Aspiring Explorers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/10-compatible/"><u>10 Compatible)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/60-years-reflection-europes-linguistic-unity-in-progress/"><u>60 Years Reflection – Europe's Linguistic Unity in Progress</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/awaken-your-inner-german-with-these-essential-expressions/"><u>Awaken Your Inner German with These Essential Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-words-and-hearts-overcoming-language-obstacles-in-romance/"><u>Bridging Words & Hearts: Overcoming Language Obstacles in Romance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bringing-spice-to-your-voyage-top-93-vital-spanish-commands/"><u>Bringing Spice to Your Voyage: Top 93 Vital Spanish Commands</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-analysis-of-american-spelling-versus-british/"><u>Comparative Analysis of American Spelling Versus British</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprension-y-pronunciacion-de-colores/"><u>Comprensión Y Pronunciación De Colores</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-frame-to-script-innovative-ways-of-integrating-text-in-images-for-2024/"><u>From Frame to Script Innovative Ways of Integrating Text in Images for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-definition-content-for-fb-messenger-a-guide/"><u>High-Definition Content for FB Messenger: A Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577215704-oculus-quest-launches-multilingual-support-with-mondly/"><u>Oculus Quest Launches Multilingual Support with 'Mondly'</u></a></li>
 </ul></div>
 

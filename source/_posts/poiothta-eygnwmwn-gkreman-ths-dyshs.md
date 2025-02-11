@@ -1,7 +1,7 @@
 ---
 title: Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης
-date: 2025-01-26T23:08:00.088Z
-updated: 2025-01-29T21:30:01.490Z
+date: 2025-02-07T19:12:08.165Z
+updated: 2025-02-10T22:31:55.902Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The informal ‘thank you’ in Greek
@@ -41,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  However, if you want to say more than just ‘thanks’, **you can say σ’ ευχαριστώ_(s’ efcharistó)_ which is ‘thank you’ in Greek.** Although informal_, s’ efcharistó_ is more similar to ‘thank you’ and can be used safely when giving thanks to friends or colleagues.
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The formal ‘thank you’ in Greek
 
@@ -59,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  “Mýkonos, Greece” by Johnny Chen©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Examples of Greek thanks
@@ -74,7 +70,7 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
@@ -86,7 +82,7 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
@@ -97,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
 
@@ -128,17 +128,20 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-navigating-device-specific-zoom-configurations/"><u>[New] Navigating Device-Specific Zoom Configurations</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-fostering-connection-strategies-for-striking-fb-slideshows/"><u>[Updated] 2024 Approved Fostering Connection Strategies for Striking FB Slideshows</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-spotlight-on-blurbs-captivating-podcast-intros/"><u>[Updated] 2024 Approved Spotlight on Blurbs Captivating Podcast Intros</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-unlocking-screen-capture-mastery-on-iphone-7/"><u>[Updated] Unlocking Screen Capture Mastery on iPhone 7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprenda-a-convidar-com-portugues-melhores-saudades-para-todos-os-tempos/"><u>Aprenda a Convidar Com Português - Melhores Saudades Para Todos Os Tempos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-global-cultures-mondly-vr-revolutionizes-language-studies/"><u>Experience Global Cultures: Mondly VR Revolutionizes Language Studies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-ancient-scripts-to-modern-fluency-persians-journey/"><u>From Ancient Scripts to Modern Fluency: Persian's Journey</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/gopros-greatest-hits-max-360-vs-hero-11-comparison-for-2024/"><u>GoPro's Greatest Hits Max 360 vs Hero 11 Comparison for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-essentials-of-quality-tvs-top-5-with-peak-colors/"><u>The Essentials of Quality TVs Top 5 with Peak Colors</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ultra-portable-and-reliable-wi-fi-solution-discover-the-ourlink-u631-dongle/"><u>Ultra Portable & Reliable Wi-Fi Solution - Discover the Ourlink U631 Dongle</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-cartoon-video-creation-made-easy-top-10-online-and-pc-options/"><u>Updated In 2024, Cartoon Video Creation Made Easy Top 10 Online and PC Options</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voyage-to-the-first-speaking-ar-product/"><u>Voyage to the First Speaking AR Product</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-aerial-stability-made-simple-selecting-the-right-drone-gimbals/"><u>[New] Aerial Stability Made Simple Selecting the Right Drone Gimbals</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-assessing-negative-impacts-of-vr/"><u>[New] Assessing Negative Impacts of VR</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>[New] Hero5 Black in Action Essential Shooting Advice for Amazing Results</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-how-to-record-and-edit-video-using-the-adobe-connect/"><u>[New] In 2024, How to Record and Edit Video Using the Adobe Connect</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-jumpstart-earnings-a-novice-written-guide/"><u>[New] Jumpstart Earnings A Novice’ Written Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-10-female-youtubers-lastest/"><u>[New] Top 10 Female YouTubers [Lastest]</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-master-techniques-for-live-sport-broadcast-recording/"><u>2024 Approved Master Techniques for Live Sport Broadcast Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-impactful-reasons-for-multilingual-journey/"><u>7 Impactful Reasons for Multilingual Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-favorite-language-study-choices/"><u>America's Favorite Language Study Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-slang-decoded-101-must-know-terms/"><u>Australian Slang Decoded: 101 Must-Know Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cracking-the-code-learning-german/"><u>Cracking the Code: Learning German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danny-from-colombia-leading-the-charitable-battle/"><u>Danny From Colombia Leading the Charitable Battle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-10-wichtigsten-deutschen-abschiedsworter/"><u>Die 10 Wichtigsten Deutschen Abschiedswörter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/emotional-euphony-in-francophone-films/"><u>Emotional Euphony in Francophone Films</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-app-download-issues-here-are-10-tips-for-a-smooth-solution/"><u>IPhone App Download Issues? Here Are 10 Tips for a Smooth Solution</u></a></li>
 </ul></div>
 

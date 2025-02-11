@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2025-01-25T18:43:29.671Z
-updated: 2025-01-30T02:42:10.327Z
+date: 2025-02-07T02:37:33.260Z
+updated: 2025-02-11T01:12:03.427Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “Hello” in Spanish: ¡Hola
 
 **¡Hola!** – pronounced without the “h” – is your safety net wherever you’ll go: to a date, meeting or a Spanish-speaking country. This is the absolute basic greeting you need to know in Spanish and it can be used to salute any person regardless of the circumstance: formal or informal.
@@ -28,19 +32,11 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 ![spanish greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/05/spanish-greetings-1024x720.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Hello” by Pablo Gentile©
 
 **Pro tip:** All you need is a simple “hola” to spark a**conversation in Spanish** with people from Spain, Mexico, Argentina or Colombia. They are generally very nice and chatty people and they will be extremely happy to find out you are trying to [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . From my experience, they will probably start talking to you right away with the speed of a Bugatti. Your safety net in this situation will certainly be_Yo no hablo Español_ –_I don’t speak Spanish_ .
 
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Spanish greetings for certain moments of the day
 
@@ -55,13 +51,13 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ¡Hola, señor! by Bruce Jastrow©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
@@ -75,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Qué tal?** – it translates to “how are you?” in English and if you add “todo” at the end – ¿qué tal todo? – it expands its meaning to “how is it all going?”  
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
 
@@ -107,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -142,19 +142,16 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-compelling-iphone-photo-and-video-applications-87x/"><u>[New] Compelling iPhone Photo & Video Applications (8/7/X)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-screentosave-mobilepc-video-recording/"><u>[Updated] 2024 Approved ScreenToSave Mobile/PC Video Recording</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-secret-to-understanding-your-youtube-fans/"><u>[Updated] 2024 Approved The Secret to Understanding Your YouTube Fans</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-a-complete-tutorial-for-professional-gopro-vlogs-for-2024/"><u>[Updated] A Complete Tutorial for Professional GoPro Vlogs for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-idea-to-airtime-crafting-compelling-content-live/"><u>2024 Approved From Idea to Airtime Crafting Compelling Content Live</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-to-catalan-fluency-in-10-minsday/"><u>Accelerate to Catalan Fluency in 10 Mins/Day</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-tell-time-in-spanish-a-complete-guide-for-beginnersback-buttonfilter-button/"><u>How To Tell Time In Spanish - A Complete Guide For BeginnersBack ButtonFilter Button</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-dominance-in-asia-triad-spoken/"><u>Linguistic Dominance in Asia: Triad Spoken</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quebra-de-silencio-expressoes-e-manifestacoes-do-portugues/"><u>Quebra De Silêncio: Expressões E Manifestações Do Português</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/six-pivotal-reasons-for-picking-arabic-and-mondly/"><u>Six Pivotal Reasons for Picking Arabic & Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/starting-with-basic-sound-structures-in-german/"><u>Starting with Basic Sound Structures in German</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-picture-in-picture-made-easy-a-beginners-guide-to-fcp-video-editing/"><u>Updated 2024 Approved Picture-in-Picture Made Easy A Beginners Guide to FCP Video Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-gear-for-capturing-journeys-on-camera/"><u>2024 Approved Gear for Capturing Journeys on Camera</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-language-etiquette/"><u>Global Language Etiquette</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-iphone-12-mini-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 mini When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-asus-rog-phone-7-ultimate-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Asus ROG Phone 7 Ultimate Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-mastering-fast-forward-on-vimeo/"><u>In 2024, Mastering Fast-Forward on Vimeo</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/july-2024s-most-sought-after-apple-watch-deals-the-ultimate-guide-featuring-the-best-value-picks/"><u>July 2024'S Most Sought-After Apple Watch Deals: The Ultimate Guide Featuring the Best Value Picks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-grow-thrive-with-mondly-in-ukraine/"><u>Learn, Grow, Thrive with Mondly in Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-pearson/"><u>Mondly Joins Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-mondly-the-core-vocabulary-journey/"><u>Oxford-Mondly: The Core Vocabulary Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-saying-thank-you-in-germany/"><u>The Essential Guide to Saying Thank You in Germany</u></a></li>
+<li><a href="https://win-web.techidaily.com/effektivnye-metody-rezervnogo-kopirovaniya-dannyh-na-nas-s-pomoshyu-besplatnyh-programmnyh-reshenij/"><u>Эффективные Методы Резервного Копирования Данных На NAS С Помощью Бесплатных Программных Решений</u></a></li>
 </ul></div>
 

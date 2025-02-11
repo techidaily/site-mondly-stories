@@ -1,7 +1,7 @@
 ---
 title: Shakespeare’s Sonnet Scribbled Into Today's Vernacular
-date: 2025-01-26T17:45:10.484Z
-updated: 2025-01-30T05:08:32.681Z
+date: 2025-02-06T16:54:41.631Z
+updated: 2025-02-10T18:02:54.263Z
 tags:
   - speak
   - english
@@ -58,7 +58,7 @@ thumbnail: https://thmb.techidaily.com/62c8ecc88aff429d62093b18bad06f55833353ec7
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cool words Shakespeare invented
@@ -78,7 +78,7 @@ _Timon of Athens_ , Act V, Scene I
 _King Henry VI_ , Part II, Act IV, Scene I
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **4.** Cold-blooded
@@ -86,23 +86,19 @@ _King Henry VI_ , Part II, Act IV, Scene I
 _King John_ , Act III, Scene I
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **5\. Dauntless**
 
 _King Henry VI_ , Part III, Act III, Scene III
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **7\. (to) Friend**
@@ -126,19 +122,23 @@ _The Merchant of Venice_ , Act I, Scene I
 _Julius Caesar_ , Act I, Scene II
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **13.** Mimic
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **14.** Monumental
@@ -162,7 +162,7 @@ _King Henry VI_ , Part III, Act II, Scene III
 _Hamlet_ , Act II, Scene I
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **19\. Puking (disputed)**
@@ -178,7 +178,7 @@ _All’s Well That Ends Well_ , Act I, Scene I
 _Hamlet_ , Act V, Scene I
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **22\. (to) Swagger**
@@ -194,7 +194,7 @@ _Othello_ , Act III, Scene III
 _Macbeth_ , Act III, Scene IV
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **25\. Zany**
@@ -239,24 +239,17 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-transform-video-vendoring-into-virtual-ventures-and-valuables/"><u>[New] Transform Video Vendoring Into Virtual Ventures and Valuables</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-unlocking-youtube-secrets-to-effective-screen-recording-for-2024/"><u>[New] Unlocking YouTube Secrets to Effective Screen Recording for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/103-crucial-croatian-expressions-your-translator-on-the-go/"><u>103 Crucial Croatian Expressions: Your Translator On-the-Go!</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-inside-vr-contemporary-insights-and-upcoming-struggles/"><u>2024 Approved Inside VR Contemporary Insights & Upcoming Struggles</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-profitability-guide-cpm-and-earnings-analysis/"><u>2024 Approved YouTube Profitability Guide CPM and Earnings Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning/"><u>5 Myths About Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/blueprint-for-reaching-set-annual-targets/"><u>Blueprint For Reaching Set Annual Targets</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-a-foundation-french-language-sound-basics/"><u>Building a Foundation: French Language Sound Basics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialects-diverse-a-study-of-foreign-elements-in-english/"><u>Dialects Diverse: A Study of Foreign Elements in English</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/easy-methods-to-locate-and-use-the-control-panel-on-your-windows-11-pc/"><u>Easy Methods to Locate and Use the Control Panel on Your Windows 11 PC</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/expedient-techniques-to-spot-and-expel-deceptive-insta-connections/"><u>Expedient Techniques to Spot and Expel Deceptive Insta Connections</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/experts-top-stabilized-cameras-for-iphone-android-and-professional-use/"><u>Expert's Top Stabilized Cameras for iPhone, Android & Professional Use</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fruhstuck-mit-nummern-1-100-auf-deutsch-lernen-fur-anfanger/"><u>Frühstück Mit Nummern: 1-100 Auf Deutsch Lernen Für Anfänger</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/gaming-gpu-reviews-2024-most-cost-effective-graphics-cards-ranked-for-optimal-playing-experience/"><u>Gaming GPU Reviews 2024 - Most Cost-Effective Graphics Cards Ranked for Optimal Playing Experience</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-15-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 15 without Losing Any Data? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-poco-x6-pro-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Poco X6 Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-to-linguistic-excellence-7-reasons-why-mondly-helps-with-afrikaans/"><u>Journey to Linguistic Excellence: 7 Reasons Why Mondly Helps With Afrikaans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580203961-learn-multiple-languages-at-once/"><u>Learn Multiple Languages at Once</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-rhetoric-the-subtleties-of-spanish-flirting/"><u>Romance Rhetoric: The Subtleties of Spanish Flirting</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-thrills-that-dont-involve-los-angeles-lives/"><u>[Updated] In 2024, Thrills That Don't Involve Los Angeles Lives</u></a></li>
+<li><a href="https://blog-min.techidaily.com/44cm44or44k944kz44oz44gl44kj57ch5y2y44gq5oml6acg44gn6auy5zob6loq44gu6zplusz5qw944os44kz44o844oh44kj44oz44kw44oe44k544k44o85l2c44kk44cn/"><u>「パソコンから簡単な手順で高品質の音楽レコーディングマスター作り」</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-lifelong-guide-to-spanish-verbal-patterns/"><u>A Lifelong Guide to Spanish Verbal Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576342602-conquer-new-horizons-in-hindi-explore-7-inspiring-mondly-advantages/"><u>Conquer New Horizons in Hindi: Explore 7 Inspiring Mondly Advantages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-your-israel-trip-must-know-language-skills-and-guideposts/"><u>Cultivating Your Israel Trip: Must-Know Language Skills & Guideposts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialogue-dynamics-superior-training-pathways/"><u>Dialogue Dynamics: Superior Training Pathways</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exporting-your-gpt-3-interactions-a-comprehensive-tutorial/"><u>Exporting Your GPT-3 Interactions - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580464712-get-ready-to-meet-your-new-ai-conversation-partner/"><u>Get Ready To Meet Your New AI Conversation Partner</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/harnessing-chatgpts-capabilities-for-poetic-expression/"><u>Harnessing ChatGPT's Capabilities for Poetic Expression</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-the-ethical-use-of-ai-chatbots-like-chatgpt-in-mental-health-counseling/"><u>Navigating the Ethical Use of AI Chatbots Like ChatGPT in Mental Health Counseling</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-gionee-f3-pro-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Gionee F3 Pro Black and White | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-comprehensive-guide-to-capturing-perfect-instagram-covers-for-2024/"><u>The Comprehensive Guide to Capturing Perfect Instagram Covers for 2024</u></a></li>
 </ul></div>
 

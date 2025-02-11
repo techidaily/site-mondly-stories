@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Arabic Unveiled for Novices
-date: 2024-07-12T08:17:24.796Z
-updated: 2024-07-13T08:17:24.796Z
+date: 2025-02-03T22:23:14.263Z
+updated: 2025-02-11T00:50:39.792Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92
 
  We’re not going to sugarcoat it for you, but Arabic is a difficult language to learn, especially for native English speakers. However, [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6418&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6418?mother%5Flang=en%5Fus?target%5Flang=ar&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6418?mother%5Flang=en%5Fus?target%5Flang=ar) ’s got your back, as always! Ever since [we launched Arabic courses for 4 billion people](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  we’ve invested in engaging content to keep you interested day in and day out. Learning Arabic for beginners has never been simpler. But why should you learn Arabic? Here are [6 exciting reasons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  . If you need any more, just keep reading!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why is Arabic such a challenge?
 
  As the sixth most spoken language in the world, with close to 420 million speakers worldwide, it stands to reason that Arabic would be a popular language, one of the [best foreign languages to learn for business](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , actually. But why is it so hard for English speakers to approach this process? Here are the most complicated challenges:
@@ -30,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92
 
  So, since the elephant is out of the room, you’re ready to [learn Arabic online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  ! By the way, according to the US Foreign Service Institute, you’ll need roughly 88 weeks or approximately 2200 hours in order to reach fluency. Follow the tips below and you might arrive at your destination a lot faster!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Step by step guide
 
 I’d really stick by these if I were you!
@@ -37,6 +45,10 @@ I’d really stick by these if I were you!
 ### Decision time
 
  Ok, you can’t really learn all the Arabic, since there are many types of it (Palestinian, Iraqi, Egyptian, Levantine). To be more precise, there’s the mother tongue, which is the official language, but also different accents and a lot of pronunciations depending on the locale. So, choose the type of Arabic you want to learn in relation to the region/regions you are interested in. There’s also Modern Standard Arabic, one of the official languages of the UN.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Commence with just the basics
 
@@ -48,11 +60,19 @@ I’d really stick by these if I were you!
 
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Learn how to use an Arabic dictionary
 
  Ah, one of the most trusted friends of any language learner, the dictionary is here to save the day yet again. But, with Arabic things will be a little more complicated. So, in an Arabic dictionary, the words will be organized around roots made up of three letters. With me so far?
 
  In order to find a word, you need to already know its root and the letter that the root starts with, and this letter is not always the first letter in the word. So yeah, learning to use the dictionary will take some practice, but once you’ve mastered it will make things much simpler.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Start practicing and speaking
 
@@ -89,8 +109,6 @@ I’d really stick by these if I were you!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,6 +116,24 @@ I’d really stick by these if I were you!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-vids-to-dollars-navigating-youtubes-monetization-landscape/"><u>[New] 2024 Approved From Vids to Dollars Navigating YouTube's Monetization Landscape</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-the-ultimate-spotify-marketing-manual-strategies-and-tactics-for-2024/"><u>[Updated] The Ultimate Spotify Marketing Manual Strategies and Tactics for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-efficiency-enhancements-extensive-benchmarking-of-the-amd-ryzen-9-9950x-engineering-sample-with-blender-across-a-spectrum-of-thermal-design-power-36/"><u>Exploring Efficiency Enhancements: Extensive Benchmarking of the AMD Ryzen 9 9950X Engineering Sample with Blender Across a Spectrum of Thermal Design Power Settings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-analysis-where-is-french-spoken-by-the-majority/"><u>Global Analysis: Where Is French Spoken by the Majority?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-education-programs/"><u>Global English Education Programs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-transformative-visuals-unleash-the-power-of-6-video-types/"><u>In 2024, Transformative Visuals Unleash the Power of 6 Video Types</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-barriers-break-for-a-minimal-0-today/"><u>Language Barriers Break for a Minimal $0 Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lettura-intermedia-per-comunicare-i-numeri-italiani/"><u>Lettura Intermedia per Comunicare I Numeri Italiani</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-the-download-of-your-youtube-playlist-today-for-2024/"><u>Mastering the Download of Your YouTube Playlist Today for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-social-scenarios-in-italy-with-essential-salutations/"><u>Navigate Social Scenarios in Italy with Essential Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-the-future-of-language-learning-mondlyar-vr-experience/"><u>Step Into The Future of Language Learning - MondlyAR VR Experience</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-guide-to-clearing-up-windows-update-jams/"><u>The Ultimate Guide to Clearing Up Windows Update Jams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-celebration-spoken-in-many-tongues/"><u>U.S. Celebration Spoken in Many Tongues</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-translate-video-from-english-to-arabic-with-ease-for-2024/"><u>Updated Translate Video From English to Arabic with Ease for 2024</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/windows-10web/"><u>Windows 10上でシームレスなWeb会議を捉え続ける方法：全面的なガイドブック</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-path-to-fluent-tagalog-daily-practice-matters/"><u>Your Path to Fluent Tagalog - Daily Practice Matters</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-cash-growth-forecasts-at-no-cost-for-2024/"><u>YouTube Cash Growth Forecasts at No Cost for 2024</u></a></li>
+</ul></div>
 

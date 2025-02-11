@@ -1,7 +1,7 @@
 ---
 title: "Horas Y Segundos: Un Guía Para Empezar"
-date: 2024-07-12T08:17:03.471Z
-updated: 2024-07-13T08:17:03.471Z
+date: 2025-02-04T20:11:10.897Z
+updated: 2025-02-10T22:41:07.945Z
 tags:
   - speak
   - english
@@ -25,6 +25,10 @@ _¿Que hora es?_ demands an answer! And no, we’re not talking about the Mexica
 But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ¿Que hora es? – how to ask for the time in Spanish
 
@@ -57,6 +61,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -73,7 +81,15 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Telling time in Spanish – a visual guide
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
 
@@ -145,6 +161,10 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -161,8 +181,6 @@ Here are some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,6 +188,22 @@ Here are some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ermanently-quit-youtube-shorts-now-for-2024/"><u>[New] Permanently Quit YouTube Shorts Now for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-best-10-free-srt-converter-apps-online/"><u>2024 Approved Explore Best 10 Free Srt Converter Apps Online</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-paving-the-way-to-youtube-stardom-through-effective-seo-keywords/"><u>2024 Approved Paving the Way to YouTube Stardom Through Effective SEO Keywords</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/africas-unspoken-language-wealth/"><u>Africa's Unspoken Language Wealth</u></a></li>
+<li><a href="https://games-able.techidaily.com/ai-ally-in-gaming-top-6-approaches-with-chatgpt/"><u>AI Ally in Gaming: Top 6 Approaches with ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578225003-best-family-app-of-year-on-google-play-mondly-kids-with-smart-controls/"><u>Best Family App of Year on Google Play: Mondly Kids with Smart Controls</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explorar-o-portugues-todas-as-formas-de-saudar/"><u>Explorar O Português: Todas As Formas De Saudar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-mille-numero-italiani-conoscenze-importanti/"><u>I Mille Numero Italiani: Conoscenze Importanti</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-redefining-digital-space-alternative-video-hosting-sites/"><u>In 2024, Redefining Digital Space Alternative Video Hosting Sites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochenabschnitte-verinnerlichen/"><u>Lerne Deutsche Wochenabschnitte Verinnerlichen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-pay-more-mondly-premium-forever-free/"><u>Never Pay More: Mondly Premium - Forever Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reinforce-revenue-with-robust-rhetorical-capacity-building/"><u>Reinforce Revenue with Robust Rhetorical Capacity Building</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unveiling-studio-magic-comprehensive-xreview-for-2024/"><u>Unveiling Studio Magic Comprehensive XReview for 2024</u></a></li>
+</ul></div>
 

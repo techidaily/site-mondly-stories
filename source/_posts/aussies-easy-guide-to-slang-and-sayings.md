@@ -1,7 +1,7 @@
 ---
 title: Aussie's Easy Guide to Slang and Sayings
-date: 2024-07-12T08:13:58.404Z
-updated: 2024-07-13T08:13:58.404Z
+date: 2025-02-03T23:18:46.081Z
+updated: 2025-02-10T22:17:49.627Z
 tags:
   - speak
   - english
@@ -26,7 +26,9 @@ thumbnail: https://thmb.techidaily.com/a49c2f71f9d056e749c5a574cc37d025a924e06d1
 
  You don’t really know a language until you’ve learned its [slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . And when it comes to English, many people agree that Australian slang is the richest, liveliest and funniest slang you could learn. Sure, there’s always British English, but the Brits don’t call their barbecue “barbie”. And that’s a missed opportunity. Wouldn’t you agree? How can you have just a plain, dull barbecue when you could have a “barbie”? The Aussie slang is the best slang.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Top 10 Popular Australian Slang Terms & Words
 
@@ -35,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/a49c2f71f9d056e749c5a574cc37d025a924e06d1
 ### 1._Ta_ – Thank you
 
  You can also use “thanks heaps” when you are really grateful to someone for doing something for you or “cheers” to combine both “thank you”‌ and “goodbye” ‌in a single word. For example, “cheers” is a perfect choice for leaving the shop after the barista gives you your coffee.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2._Brekkie_ – Breakfast
 
@@ -46,9 +52,17 @@ _“So… what did you have for brekkie today?”_
 
 Well, I don’t mind if you call me a “barbie girl” now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4._Crikey!_ – An Exclamation of Surprise
 
  Famously used by Steve Irwin. It’s similar to the [British English slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) “blimey!”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5._Cake Hole_ – Mouth
 
@@ -82,11 +96,19 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ Australian Slang Words To Help You Speak Like A True Aussie 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Improve your English, mate
 
  Oi, this language learnin’ app is fair dinkum! Give it a try.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Australian Slang Phrases Only Local Aussies Know
 
@@ -185,6 +207,10 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
 ![australian slang terms](https://edge.mondly.com/blog/wp-content/uploads/2020/05/australian-slang-terms-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Aussie slang
 
 ## Funny Australian Slang Phrases
@@ -243,6 +269,10 @@ It seems that this phrase has had a lot of variations:
 
 Some say he “did the bolt” from his responsibilities as a prime minister.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. No worries, mate, she’ll be apples
 
 **Everything will be fine.**
@@ -282,6 +312,10 @@ Before you go, let’s answer some frequently asked questions.
 
  Aussie means Australian, also known as a person from Australia. Remember that “Aussie” is an informal word and you should use it accordingly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is the most common Australian slang?
 
  The most common Australian slang words are ‘arvo’ (afternoon), ‘Maccas’ (McDonald’s), ‘sheila’ (woman or female), ‘brekkie’ (breakfast), ‘barbie’ (barbecue), ‘mate’ (friend), ‘avo’ (avocado), ‘bikkie’ (biscuit), ‘cobber’ (friend) and many other more.
@@ -290,6 +324,10 @@ Before you go, let’s answer some frequently asked questions.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Crikey, mate! This language learnin’ app is bonzer
 
@@ -305,8 +343,6 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -314,6 +350,26 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-6-pure-android-screen-recorder-selections-no-ads/"><u>[New] 2024 Approved 6 Pure Android Screen Recorder Selections (No Ads)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-ultimate-list-best-virtual-playstation-3-software/"><u>[New] In 2024, Ultimate List Best Virtual PlayStation 3 Software</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-starting-from-scratch-stardews-ginger-island-guide/"><u>[Updated] 2024 Approved Starting From Scratch Stardew's Ginger Island Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-7-best-zero-cost-web-based-film-makers/"><u>[Updated] 7 Best Zero-Cost Web-Based Film Makers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-beyond-the-screen-arvr-infused-inspirational-sayings/"><u>[Updated] Beyond the Screen AR/VR-Infused Inspirational Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-cross-cultural-films-that-sharpen-your-vocabulentic-skills/"><u>10 Cross-Cultural Films That Sharpen Your Vocabulentic Skills</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-efficiently-documenting-your-fb-chats-and-meets/"><u>2024 Approved Efficiently Documenting Your FB Chats & Meets</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-top-5-best-mac-screen-seize-tips-char-limit-156/"><u>2024 Approved Top 5 Best Mac Screen Seize Tips (Char Limit 156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-manieres-francaises-oui-bienvenue/"><u>4 Manières Françaises: Oui, Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-surprising-ways-multilingualism-enriches-life/"><u>7 Surprising Ways Multilingualism Enriches Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-dedicated-decade-mondlybacks-filter-success/"><u>A Dedicated Decade: MondlyBack's Filter Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-the-subtleties-of-pt-shortcuts/"><u>Brazilians vs Europeans: The Subtleties of PT Shortcuts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-languages-santa-speaks-with-reindeer/"><u>Deciphering the Languages Santa Speaks with Reindeer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dynamic-classroom-dynamics-with-latin-studies/"><u>Dynamic Classroom Dynamics with Latin Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-communication-with-mondlys-brilliance/"><u>Embrace Global Communication with Mondly's Brilliance</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-motorola-moto-g04-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Motorola Moto G04.</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rt-of-amplifying-popularity-on-youtube/"><u>The Art of Amplifying Popularity on YouTube</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-ranking-chromebook-picks-for-schoolwork-comprehensive-reviews-by-tech-experts/"><u>Top-Ranking Chromebook Picks for Schoolwork: Comprehensive Reviews by Tech Experts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578409266-unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online!</u></a></li>
+</ul></div>
 

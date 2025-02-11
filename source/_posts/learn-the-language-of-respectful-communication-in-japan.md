@@ -1,7 +1,7 @@
 ---
 title: Learn the Language of Respectful Communication in Japan
-date: 2025-01-27T23:51:26.611Z
-updated: 2025-01-29T18:26:30.951Z
+date: 2025-02-08T21:10:45.188Z
+updated: 2025-02-10T18:16:55.670Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. “Hello” in Japanese
 
  If you ever watched at least one anime series, you probably already know this: **“hello” in Japanese is_Konnichiwa_ .** Rings any bell? It most probably does since**_Konnichiwa_** is undeniably the most**common Japanese greeting.** Thanks to some of the most influential anime of all time such as Dragon Ball Z, Death Note, and Naruto, a lot of people living outside Japan know at least a few [**words in Japanese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and_Konnichiwa_ is definitely one of them.
@@ -40,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Sorasak©
@@ -52,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
  – using**Hiragana symbols:** こんにちは
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
@@ -73,11 +73,11 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
- “Meguro River, Matsuno, Japan” by Sora Sagano©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 ## 3.“Goodbye” in Japanese
 
@@ -97,14 +97,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -129,6 +125,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
@@ -201,18 +201,21 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-best-camcorder-selections-for-snowboardingskiing/"><u>[New] Best Camcorder Selections for Snowboarding/Skiing</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exclusive-list-the-best-websites-for-ringtone-grabs/"><u>[Updated] Exclusive List The Best Websites for Ringtone Grabs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726030336463-dvd/"><u>携帯電話へのDVDオーディオコンバート手順:スマホ用にテープ音を変換する</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-tale-of-two-portoguese-back-and-filter-buttons/"><u>A Tale of Two Portoguese: Back and Filter Buttons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-salut-advanced-french-greetings-you-need-to-know/"><u>Beyond 'Salut': Advanced French Greetings You Need to Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversational-crescendo-korean-turkish-blend/"><u>Conversational Crescendo: Korean-Turkish Blend</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/could-affordable-macbook-models-be-next-apples-strategy-against-chromebook-dominance-unveiled/"><u>Could Affordable MacBook Models Be Next? Apple's Strategy Against Chromebook Dominance Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortlessly-learn-new-languages-with-these-innovative-mobile-solutions/"><u>Effortlessly Learn New Languages with These Innovative Mobile Solutions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-demystifying-and-decollecting-gopros-fish-eye-photos/"><u>In 2024, Demystifying & Decollecting GoPro's Fish Eye Photos</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/just-scored-the-latest-ipad-9th-gen-for-an-unbeatable-price-of-250-after-apples-new-release-shop-today-at-zdnet/"><u>Just Scored the Latest iPad (9Th Gen) for an Unbeatable Price of $250 After Apple's New Release | Shop Today at ZDNet</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209815503-9781789041385-the-energetic-dimension/"><u>The Energetic Dimension | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-16-expressions-of-gratitude-in-deutsch/"><u>Top 16 Expressions Of Gratitude in Deutsch</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updates-from-apple-restructuring-policies-for-personal-computer-emulators-in-app-store/"><u>Updates From Apple: Restructuring Policies for Personal Computer Emulators in App Store</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-fb-sharing-youtube-videos-directly/"><u>[New] 2024 Approved Mastering FB Sharing YouTube Videos Directly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-maximize-online-sales-the-most-reliable-15-facebook-analysis-tools/"><u>[New] 2024 Approved Maximize Online Sales The Most Reliable 15 Facebook Analysis Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mmakers-essential-guide-to-free-royalty-free-audiosites/"><u>A Filmmaker's Essential Guide to Free Royalty-Free Audiosites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-urdu-learning-10-minute-routine/"><u>Accelerated Urdu Learning, 10-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-odyssey-from-londons-cockney-to-sydneys-swagman-speak/"><u>Accent Odyssey: From London's Cockney to Sydney's Swagman Speak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-collection-of-20-must-read-french-novels/"><u>Beginner's Collection of 20 Must-Read French Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-speech-immersive-techniques-for-deep-language-understanding/"><u>Beyond Speech: Immersive Techniques for Deep Language Understanding</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brit-speak-made-simple-everyday-expressions/"><u>Brit Speak Made Simple: Everyday Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-easy-conversation-with-mondlys-updated-vocabulary/"><u>Dive Into Easy Conversation with Mondly’s Updated Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diverse-voices-from-macau/"><u>Diverse Voices From Macau</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-honor-x50i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How to Stop My Spouse from Spying on My Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-harnessing-the-power-of-visual-appeal-in-your-youtube-advertising/"><u>In 2024, Harnessing the Power of Visual Appeal in Your YouTube Advertising</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-honor-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Honor Phone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme 11 Pro+? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Myth and Mouth Movement: The Language of Vikings"
-date: 2025-01-25T18:11:03.893Z
-updated: 2025-01-29T22:20:23.616Z
+date: 2025-02-03T19:07:49.553Z
+updated: 2025-02-11T03:53:29.659Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
 ![viking ragnar](https://media.giphy.com/media/rR6m3deXOpHP2/giphy.gif "What Language Did Vikings Speak? 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Did Vikings speak Old English?
 
  First, let’s address the elephant in the room.**Did Vikings speak English?** No, Modern English didn’t even exist at the time. As pop culture explores the Viking age more and more, it’s only natural that you’d ask yourself that. After all, Ragnar Lothbrok did speak English fluently in the acclaimed TV show_Vikings_ .
@@ -37,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 ![Vikings english](https://media.giphy.com/media/V5474zfp6NveE/giphy.gif "What Language Did Vikings Speak? 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
@@ -67,7 +63,11 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language today is closest to Old Norse?
@@ -76,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
 So yeah, you can learn Old Norse if you want to.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is Old Norse still spoken?
 
  Old Norse is not spoken as a living language today. However, there are people who study Old Norse and speak it fluently.
@@ -83,10 +87,6 @@ So yeah, you can learn Old Norse if you want to.
  As noted previously, modern Icelandic is the most similar modern language to Old Norse. For this reason, it is considered that spending time with Icelanders can offer a glimpse into this ancient language’s contemporary iteration.
 
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What language did Vikings write in?
 
@@ -102,7 +102,7 @@ So yeah, you can learn Old Norse if you want to.
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn the Scandinavian languages fast
@@ -136,17 +136,19 @@ So yeah, you can learn Old Norse if you want to.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-9-best-watermark-apps-for-iphone-how-to-watermark-photos-on-iphone/"><u>[New] 9 Best Watermark Apps for iPhone - How to Watermark Photos on iPhone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/1716107367545-new-in-2024-how-to-watch-facebook-live-on-roku/"><u>[New] In 2024, How to Watch Facebook Live on Roku</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-how-to-captivate-and-expand-your-online-following-with-viral-youtube-shorts/"><u>[Updated] How to Captivate and Expand Your Online Following with Viral YouTube Shorts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-mystery-of-off-facebook-activity-what-to-know-and-do/"><u>2024 Approved The Mystery of Off-Facebook Activity What to Know & Do</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprovechando-la-pronunciacion-para-colores/"><u>Aprovechando La Pronunciación Para Colores</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bilingual-banter-eloquent-pick-up-lines-in-spanish/"><u>Bilingual Banter: Eloquent Pick-Up Lines in Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-europes-tongues-language-diversity-declared/"><u>Embrace Europe's Tongues: Language Diversity Declared</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-oppo-a78-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Oppo A78 5G to Protect Your Individual Information</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-illuminating-success-brightening-up-your-youtube-videos/"><u>In 2024, Illuminating Success Brightening Up Your YouTube Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/russian-counting-made-simple-a-guide/"><u>Russian Counting Made Simple: A Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-fluent-portuguese-using-these-6-techniques/"><u>The Ultimate Guide to Fluent Portuguese Using These 6 Techniques</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/troubleshooting-the-d3dx9-missing-file-on-your-pc/"><u>Troubleshooting the D3DX9 Missing File on Your PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elevate-your-content-with-these-24-best-video-translating-tools/"><u>[Updated] Elevate Your Content with These 24 Best Video Translating Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-for-newcomers-discover-these-essential-gopro-upgrades/"><u>[Updated] For Newcomers, Discover These Essential GoPro Upgrades</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-inside-look-3d-lut-creation-process-for-2024/"><u>[Updated] Inside Look 3D LUT Creation Process for 2024</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/comprehensive-tutorial-on-saving-system-revert-data-in-windows-computers/"><u>Comprehensive Tutorial on Saving System Revert Data in Windows Computers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/guide-to-enable-windows-11-auto-hdr-settings/"><u>Guide to Enable Windows 11 Auto-HDR Settings</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/launch-your-clips-free-intro-downloads-for-2024/"><u>Launch Your Clips Free Intro Downloads for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-gain-proficiency-with-urdu-online/"><u>Rapidly Gain Proficiency with Urdu Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-online-introduction-to-the-romance-language/"><u>Seamless Online Introduction to the Romance Language</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/sneaking-preview-into-unreleased-windows-capabilities-with-vivetool/"><u>Sneaking Preview Into Unreleased Windows Capabilities with ViVeTool</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solving-the-issue-of-unwanted-humming-sounds-in-your-earbuds/"><u>Solving the Issue of Unwanted Humming Sounds in Your Earbuds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-slovak-straightforward-sneak-in-learning-during-your-free-minutes/"><u>Speak Slovak Straightforward: Sneak in Learning During Your Free Minutes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-mystery-of-off-facebook-activity-what-to-know-and-do-for-2024/"><u>The Mystery of Off-Facebook Activity What to Know & Do for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-children-excel-in-multilingualism/"><u>Why Children Excel in Multilingualism</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/your-go-to-places-for-endless-music-video-viewing-our-number-one-choices/"><u>Your Go-To Places for Endless Music Video Viewing: Our Number One Choices</u></a></li>
 </ul></div>
 

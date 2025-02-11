@@ -1,7 +1,7 @@
 ---
 title: What Is the Lingua Franca for Israeli Society?
-date: 2024-09-20T16:47:53.829Z
-updated: 2024-09-21T16:12:18.532Z
+date: 2025-02-07T19:01:57.402Z
+updated: 2025-02-10T23:10:51.589Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/c1f2394a481b4500340195e3c4792344b150afff1
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
 
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew
 
@@ -45,10 +53,7 @@ thumbnail: https://thmb.techidaily.com/c1f2394a481b4500340195e3c4792344b150afff1
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian
@@ -59,22 +64,13 @@ thumbnail: https://thmb.techidaily.com/c1f2394a481b4500340195e3c4792344b150afff1
 
 So, as you can see, Russian is surprisingly widespread in Israel.
 
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Other languages
 
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can you speak English in Israel?
 
@@ -90,6 +86,10 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
 
@@ -114,5 +114,20 @@ So, as you can see, Russian is surprisingly widespread in Israel.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-expertise-on-crafting-premium-webcam-footage-for-2024/"><u>[New] Expertise on Crafting Premium Webcam Footage for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unleashing-entrepreneurship-on-a-slide-quick-channel-creation-tips-for-your-phone/"><u>[Updated] 2024 Approved Unleashing Entrepreneurship on a Slide Quick Channel Creation Tips for Your Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-reasons-why-learning-a-foreign-language-will-change-your-life/"><u>10 Reasons Why Learning A Foreign Language Will Change Your Life</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-whats-the-best-orientation-horizontalvertical-on-facebook/"><u>2024 Approved What's The Best Orientation Horizontal/Vertical on Facebook?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-hidden-benefits-that-extend-beyond-communication/"><u>5 Hidden Benefits That Extend Beyond Communication</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/enhance-online-presence-with-manycam-the-leading-platform-for-virtual-camera-solutions-and-live-broadcasts/"><u>Enhance Online Presence with ManyCam: The Leading Platform for Virtual Camera Solutions and Live Broadcasts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-hot-30i-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Infinix Hot 30i PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-apple-iphone-14-pro-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From Apple iPhone 14 Pro? How to Fix it?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/perfecting-your-podcasts-naming-strategy-guide-and-top-ideas-list-for-2024/"><u>Perfecting Your Podcast's Naming Strategy Guide and Top Ideas List for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/swift-listening-on-spotify-how-to-accelerate-audio-safely-for-2024/"><u>Swift Listening on Spotify How to Accelerate Audio Safely for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-world-of-arabic-beckons-unveil-the-6-best-online-learning-reasons-through-mondly/"><u>The World of Arabic Beckons! Unveil the 6 Best Online Learning Reasons Through Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tongues-of-terra-firma/"><u>Top Tongues of Terra Firma</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-guide-solving-launch-problems-in-counter-strike-2-update/"><u>Ultimate Guide: Solving Launch Problems in Counter-Strike 2 Update</u></a></li>
+</ul></div>
 

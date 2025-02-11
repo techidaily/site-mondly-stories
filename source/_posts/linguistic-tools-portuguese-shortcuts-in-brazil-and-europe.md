@@ -1,7 +1,7 @@
 ---
 title: "Linguistic Tools: Portuguese Shortcuts in Brazil & Europe"
-date: 2024-07-12T08:15:18.631Z
-updated: 2024-07-13T08:15:18.631Z
+date: 2025-02-07T17:49:23.890Z
+updated: 2025-02-10T22:23:12.480Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/5a612b69f151ee0b6ea165a5e0a8368a6294f13ac
 
  In general, those who speak either language can understand the other, but it may be difficult in some situations. That’s because there are so many nuances between the two. American linguist Albert Marckwardt coined the term “Colonial Lag” as a hypothesis that original varieties of a language (i.e., Brazilian Portuguese) change less than the variety spoken in the mother country (Portugal).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## History
 
  Countries tend to follow the linguistic developments of the mother country with a bit of delay due to the geographical distance. Portuguese was not deemed the official language in Brazil until 1758, whereas the colonization really began in the 16th century. Over time, changes occurred in the language because of increasing contact with European and [Asian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) immigrants.
 
  The other countries colonized by Portugal speak a Portuguese more akin to the [mother language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Many of them are [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) countries, so they don’t have external contact from other cultures that could have impacted their way of speaking. Secondly, compared to Brazil, those countries gained their independence much later and had more contact with Portugal during their early development.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Differences in the Pronunciation
 
@@ -32,9 +40,17 @@ thumbnail: https://thmb.techidaily.com/5a612b69f151ee0b6ea165a5e0a8368a6294f13ac
 
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Grammar and Spelling
 
@@ -48,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/5a612b69f151ee0b6ea165a5e0a8368a6294f13ac
 
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Should You Learn Brazilian or European Portuguese?
 
@@ -103,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/5a612b69f151ee0b6ea165a5e0a8368a6294f13ac
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,6 +130,26 @@ thumbnail: https://thmb.techidaily.com/5a612b69f151ee0b6ea165a5e0a8368a6294f13ac
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-mastering-youtube-videos-without-spending-a-dime-with-the-8-best-tools/"><u>[New] In 2024, Mastering YouTube Videos Without Spending A Dime - With the 8 Best Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/101plus-powerful-phrases-for-smooth-russian-travels/"><u>101+ Powerful Phrases for Smooth Russian Travels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-across-the-seas-from-british-to-american-cockney-isms/"><u>Accent Across the Seas: From British to American Cockney-Isms</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/1728484474929-asus/"><u>ASUSトレーナーバックアップ計画とその代替オプション:詳細なガイド</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/auf-den-ersten-blick-1-100-in-deutscher-zahlweise/"><u>Auf Den Ersten Blick: 1-100 in Deutscher Zählweise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausreden-vermeiden-deutsche-art-zu-bedauern-sagen/"><u>Ausreden Vermeiden – Deutsche Art Zu Bedauern Sagen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-gaps-essential-expressions-and-vocabulary-for-south-american-travelers/"><u>Bridging Language Gaps: Essential Expressions and Vocabulary for South American Travelers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-infinix-smart-8-plus-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Infinix Smart 8 Plus is off? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comenzar-con-la-manera-correcta-de-anotar-tiempo-en-espanol/"><u>Comenzar Con La Manera Correcta De Anotar Tiempo en Espaňol</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/corporate-success-through-innovative-linguistic-applications/"><u>Corporate Success Through Innovative Linguistic Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/edunet-global-hub-bett-2022-highlights/"><u>Edunet Global Hub - BETT 2022 Highlights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empfindliche-bitte-um-verzeihung-in-deutsch/"><u>Empfindliche Bitte Um Verzeihung in Deutsch</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>How to Bypass FRP from Infinix Note 30 VIP Racing Edition?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-use-virtual-reality-tours/"><u>How to Use Virtual Reality Tours</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-asus-rog-phone-8-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Asus ROG Phone 8 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/niche-networking-on-youtube-from-phone-small-scale-approach-for-2024/"><u>Niche Networking on Youtube From Phone, Small-Scale Approach for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oming-anxiety-in-your-camera-lens-youtube-wisdom/"><u>Overcoming Anxiety in Your Camera Lens YouTube Wisdom</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-the-ksuserdll-file-not-found-a-step-by-step-guide/"><u>Solving the ksuser.dll File Not Found: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/wacky-warriors-tiktoks-most-ingenious-gaming-experienences/"><u>Wacky Warriors TikTok's Most Ingenious Gaming Experienences</u></a></li>
+</ul></div>
 

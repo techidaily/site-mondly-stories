@@ -1,7 +1,7 @@
 ---
 title: Navigating The Roadmap to Linguistic Competence
-date: 2024-07-12T08:16:21.658Z
-updated: 2024-07-13T08:16:21.658Z
+date: 2025-02-03T22:37:44.162Z
+updated: 2025-02-10T22:34:01.498Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/f0d0c2a077419838d019249854e895427fabffcba
 ## Navigating The Roadmap to Linguistic Competence
 
  English is the most international language on the globe. If you are a native English speaker, chances are, you can get along quite comfortably in most Western countries without learning a word in another language. In Europe especially, with enough luck, someone out there may know enough English to initiate and sustain basic communication situations.
-
-
 
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
 
@@ -45,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/f0d0c2a077419838d019249854e895427fabffcba
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -60,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/f0d0c2a077419838d019249854e895427fabffcba
  **Fluency is practically reached at level 3 (professional working proficiency),** so this will be our main benchmark.
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Easiest language to learn for English speakers
 
@@ -111,6 +117,10 @@ thumbnail: https://thmb.techidaily.com/f0d0c2a077419838d019249854e895427fabffcba
 
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
 | Language       | Time needed to reach fluency |
@@ -148,11 +158,19 @@ thumbnail: https://thmb.techidaily.com/f0d0c2a077419838d019249854e895427fabffcba
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hardest language to learn for English speakers
 
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
 
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Tier 5:** Extraordinary level of difficulty
 
@@ -197,8 +215,6 @@ thumbnail: https://thmb.techidaily.com/f0d0c2a077419838d019249854e895427fabffcba
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -206,6 +222,22 @@ thumbnail: https://thmb.techidaily.com/f0d0c2a077419838d019249854e895427fabffcba
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-leverage-hashtags-in-igtv-for-fan-base-explosion/"><u>[New] Leverage Hashtags in IGTV for Fan Base Explosion</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-content-sharing-on-youtube-without-breaching-copyright/"><u>[New] Mastering Content Sharing on YouTube Without Breaching Copyright</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-8-youtube-to-avi-convertors-explained/"><u>[Updated] 2024 Approved Top 8 YouTube-to-AVI Convertors Explained</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-which-is-better-for-vloggers-on-facebook-vertical-or-horizontal-in-2024/"><u>[Updated] Which Is Better for Vloggers on Facebook Vertical or Horizontal, In 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-ultimate-video-mastery-for-professional-vimeo-users/"><u>2024 Approved Ultimate Video Mastery for Professional Vimeo Users</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-samsung-galaxy-xcover-7-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Samsung Galaxy XCover 7 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgiums-linguistic-landscape-explored/"><u>Belgium’s Linguistic Landscape Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bulbarian-brilliance-master-in-bare-minutes/"><u>Bulbarian Brilliance - Master in Bare Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-cultures-through-the-pulse-of-language/"><u>Crossing Cultures Through the Pulse of Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-language-of-vietnam-for-first-timers/"><u>Decoding the Language of Vietnam for First-Timers</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/detecting-signs-of-graphics-card-malfunction-tips-from-yl-computing/"><u>Detecting Signs of Graphics Card Malfunction - Tips From YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-new-horizons-the-joy-of-language-learning/"><u>Discovering New Horizons: The Joy of Language Learning</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-funnyframeforge-picfunnyfactory/"><u>In 2024, FunnyFrameForge PicFunnyFactory</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-nook-glowlight-4-a-comprehensive-user-guide/"><u>In-Depth Analysis of the Nook GlowLight 4 - A Comprehensive User Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579487205-mondly-gold-unlimited-zero-fee-access/"><u>Mondly Gold: Unlimited, Zero-Fee Access</u></a></li>
+</ul></div>
 

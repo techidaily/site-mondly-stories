@@ -1,7 +1,7 @@
 ---
 title: Γνώση Γλωττοτηπειού Παραδόσεις Ευχετήματος
-date: 2025-01-23T22:41:29.267Z
-updated: 2025-01-30T02:19:28.854Z
+date: 2025-02-04T00:41:41.876Z
+updated: 2025-02-11T04:28:00.694Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
  In this quick Greek lesson, we’ll show you only the practical ways to say thank you in Greek. The thanks you’ll actually need and use in real life. Additionally, we’ll also go over how to say ‘please’ or ‘you’re welcome’ in Greek. As a result, you’ll know exactly what to say and when to say it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What does efcharistó mean in Greek?
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
  Additionally, if you feel like it’s appropriate, you can also use it to thank the friendly taverna keeper at the end of the night.
 
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The informal ‘thank you’ in Greek
 
@@ -52,14 +56,10 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
 
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Mýkonos, Greece” by Johnny Chen©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Examples of Greek thanks
@@ -73,10 +73,6 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
 * Είμαι ευγνώμων. _(Eímai evgnómon.)_ – I am grateful/thankful.
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
 
  Are you familiar with the German ‘_Bitte’_ or the Italian ‘_prego’_ that seem to mean everything from ‘please’ to ‘go ahead’ and ‘you’re welcome’?
@@ -86,7 +82,7 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
@@ -97,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
 
@@ -128,24 +128,20 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-global-perspective-inclusive-technology-review/"><u>[New] In 2024, Global Perspective Inclusive Technology Review</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nstant-influence-youtubes-hourly-video-tops/"><u>[New] Instant Influence Youtube's Hourly Video Tops</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-captivating-yt-cover-art-for-maximum-traffic-for-2024/"><u>[Updated] Captivating YT Cover Art for Maximum Traffic for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-music-integration-in-canva-video-projects/"><u>2024 Approved Mastering Music Integration in Canva Video Projects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/commonest-focus-on-foreign-language-learning-us/"><u>Commonest Focus on Foreign Language Learning U.S.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educational-pinnacle-mondly-kids-recognized-by-google-play-2-cookie-monsters-favorite-treats/"><u>Educational Pinnacle: Mondly Kids Recognized by Google Play 2 Cookie Monster's Favorite Treats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-fiction-starter-pack-top-20-novels-for-newcomers/"><u>French Fiction Starter Pack: Top 20 Novels For Newcomers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-norte-to-sueste-brazilians-vs-eurospeakers/"><u>From Norte to Sueste: Brazilians Vs. Eurospeakers</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme Narzo 60 5G? | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-from-novices-to-pros-the-journey-of-picking-fpv-drone-blades/"><u>In 2024, From Novices to Pros The Journey of Picking FPV Drone Blades</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Tecno Camon 20 | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-monitoring-friends-lost-in-instagram-world/"><u>In 2024, Monitoring Friends Lost in Instagram World</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sharpen-your-mind-enhance-language-skills-quickly/"><u>Sharpen Your Mind, Enhance Language Skills Quickly</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723009201333-solving-the-mute-mystery-in-evil-genius-2-a-step-by-step-guide-to-get-volume-back/"><u>Solving the Mute Mystery in 'Evil Genius 2': A Step-by-Step Guide to Get Volume Back!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/starting-up-in-periscope-tips-to-launch-your-wealth-journey/"><u>Starting Up in Periscope Tips to Launch Your Wealth Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/take-charge-of-your-journey-to-japanese-mastery-at-no-cost/"><u>Take Charge of Your Journey to Japanese Mastery, At No Cost</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-journey-1500-days-of-knowledge/"><u>The Journey: 1,500 Days of Knowledge</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-rhythmic-beat-of-africas-languages/"><u>The Rhythmic Beat of Africa's Languages</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ositive-interaction-not-pressure-a-subscription-success-story/"><u>[New] Positive Interaction, Not Pressure A Subscription Success Story</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-get-blessed-gospel-music-as-your-ringtone/"><u>[Updated] How to Get Blessed Gospel Music as Your Ringtone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/helping-hands-in-colombia-danny-from-colombias-mission/"><u>Helping Hands in Colombia: Danny From Colombia’s Mission</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-improved-support-mondlys-updated-faq-resources/"><u>Introducing Improved Support: Mondly's Updated FAQ Resources</u></a></li>
+<li><a href="https://change-location.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-ciel-et-terre-les-mots-du-week-end/"><u>Le Ciel Et Terre: Les Mots Du Week-End</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-2023-your-best-save-96-on-mondly-premium/"><u>Make 2023 Your Best: Save $96 on Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-language-skills-with-mondly/"><u>Mastering English Language Skills with Mondly</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/microphone-mastery-a-quick-and-easy-way-to-ensure-crystal-clear-audio/"><u>Microphone Mastery: A Quick and Easy Way to Ensure Crystal Clear Audio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-in-tech-excellence-2021-gala/"><u>Mondly Triumphs in Tech Excellence 2021 Gala</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-and-learn-fast-the-top-10-simple-languages-guide/"><u>Speak and Learn Fast: The Top 10 Simple Languages Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-vivo-t2-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Vivo T2 5G Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/top-tips-to-resolve-pc-game-crashing-problems-in-yakuza-absolutely-remastered/"><u>Top Tips to Resolve PC Game Crashing Problems in Yakuza Absolutely Remastered</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-smartwatch-functionality-what-can-these-gadgets-do/"><u>Unveiling Smartwatch Functionality: What Can These Gadgets Do?</u></a></li>
 </ul></div>
 

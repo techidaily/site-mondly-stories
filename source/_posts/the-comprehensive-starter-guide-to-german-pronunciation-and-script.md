@@ -1,7 +1,7 @@
 ---
 title: The Comprehensive Starter Guide to German Pronunciation & Script
-date: 2024-07-12T08:15:37.377Z
-updated: 2024-07-13T08:15:37.377Z
+date: 2025-02-08T19:38:28.031Z
+updated: 2025-02-10T20:30:40.249Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/7ba25f196f1fd36b2bff5ba5871f3da3d2f6d1191
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/7ba25f196f1fd36b2bff5ba5871f3da3d2f6d1191
  German is the only language that uses ß and if the character is unavailable, it can be replaced with ⟨ss⟩. In fact, in Swiss Standard German (used in Switzerland and Liechtenstein), the letter was completed replaced by ⟨ss⟩ sometime in the 20th century.
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### German umlauts: ä, ö, ü
 
@@ -50,6 +58,10 @@ Now round off your lips and start practicing!
 
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -63,6 +75,10 @@ Now round off your lips and start practicing!
 3. **V** – Sounds like the English ‘f’. This is why _Vater_ sounds a lot like ‘father’.
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German pronunciation guide for letter combinations
 
@@ -80,6 +96,10 @@ Now round off your lips and start practicing!
 10. **Z** – Don’t pronounce this like the English ‘z’. Go instead for the ‘ts’ sound in ‘cats’. Try it: _Zeitung_ (‘newspaper’).
 
  Did you recognize_ze rules_ in this example?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to pronounce long German words
 
@@ -118,8 +138,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -127,6 +145,19 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-to-retrieve-flawless-copyright-free-images/"><u>[Updated] How to Retrieve Flawless, Copyright-Free Images</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-art-of-adjustment-elevating-your-photography/"><u>2024 Approved The Art of Adjustment Elevating Your Photography</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/8-essential-factors-that-make-human-writers-irreplaceable-despite-advancements-in-ai-technology/"><u>8 Essential Factors That Make Human Writers Irreplaceable Despite Advancements in AI Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangladesh-in-a-blink-or-ten-minutes/"><u>Bangladesh in a Blink (or Ten Minutes)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bringing-cultures-together-mondly-expands-on-oculus-quest/"><u>Bringing Cultures Together: Mondly Expands on Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/castilian-echoes-across-continents/"><u>Castilian Echoes Across Continents</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-midland-lxt500vp3-a-radio-full-of-features-but-limited-performance/"><u>Comprehensive Review of the Midland LXT500VP3 - A Radio Full of Features but Limited Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-two-languages-one-story-unveiling-spanish-and-portuguese/"><u>Discovering Two Languages, One Story: Unveiling Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-mastery-of-latin-via-internet-portal/"><u>Effortless Mastery of Latin via Internet Portal</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/macs-top-mp4-cutters-for-youtube-success/"><u>Mac's Top MP4 Cutters for YouTube Success</u></a></li>
+<li><a href="https://win11.techidaily.com/reimagine-your-taskbar-a-guide-to-incorporating-a-favorite-weather-icon-in-windows-11/"><u>Reimagine Your Taskbar: A Guide to Incorporating a Favorite Weather Icon in Windows 11</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-secure-files-fixing-windows-denials/"><u>Unlocking Secure Files: Fixing Windows Denials</u></a></li>
+</ul></div>
 

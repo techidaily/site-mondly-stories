@@ -1,7 +1,7 @@
 ---
 title: "Persian Language: History & Benefits of Learning Farsi/Persian"
-date: 2024-09-19T20:10:14.102Z
-updated: 2024-09-21T19:24:07.978Z
+date: 2025-02-06T22:56:06.202Z
+updated: 2025-02-10T23:08:50.871Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/95b8d87ab463f7ac2adc7d19611917fbcf5034fba
  Do you have a fascination for the Persian language? That makes the two of us. Or maybe you wish to [learn Persian](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7041&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7041?mother%5Flang=en%5Fus?target%5Flang=fa&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7041?mother%5Flang=en%5Fus?target%5Flang=fa) , but you’re not sure whether it is worth the effort or not? Is Farsi the same as Persian? Is Persian similar to Arabic? There are so many questions surrounding the Persian language that it’s high time someone answered them all in one place.
 
  Here’s a quick guide to all the basics you need to know about Persian before deciding whether you want to learn Persian or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is Persian a language?
 
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/95b8d87ab463f7ac2adc7d19611917fbcf5034fba
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
@@ -55,16 +63,7 @@ thumbnail: https://thmb.techidaily.com/95b8d87ab463f7ac2adc7d19611917fbcf5034fba
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Persian vs Farsi: Is Farsi the same as Persian?
@@ -78,10 +77,7 @@ thumbnail: https://thmb.techidaily.com/95b8d87ab463f7ac2adc7d19611917fbcf5034fba
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Persian vs Arabic: Is Persian similar to Arabic?
@@ -95,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/95b8d87ab463f7ac2adc7d19611917fbcf5034fba
  Here are two videos of numbers from 1 to 10 in Persian and in Arabic so you can see the difference:
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
 
@@ -145,5 +145,24 @@ Other benefits of learning Persian include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-optimizing-video-content-with-powerful-hashtags-on-youtube/"><u>[New] 2024 Approved Optimizing Video Content with Powerful Hashtags on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-finest-9-digital-places-for-harvesting-futuristic-3d-typefaces/"><u>[Updated] In 2024, The Finest 9 Digital Places for Harvesting Futuristic 3D Typefaces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-voyage-through-german-language-soundscapes/"><u>A Beginner's Voyage Through German Language Soundscapes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-kiss-across-borders-language-of-love-for-valentines-day/"><u>A Kiss Across Borders: Language of Love for Valentines Day</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-insights-into-usb-20-speed-cable-options-and-interface-connectors/"><u>Comprehensive Insights Into USB 2.0 Speed, Cable Options, and Interface Connectors</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discord-video-trouble-heres-how-to-get-your-stream-running-smoothly-again/"><u>Discord Video Trouble? Here's How to Get Your Stream Running Smoothly Again!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-comparison-the-classic-nintendo-switch-and-the-new-oled-version/"><u>Head to Head Comparison: The Classic Nintendo Switch and the New OLED Version</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oppo-a78-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Oppo A78 Phone without PIN</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-steps-towards-fluency-in-spanish/"><u>Interactive Steps Towards Fluency in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-best-language-learning-app-of-2022-by-bestappcom/"><u>Mondly Named Best Language Learning App of 2022 by BestApp.com</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/naming-gems-top-strategies-for-exceptional-podcast-titles-for-2024/"><u>Naming Gems Top Strategies for Exceptional Podcast Titles for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-compatibility-concerns-an-exploration-into-older-usb-composite-devices/"><u>Resolving Compatibility Concerns: An Exploration Into Older USB Composite Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/screen-based-linguistic-strategies-unveiled/"><u>Screen-Based Linguistic Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-languages-focusing-on-english/"><u>Second Languages: Focusing on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581354118-start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96% Off</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voices-in-multitude-the-african-languages-guidebook/"><u>Voices in Multitude: The African Languages Guidebook</u></a></li>
+</ul></div>
 

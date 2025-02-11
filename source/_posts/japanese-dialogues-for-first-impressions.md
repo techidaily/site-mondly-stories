@@ -1,7 +1,7 @@
 ---
 title: Japanese Dialogues for First Impressions
-date: 2025-01-23T19:49:15.727Z
-updated: 2025-01-30T03:04:58.691Z
+date: 2025-02-10T04:19:17.522Z
+updated: 2025-02-10T23:55:00.288Z
 tags:
   - speak
   - english
@@ -50,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Good morning in Japanese and other relevant greetings
@@ -72,7 +72,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
@@ -92,11 +92,11 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -122,7 +122,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Kyoto, Japan” by Andre Benz©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
 
@@ -139,10 +147,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -164,10 +168,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -201,22 +201,19 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-dodging-account-penaltinas-on-youtube/"><u>[Updated] 2024 Approved Dodging Account Penaltinas on Youtube</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-crafting-cozy-living-areas-with-daylight-for-2024/"><u>[Updated] Crafting Cozy Living Areas with Daylight for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-cutting-edge-retouch-erasing-unwanted-backdrops-in-photos/"><u>[Updated] In 2024, Cutting-Edge Retouch Erasing Unwanted Backdrops in Photos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-realms-intersecting-delving-into-vr-augmented-and-mixed-immersion-for-2024/"><u>[Updated] Realms Intersecting Delving Into VR, Augmented & Mixed Immersion for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-realme-12-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Realme 12 5G?</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/earning-a-livelihood-in-2009-with-craiglist-strategies-and-massmail-pro-tips/"><u>Earning a Livelihood in 2009 with Craiglist Strategies and MassMail Pro Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-multilingualism-with-these-7-afrikaans-advantages-from-mondly/"><u>Embrace Multilingualism with These 7 Afrikaans Advantages From Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-the-future-of-language-learning-with-mondlys-innovation/"><u>Embrace the Future of Language Learning with Mondly's Innovation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gorgian-glosses-deciphering-ancient-greeks-influence/"><u>Gorgian Glosses: Deciphering Ancient Greek's Influence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/greetings-around-the-globe-morning-salutations-in-10-languages/"><u>Greetings Around The Globe: Morning Salutations in 10 Languages</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-zte-blade-a73-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on ZTE Blade A73 5G</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oppo-reno-8t-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Oppo Reno 8T Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-a-new-tongue-for-just-044-today/"><u>Master a New Tongue for Just $0.44 Today!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-languages-easily-save-big-with-our-95-promo/"><u>Master Languages Easily, Save Big with Our 95% Promo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-top-online-and-cost-free-learning-tools/"><u>Mastering Japanese: Top Online & Cost-Free Learning Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigate-international-networks-easily/"><u>Navigate International Networks Easily</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/update-strategies-for-smooth-samsung-phone-connectivity-via-usb/"><u>Update Strategies for Smooth Samsung Phone Connectivity via USB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-video-success-on-facebook-platforms/"><u>[New] In 2024, Mastering Video Success on Facebook Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-safeguarding-snapshots-techniques-for-instagram-watermarks/"><u>[New] In 2024, Safeguarding Snapshots Techniques for Instagram Watermarks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-balancing-dimensions-the-ultimate-guide-to-social-media-video-sizes-on-fb/"><u>[Updated] 2024 Approved Balancing Dimensions The Ultimate Guide to Social Media Video Sizes on FB</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-innovative-no-cost-solutions-for-modern-photography-enhancements/"><u>[Updated] 2024 Approved Innovative No-Cost Solutions for Modern Photography Enhancements</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-box-it-up-the-top-10-online-houses-for-customized-gift-boxes/"><u>2024 Approved Box It Up! The Top 10 Online Houses for Customized Gift Boxes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/analyzing-the-strengths-and-weaknesses-of-pidgin-chat-software/"><u>Analyzing the Strengths & Weaknesses of Pidgin Chat Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-linguistics-a-starting-point-on-sound-structures/"><u>German Linguistics: A Starting Point on Sound Structures</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-vivo-y28-5g-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Vivo Y28 5G</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-prevent-washed-out-iphone-hd-videos-with-effective-premiere-pro-techniques/"><u>In 2024, Prevent Washed-Out iPhone HD Videos with Effective Premiere Pro Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-spanish-numbers-for-beginners/"><u>Learning Spanish Numbers for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/living-linguistically-essential-steps-for-seamless-language-integration/"><u>Living Linguistically: Essential Steps for Seamless Language Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-language-tests-elite-certification-and-study-blueprint/"><u>Navigating Language Tests: Elite Certification & Study Blueprint</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-401-unauthorized-access-issues-efficiently/"><u>Resolving 401 Unauthorized Access Issues Efficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/surprise-tuscanians-master-20-slang-words-and-phrases/"><u>Surprise Tuscanians: Master 20 Slang Words & Phrases</u></a></li>
 </ul></div>
 

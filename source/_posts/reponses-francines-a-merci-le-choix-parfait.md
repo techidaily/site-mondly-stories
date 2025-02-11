@@ -1,7 +1,7 @@
 ---
 title: "Réponses Francines À 'Merci': Le Choix Parfait"
-date: 2024-07-12T08:16:26.470Z
-updated: 2024-07-13T08:16:26.470Z
+date: 2025-02-09T02:41:14.090Z
+updated: 2025-02-11T03:22:56.238Z
 tags:
   - speak
   - english
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/c5954b26aae847d226df8714f23c02a4ef32990ac
  However, expressing your gratitude in French is a bit more nuanced than you may expect. This is due, in large part, to the varying degrees of formality in the [French language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . In fact, there are several ways to say you’re welcome in French. It all depends on the context, who you are talking to and how well you know that person.
 
  In this quick French lesson, we’ll take you through the four most popular examples – the only ones you actually need in real life. As a result, you’ll be familiar with what they mean, when to use them and what the key differences between them actually are.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. The most common “you’re welcome”:_de rien_
 
@@ -47,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/c5954b26aae847d226df8714f23c02a4ef32990ac
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
  “Strasbourg, France” by Patrick Robert Doyle©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
@@ -88,9 +96,17 @@ thumbnail: https://thmb.techidaily.com/c5954b26aae847d226df8714f23c02a4ef32990ac
 
  “Southern France, Toulouse” by DAT VO©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘pas de problème’_
 
@@ -135,6 +151,10 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -151,8 +171,6 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -160,6 +178,21 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-clearing-up-tips-for-preventing-gopro-haze/"><u>[New] Clearing Up Tips for Preventing GoPro Haze</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tripping-up-avoid-common-tripod-mistakes-in-vlogging/"><u>[New] In 2024, Tripping Up? Avoid Common Tripod Mistakes in Vlogging</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-playlist-perfection-updated-devices-for-2024/"><u>[New] Playlist Perfection Updated Devices for 2024</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/6ieq5yqp5lplusu5b6p6luk6lyb55uj5o6n6kiy6yye5yiq6zmk5lql5lu277ya6auy5pwi5zue5b6p5pa55rov5oyh5y2x/"><u>自助修復車輛監控記錄刪除事件：高效回復方法指南</u></a></li>
+<li><a href="https://some-tips.techidaily.com/celebrating-a-milestone-kubernetes-at-10-years-old-and-its-role-in-shaping-a-decade-of-cloud-native-technology-techzdnet/"><u>Celebrating a Milestone: Kubernetes at 10 Years Old & Its Role in Shaping a Decade of Cloud Native Technology | TechZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conhecer-gritos-de-ola-em-portugues-guia-completo/"><u>Conhecer Gritos De Olá Em Português - Guia Completo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-communal-connections-top-10-italian-friendly-phrases/"><u>Conquer Communal Connections: Top 10 Italian Friendly Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-the-atlantic-of-words/"><u>Crossing the Atlantic of Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dissecting-the-majority-of-worldwide-french-conversationalists/"><u>Dissecting the Majority of Worldwide French Conversationalists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-entertainment-with-latin-flair/"><u>Educational Entertainment with Latin Flair</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-restoring-visibility-of-mouse-cursor-on-windows-11-systems/"><u>Guide: Restoring Visibility of Mouse Cursor on Windows 11 Systems</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-device-manager-to-reinstall-hardware-drivers-on-windows-7-by-drivereasy-guide/"><u>How to use Device Manager to reinstall hardware drivers on Windows 7</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-selection-of-free-ip-camera-software-find-your-perfect-match/"><u>Ultimate Selection of Free IP Camera Software - Find Your Perfect Match</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/visionary-designs-for-future-mojave-dwellings/"><u>Visionary Designs for Future Mojave Dwellings</u></a></li>
+</ul></div>
 

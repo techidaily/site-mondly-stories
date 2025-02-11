@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2025-01-22T22:47:40.545Z
-updated: 2025-01-29T19:57:55.505Z
+date: 2025-02-09T21:54:28.031Z
+updated: 2025-02-10T16:56:58.317Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,14 +102,17 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-understanding-what-makes-a-comment-noteworthy-on-youtube/"><u>[New] Understanding What Makes a Comment Noteworthy on YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/como-decir-dias-del-mes-en-espanol/"><u>Cómo Decir 'Días Del Mes' En Español</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-apple-iphone-12-mini-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About Apple iPhone 12 mini Activation Lock</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-polska-accelerated-learning/"><u>Mastering Polska: Accelerated Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mixed-language-acquisition-method/"><u>Mixed-Language Acquisition Method</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/premium-kostenloses-software-zur-schutz-und-wiederherstellung-der-windows-sicherheit-freeware-fuhrende-losungen-zum-schutzen-and-wiederherstellen-in-windows37/"><u>Premium Kostenloses Software Zur Schutz Und Wiederherstellung Der Windows #Sicherheit: Freeware Führende Lösungen Zum Schützen & Wiederherstellen in Windows 7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/proficiency-in-global-communication-german-or-french/"><u>Proficiency in Global Communication: German Or French?</u></a></li>
-<li><a href="https://win-news.techidaily.com/techniques-pour-securiser-votre-cle-usb-contre-les-virus-guide-pratique/"><u>Techniques Pour Sécuriser Votre Clé USB Contre Les Virus - Guide Pratique</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unraveling-style-and-smart-choices-the-definitive-guide-to-the-michael-kors-access-gen-5e/"><u>Unraveling Style and Smart Choices: The Definitive Guide to the Michael Kors Access Gen 5E</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/et-content-ready-faster-with-this-list-of-easy-editors-for-2024/"><u>[New] Get Content Ready Faster With This List of Easy Editors for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-deceptions-toll-consequences-of-fake-supporters-in-video-markets/"><u>[Updated] 2024 Approved Deception's Toll Consequences of Fake Supporters in Video Markets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-leading-8-linux-tools-for-seamless-editing/"><u>[Updated] Leading 8 Linux Tools for Seamless Editing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-standout-6-sites-connecting-corporate-leaders-for-2024/"><u>[Updated] Standout 6 Sites Connecting Corporate Leaders for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-expressions-a-compre-written-guide-for-efficient-communication-in-croatia/"><u>Essential Croatian Expressions – A Compre Written Guide for Efficient Communication in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-access-to-mondlys-best-with-zero-price/"><u>Eternal Access to Mondly's Best with Zero Price!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-language-exploration-intelligence-gain/"><u>Foreign Language Exploration, Intelligence Gain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fluency-boosted-by-27-timeless-expressions/"><u>French Fluency Boosted by 27 Timeless Expressions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-free-up-iphone-13-mini-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up iPhone 13 mini Space | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-the-pros-pathway-to-purging-percussion-from-digital-melodies/"><u>In 2024, The Pros Pathway to Purging Percussion From Digital Melodies</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-the-google-bard-app-safe-exposing-potential-malware-risks-to-users/"><u>Is the Google Bard App Safe? Exposing Potential Malware Risks to Users</u></a></li>
 </ul></div>
 

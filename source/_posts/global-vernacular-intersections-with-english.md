@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Intersections with English
-date: 2025-01-26T05:05:01.132Z
-updated: 2025-01-30T04:58:46.724Z
+date: 2025-02-06T01:30:22.411Z
+updated: 2025-02-10T20:53:15.719Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where did English Come From?
@@ -78,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
@@ -90,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Improve your English fast 🚀
@@ -98,7 +98,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -128,10 +128,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Gourmet      |
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
 
@@ -182,6 +178,10 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Balcony   |
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
 
@@ -265,19 +265,20 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/100plus-english-words-borrowed-from-other-languages/"><u>100+ English Words Borrowed From Other Languages</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-breakthrough-techniques-for-outstanding-youtube-openers-technique-1plus2/"><u>2024 Approved Breakthrough Techniques for Outstanding YouTube Openers (Technique 1+2)</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/boost-your-computer-speed-with-expert-cleanup-techniques-unlock-performance-secrets-at-yl-software/"><u>Boost Your Computer Speed with Expert Cleanup Techniques – Unlock Performance Secrets at YL Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-lingo-top-50-latin-sayings-for-impact/"><u>Elevate Your Lingo - Top 50 Latin Sayings for Impact</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exploring-advanced-gadgets-with-toms-electronic-insights/"><u>Exploring Advanced Gadgets with Tom's Electronic Insights</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-15-plus-storage-not-loadingshowing-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone 15 Plus Storage Not Loading/Showing | Stellar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/overcoming-age-barriers-in-multilingualism/"><u>Overcoming Age Barriers in Multilingualism</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/preeminent-80s-effects-for-video-artistry/"><u>Preeminent 80S Effects for Video Artistry</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/recovering-unavailable-pin-after-software-crash-on-windows-11/"><u>Recovering Unavailable PIN After Software Crash on Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rethinking-the-role-of-grammar-in-language-acquisition/"><u>Rethinking the Role of Grammar in Language Acquisition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-the-fastest-cable-modems-in-2n-plus-n-overflow-determining-efficiency/"><u>The Ultimate Guide to Choosing the Fastest Cable Modems in 2^N + N Overflow: Determining Efficiency</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/unleash-the-genius-ranked-top-8-film-watching-apps-iphone-edition-for-2024/"><u>Unleash the Genius Ranked Top 8 Film-Watching Apps iPhone Edition for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-opportunities-with-croatian-top-7-motivations/"><u>Unlocking Opportunities with Croatian: Top 7 Motivations!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-essential-croatian-phrases-youll-need-before-traveling-to-croatia/"><u>100+ Essential Croatian Phrases You'll Need Before Traveling To Croatia</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-best-asmr-microphones/"><u>2024 Approved Best ASMR Microphones</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-summit-creation-pro-x-evaluation/"><u>2024 Approved Summit Creation Pro X Evaluation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-underrated-advantages-to-speaking-multiple-languages/"><u>6 Underrated Advantages to Speaking Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amplify-sales-and-success-with-top-tier-talk-skills/"><u>Amplify Sales & Success with Top-Tier Talk Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-language-evolution-por-que-to-por-que/"><u>Decoding Language Evolution: Por Que to Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/drive-growth-with-strategic-communication-capability-building/"><u>Drive Growth with Strategic Communication Capability Building</u></a></li>
+<li><a href="https://extra-information.techidaily.com/from-basic-to-brilliant-top-10-pixlr-techniques/"><u>From Basic to Brilliant Top 10 Pixlr Techniques</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/gtx-950-code-43-error-on-windows-10-solved/"><u>GTX 950 Code 43 Error on Windows 10 [Solved]</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-iphone-transfer-transfer-contact-from-apple-iphone-13-pro-max-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, iPhone Transfer Transfer Contact from Apple iPhone 13 Pro Max to iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-quick-skill-enhancing-images-in-windows-11/"><u>In 2024, Quick Skill Enhancing Images in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577740237-mondlys-ar-innovation-the-ultimate-vr-language-app/"><u>Mondly's AR Innovation - The Ultimate VR Language App!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/seamlessly-embedded-your-tiktok-bios-direct-link-method/"><u>Seamlessly Embedded Your TikTok Bio's Direct Link Method</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-top-10-photography-frame-tools-for-2024/"><u>Ultimate Guide Top 10 Photography Frame Tools for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Motorola Moto G23? | Dr.fone</u></a></li>
 </ul></div>
 

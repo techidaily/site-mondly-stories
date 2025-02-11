@@ -1,7 +1,7 @@
 ---
 title: "Introduction to Indonesian Warmth: Essential Phrases"
-date: 2024-07-12T08:14:23.531Z
-updated: 2024-07-13T08:14:23.531Z
+date: 2025-02-10T03:23:10.245Z
+updated: 2025-02-11T03:17:37.547Z
 tags:
   - speak
   - english
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -40,11 +44,19 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -58,11 +70,19 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -97,8 +117,6 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,6 +124,26 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-the-art-of-mac-mixer-synchronization/"><u>[New] The Art of Mac-Mixer Synchronization</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-top-11-add-ons-for-the-dji-phantom-4-masterclass-for-2024/"><u>[New] Top 11 Add-Ons for the DJI Phantom 4 Masterclass for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-years-forward-with-mondlys-direction/"><u>10 Years Forward with Mondly’s Direction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amp-up-mastering-japanese-digits-with-minutes/"><u>Amp Up: Mastering Japanese Digits with Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendiendo-la-linea-del-tiempo-en-espanol-de-martes-al-domingo/"><u>Aprendiendo La Línea Del Tiempo en Español De Martes Al Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-bridge-into-the-arab-world/"><u>Beginner's Bridge Into the Arab World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-begins-here-daily-tiny-sessions/"><u>Bengali Begins Here: Daily Tiny Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-english-vs-american-english-differences-spelling-pronunciation-and-more/"><u>British English vs American English Differences: Spelling, Pronunciation and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-pathways-to-master-a-foreign-language-today/"><u>Digital Pathways to Master a Foreign Language Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiently-mastering-latvian-one-day-at-a-time/"><u>Efficiently Mastering Latvian, One Day at a Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-commerce-through-powerful-language-programs/"><u>Elevate Commerce Through Powerful Language Programs</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/farewell-to-frustration-hitman-3s-previous-pc-launch-issues-now-defeated/"><u>Farewell to Frustration: Hitman 3'S Previous PC Launch Issues Now Defeated!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-f04-bootloader-easily-by-drfone-android/"><u>How to Unlock Samsung Galaxy F04 Bootloader Easily</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-insight-into-top-10-youtube-mp3-downloader-apps/"><u>In 2024, Insight Into Top 10 YouTube MP3 Downloader Apps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-precision-and-professionalism-a-vr-recording-handbook/"><u>In 2024, Precision and Professionalism A VR Recording Handbook</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/in-search-for-integrity-how-to-filter-out-fake-windows-apps/"><u>In Search for Integrity: How to Filter Out Fake Windows Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/prime-mobile-hd-video-playback-androids-top-picks/"><u>Prime Mobile HD Video Playback Android's Top Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlining-script-conversion-from-text-formats-to-engaging-srt/"><u>Streamlining Script Conversion From Text Formats to Engaging SRT</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Exploring Persian Heritage: A Language's Tale"
-date: 2024-07-12T08:16:55.941Z
-updated: 2024-07-13T08:16:55.941Z
+date: 2025-02-08T17:10:09.669Z
+updated: 2025-02-10T21:52:08.518Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
 
  Here’s a quick guide to all the basics you need to know about Persian before deciding whether you want to learn Persian or not.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is Persian a language?
 
  **Yes, Persian is very much a language. Known to its native speakers as Farsi, Persian is the official language of modern-day Iran.** Additionally, two varieties of Persian known as Dari and Tajik are the official languages of parts of Afghanistan and the central Asian republic of Tajikistan. Having over 70 million native speakers, Persian is one of the most important members of the Indo-Iranian branch of the [Indo-European family of languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -36,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -47,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Persian influence on other languages
 
@@ -64,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
  Considering their shared history presented above, Persian and Arabic developed to become somehow similar, but not as similar as many think.
@@ -75,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
  Here are two videos of numbers from 1 to 10 in Persian and in Arabic so you can see the difference:
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
 
@@ -118,8 +138,6 @@ Other benefits of learning Persian include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -127,6 +145,22 @@ Other benefits of learning Persian include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-unveiling-6-premium-background-erasers-for-photo-professionals/"><u>[New] Unveiling 6 Premium Background Erasers for Photo Professionals</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ignite-curiosity-with-a-personal-touch-anime-subscribe-buttons-for-filmmakers-filmora/"><u>[Updated] In 2024, Ignite Curiosity with a Personal Touch - Anime Subscribe Buttons for Filmmakers (Filmora)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prime-choice-devices-turn-pics-to-films/"><u>2024 Approved Prime Choice Devices Turn Pics to Films</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tale-of-two-iberian-tongues-spanish-vs-portuguese/"><u>A Tale of Two Iberian Tongues: Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-video-doorbell-guide-iseebell-model-assessment-and-reviews-under-50/"><u>Affordable Video Doorbell Guide: ISeeBell Model Assessment & Reviews Under $50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-pro-in-finnish-through-advanced-online-methods/"><u>Become a Pro in Finnish Through Advanced Online Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-chorus-saying-good-morning-in-10-different-vernaculars/"><u>Dawn Chorus: Saying Good Morning in 10 Different Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-gratitude-in-mandarin-a-beginners-guide/"><u>Expressing Gratitude in Mandarin: A Beginner's Guide</u></a></li>
+<li><a href="https://fox-search.techidaily.com/how-can-we-optimize-our-ebook-for-flawless-display-and-functionality-on-an-ipad-learn-with-flipbuildercom/"><u>How Can We Optimize Our eBook for Flawless Display and Functionality on an iPad? [Learn with FlipBuilder.com]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lost-in-translation-por-que-and-por-que-explained/"><u>Lost in Translation? Por Que and Por Qué Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-deal-save-96-on-mondly-pro-indefinitely/"><u>New Year's Deal! Save 96% on Mondly Pro Indefinitely!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-amazing-lightness-of-power-exploring-the-mighty-lg-gram-156-inch-2018-in-depth/"><u>The Amazing Lightness of Power - Exploring the Mighty LG Gram 15.6-Inch (2018) in Depth</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-inconsistent-inputs-xbox-mic-and-windows-11/"><u>Troubleshooting Inconsistent Inputs: Xbox Mic & Windows 11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Oppo A18? | Dr.fone</u></a></li>
+</ul></div>
 

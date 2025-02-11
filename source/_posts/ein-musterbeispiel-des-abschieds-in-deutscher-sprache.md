@@ -1,7 +1,7 @@
 ---
 title: Ein Musterbeispiel Des Abschieds in Deutscher Sprache
-date: 2024-07-12T08:16:02.468Z
-updated: 2024-07-13T08:16:02.468Z
+date: 2025-02-04T18:07:08.799Z
+updated: 2025-02-11T03:22:44.378Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/655813b140cebedb2250090e80755301611474980
 
  Here are 15 different ways to say goodbye in German – from the well-known_Auf Wiedersehen_ to different variations of “see you later”. They will all come in handy sooner or later if you want to [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and speak it like a native.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Auf Wiedersehen – ‘Goodbye’ in German
 
 **_Auf Wiedersehen_ is the most popular way to say goodbye in German.** It’s standard and neutral, so it can be used safely in all formal social contexts or whenever you feel you shouldn’t use a casual goodbye.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/655813b140cebedb2250090e80755301611474980
  Contrary to popular belief, Germans really like cute words, so they’ll also say_Tschüss Tschüss_ , which means “bye bye” or_Tschüssi_ , which is literally a “little goodbye”.
 
  Press play to hear_Tschüss_ in action in a basic conversation in German:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Schönen Tag (noch) – ‘Have a good day’
 
@@ -70,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/655813b140cebedb2250090e80755301611474980
 
  If you want to say “see you tomorrow”, you guessed it! You will say_Bis morgen_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. Bis Montag – ‘Until Monday’
 
  Also not uncommon is the usage of_bis_ in combination with the [days of the week in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -81,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/655813b140cebedb2250090e80755301611474980
 * _Bis Freitag_ – “Until Friday”
 * _Bis Samstag_ – “Until Saturday”
 * _Bis Sonntag_ – “Until Sunday”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## basic german words
 
@@ -102,9 +118,17 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
 
  Supposing that the other person is going to a party or a similar activity, you can say_Viel Spaß_ , which means “enjoy” or “have fun”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 14\. Mach’s gut – ‘Take care’
 
  For more caring natures,_Mach’s gut_ is the perfect way to end a conversation. It is, of course, an informal way to say goodbye and it’s reserved for people with whom we have a special relationship.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 15\. Lebewohl – ‘Farewell’
 
@@ -139,8 +163,6 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -148,6 +170,17 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-creative-control-preparing-tiktoks-for-legal-upload/"><u>[Updated] In 2024, Creative Control Preparing TikToks for Legal Upload</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-world-within-reach-mondly-languages-two-year-dream-quest/"><u>A World Within Reach: Mondly Languages, Two-Year Dream Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-fourth-decade-motivating-reasons-for-pursuing-new-linguistic-skills-post-forty/"><u>Beyond the Fourth Decade: Motivating Reasons for Pursuing New Linguistic Skills Post-Forty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-africas-multilingual-dna/"><u>Decoding Africa's Multilingual DNA</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/fitness-blueprint-structuring-goals-with-gpt-expertise/"><u>Fitness Blueprint: Structuring Goals with GPT Expertise</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-on-diy-fixes-for-xbox-controller-woes/"><u>Game On: DIY Fixes for Xbox Controller Woes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-gionee-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Gionee Through Google Earth?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577245493-the-fastest-way-to-learn-korean-at-home-choose-wisely/"><u>The Fastest Way to Learn Korean at Home – Choose Wisely</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/the-indispensable-dj-talent-learning-how-to-beat-mix-like-a-pro-using-pcdj-software/"><u>The Indispensable DJ Talent: Learning How to Beat Mix Like a Pro Using PCDJ Software</u></a></li>
+</ul></div>
 

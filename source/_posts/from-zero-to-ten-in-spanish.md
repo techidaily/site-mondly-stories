@@ -1,7 +1,7 @@
 ---
 title: From Zero To Ten in Spanish
-date: 2024-07-12T08:14:19.259Z
-updated: 2024-07-13T08:14:19.259Z
+date: 2025-02-05T17:00:39.688Z
+updated: 2025-02-10T23:58:34.144Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish numbers 1 to 30
 
  One of my Danish friends discovered how important Spanish numbers actually are when he needed to tell someone [the time in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and had no idea that “five” is_cinco_ in Spanish. So this is a great piece of advice: don’t move to Barcelona without knowing one of the most basic [Spanish lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) first. Especially when it takes just 10 minutes to master it.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -70,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -98,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 * 79 –_setenta y nueve_
 * 84 –_ochenta y cuatro_
 * 98 –_noventa y ocho_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish numbers to 1000 and beyond
 
@@ -135,6 +151,10 @@ Here are some more examples:
 * 999 – _novecientos noventa y nueve_
 
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Barcelona, Spain
 
@@ -176,8 +196,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -185,6 +203,19 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-breaking-the-mold-unique-anime-creatives-dominating-tiktok/"><u>[New] Breaking the Mold Unique Anime Creatives Dominating TikTok</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-upgrade-your-video-playback-activating-av1-on-youtube/"><u>[New] In 2024, Upgrade Your Video Playback Activating AV1 on YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725288180184-dvd/"><u>「無料で簡単に！ DVD コピー保護システムを解除する究極のガイド」</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-fifties/"><u>4 Reasons Why You Should Learn A Language In Your Fifties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-pirates-guide-to-thrashin-tongues/"><u>A Pirate's Guide to Thrashin' Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anatomie-fundamentale-composants-du-corps-en-francais/"><u>Anatomie Fundamentale : Composants Du Corps en Français</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/coalescing-iphone-media-with-ease-for-2024/"><u>Coalescing iPhone Media with Ease for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-of-the-bulbarian-10m-daily-study/"><u>Dawn of the Bulbarian: 10M Daily Study</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-latest-nvidia-quadro-graphics-driver-update-on-windows-10-official-source/"><u>Get Latest Nvidia Quadro Graphics Driver Update on Windows 10, Official Source</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-updates-for-your-razer-naga-gaming-mouse-on-windows-pcs/"><u>Get the Latest Updates for Your Razer Naga Gaming Mouse on Windows PCs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/seo-secrets-unveiled-a-comprehensive-guide-to-boosting-podcast-rankings/"><u>SEO Secrets Unveiled A Comprehensive Guide to Boosting Podcast Rankings</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-motorola-moto-g73-5g-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Motorola Moto G73 5G</u></a></li>
+</ul></div>
 

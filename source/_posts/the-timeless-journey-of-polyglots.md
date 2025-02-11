@@ -1,7 +1,7 @@
 ---
 title: The Timeless Journey of Polyglots
-date: 2024-07-12T08:15:40.635Z
-updated: 2024-07-13T08:15:40.635Z
+date: 2025-02-04T18:51:10.355Z
+updated: 2025-02-10T17:04:11.790Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
 
  If you plan to learn a foreign language, you might think it’s going to be really challenging. You’ve probably heard a lot of talk about how it’s easier to learn languages as a young child, and that learning as an adult can be difficult. You might even know friends or family members who have tried to learn a foreign tongue and failed. If you’re feeling discouraged, don’t be. We’re here to cheer you up with some good news and inspire you to get started.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **The amazing adult brain: why you can learn languages at any age**
 
  Scientists are always learning about the human brain, and sometimes, it takes a while for the collective consciousness to catch up to the latest data. For example, decades ago, experts believed that the brain developed during childhood and then remained that way for life. However, modern studies have since shown us that the brain has the ability to continually form new neural connections throughout adulthood. A 2010 [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) study tested two groups of people, one in the range of age 21 through 30 and another between 65 and 80\. Remarkably, they found no significant differences in neuroplasticity. In other words, this suggests that it’s possible for you to learn new things at any age.
@@ -25,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
  On top of it being possible to learn languages, research also suggests that it improves the adult brain in general. In a 2012 Chinese study, experts looked at a group of adults who were learning Mandarin over a nine-month period. They found that these adults demonstrated improved integrity in their white matter, the part of the brain that allows neural cells to communicate. The better your neural cells communicate, the easier it will be for you to learn new things.
 
 ![hands walking stick elderly old person min scaled](https://edge.mondly.com/blog/wp-content/uploads/2017/06/hands-walking-stick-elderly-old-person-min-scaled.jpg "Why It’s Never Too Late To Learn A Foreign Language 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Learn a foreign language with ease: why adults may have an easier time learning**
 
@@ -34,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
 
  There is also what is perhaps the simplest concept of all: the fact that you’ve been practicing conversing in your own native language for decades now. Many people have the mentality that the more you practice one language, the harder it will be to learn another. This is simply untrue. The years you’ve spent using and observing your native language have actually provided a wonderful base knowledge to help you learn a language you’re currently unfamiliar with. This is especially true if your native language is English, which features words that are derived from a variety of other languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Free language learning: how Mondly can help you become bilingual**
 
  Not every free language learning app is the same. At Mondly, we understand that your adult brain is unique, just like every other brain on the planet. That’s why we included adaptive learning features designed to help you thrive no matter where you are in the learning process. Our app adapts as you use it to ensure you learn at your own pace. If you’re a naturally quick learner you will make fast progress as you absorb tens of new word and phrases every day.
@@ -42,10 +54,18 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
 
 ![Mondly - Learn foreign languages free online](https://edge.mondly.com/blog/wp-content/uploads/2016/04/Mondly-Learn-languages-free-online-Main-Screen1.png "Why It’s Never Too Late To Learn A Foreign Language 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fnever-late-to-learn-a-foreign-language%2F&t=Why+It%E2%80%99s+Never+Too+Late+to+Learn+a+Foreign+Language "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Learn languages at any age. With Mondly**
 
@@ -59,8 +79,6 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -68,6 +86,24 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-connecting-live-streamers-easily-share-from-twitch-to-fb/"><u>[New] 2024 Approved Connecting Live Streamers Easily Share From Twitch to FB</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-best-budget-friendly-video-stock-sites/"><u>[New] In 2024, Best Budget-Friendly Video Stock Sites</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-12th-circle-of-conversation-personalizing-whatsapp-bios-by-signs/"><u>[New] The 12Th Circle of Conversation - Personalizing WhatsApp Bios by Signs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pro-tips-for-iphone-burst-photo-sequences-for-2024/"><u>[Updated] Pro Tips for iPhone Burst Photo Sequences for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581151239-celebrating-a-decade-of-mondly/"><u>Celebrating A Decade of Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/complete-set-of-iberian-language-realms/"><u>Complete Set of Iberian Language Realms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-charm-the-ultimate-list-of-flirting-favorites/"><u>Conversational Charm: The Ultimate List of Flirting Favorites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-german-manners-with-these-16-best-phrases-to-thank/"><u>Cultivate German Manners with These 16 Best Phrases to Thank</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dias-del-mes-aprende-al-domingo-en-espanol/"><u>Días Del Mes: Aprende Al Domingo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-best-cross-cultural-film-experiences/"><u>Discover the Best Cross-Cultural Film Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-croatia-7-advantages-in-learning-its-language/"><u>Embrace Croatia: 7 Advantages in Learning Its Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-world-cultures-with-an-easy-affordable-language-course/"><u>Embrace World Cultures with an Easy, Affordable Language Course</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-the-too-many-different-cell-formats-error-in-excel-2019-stellar-by-stellar-guide/"><u>Fix the Too many different cell formats Error in Excel 2019? | Stellar</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-maximize-traffic-with-these-must-use-freefire-tags-for-videos/"><u>In 2024, Maximize Traffic with These Must-Use FreeFire Tags for Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/microsoft-browser-blues-overcome-site-blockades-with-these-tips/"><u>Microsoft Browser Blues? Overcome Site Blockades with These Tips</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-playstation-perso-4-golden-system-malfunctions-successfully/"><u>Overcoming Playstation Perso 4 Golden System Malfunctions Successfully</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-8-photo-montage-synthesizer-online-for-2024/"><u>Ultimate 8 Photo Montage Synthesizer Online for 2024</u></a></li>
+</ul></div>
 

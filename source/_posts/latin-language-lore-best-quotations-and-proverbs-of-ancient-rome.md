@@ -1,7 +1,7 @@
 ---
 title: "Latin Language Lore: Best Quotations & Proverbs of Ancient Rome"
-date: 2025-01-28T23:13:10.850Z
-updated: 2025-01-30T01:06:07.402Z
+date: 2025-02-04T02:40:58.718Z
+updated: 2025-02-10T17:09:39.603Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 These are nearly as famous as Julius Caesar himself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Veni, vidi, vici. —** _I came, I saw, I conquered._
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
@@ -29,10 +33,6 @@ These are nearly as famous as Julius Caesar himself.
 ### **Alea iacta est. —** _The die has been cast._
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Carpe diem. —** _Seize the day._
 
@@ -45,12 +45,16 @@ These are nearly as famous as Julius Caesar himself.
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Et tu, Brute? —** _“And you, Brutus?”_
 
@@ -58,16 +62,12 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Carthago delenda est. —** _Carthage must be destroyed._
@@ -75,10 +75,6 @@ These are nearly as famous as Julius Caesar himself.
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Using some Latin phrases here and there will automatically make you look smarter.
 
@@ -274,10 +270,14 @@ Different phrase, same story. You’re welcome.
 
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Roman statue” by engin akyurt©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Latin Words and Phrases for Love
@@ -312,10 +312,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Why are Latin words used in law?
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
@@ -330,6 +326,10 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Speak Latin like Julius Caesar
 
@@ -356,24 +356,21 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-2024-approved-cancel-discord-server-pcmobile-methods/"><u>[New] 2024 Approved Cancel Discord Server PC/Mobile Methods</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-discover-the-leading-cover-photo-makers-for-facebook-profiles/"><u>[New] 2024 Approved Discover the Leading Cover Photo Makers for Facebook Profiles</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-master-looped-video-techniques-for-instagram-top-4-strategies/"><u>[New] In 2024, Master Looped Video Techniques for Instagram Top 4 Strategies</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-dark-sky-iphone-tips-and-tricks/"><u>[Updated] Dark Sky iPhone Tips & Tricks</u></a></li>
-<li><a href="https://fox-within.techidaily.com/aktive-losungen-windows-11-backups-wieder-aktivieren-problemlosung-fur-deaktiviert-fehlermeldung/"><u>Aktive Lösungen: Windows 11-Backups Wieder Aktivieren - Problemlösung Für 'Deaktiviert'-Fehlermeldung</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-down-barriers-with-words-of-affection/"><u>Breaking Down Barriers with Words of Affection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/early-forms-a-look-at-old-dutchs-origin/"><u>Early Forms: A Look at Old Dutch's Origin</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enthusiastic-educational-approaches-to-latin/"><u>Enthusiastic Educational Approaches to Latin</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/flickerframe-repository-review/"><u>FlickerFrame Repository Review</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-xiaomi-redmi-note-12-pro-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Xiaomi Redmi Note 12 Pro 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-german-a-pinnacle-of-online-language-education/"><u>Mondly & German: A Pinnacle of Online Language Education</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/movavis-complimentary-web-based-tool-for-mp3-to-flac-transformation-high-quality-hassle-free-upgrades/"><u>Movavi's Complimentary Web-Based Tool for MP3 to FLAC Transformation: High-Quality, Hassle-Free Upgrades!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-selecting-the-best-6-websites-for-korean-learning/"><u>Speak With Confidence: Selecting the Best 6 Websites for Korean Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/stellar-scripts-a-study-of-dialogue-in-star-wars-narratives/"><u>Stellar Scripts: A Study of Dialogue in Star Wars Narratives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-language-labyrinths-exploring-the-dialects-in-star-wars-world/"><u>The Language Labyrinths: Exploring the Dialects in Star Wars World</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-unseen-language-threads-between-anatolia-and-hanguk/"><u>The Unseen Language Threads Between Anatolia & Hanguk</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/transformez-vos-videos-mp4-en-version-webm-sans-frais-via-le-convertisseur-en-ligne-de-movavi/"><u>Transformez Vos Vidéos MP4 en Version WebM Sans Frais via Le Convertisseur en Ligne De Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unraveling-everyday-vernacular-a-guide-to-prevalent-colloquialisms-and-definitions/"><u>Unraveling Everyday Vernacular: A Guide to Prevalent Colloquialisms & Definitions</u></a></li>
-<li><a href="https://win-info.techidaily.com/yl-softwares-easy-method-for-updating-your-default-internet-browser-settings/"><u>YL Software's Easy Method for Updating Your Default Internet Browser Settings</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-x-recorder-download-for-pc/"><u>[New] 2024 Approved X-Recorder Download for PC</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-surpass-your-competition-effective-youtube-seo-tips-for-2024/"><u>[Updated] Surpass Your Competition Effective YouTube SEO Tips for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/cross-platform-usbethernet-adapter-setup-manual/"><u>Cross-Platform USB/Ethernet Adapter Setup Manual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-global-patterns-in-french-speaking-populations/"><u>Deciphering Global Patterns in French-Speaking Populations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tifying-the-world-of-youtube-shorts/"><u>Demystifying the World of YouTube Shorts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/distinctions-in-british-and-american-dialects/"><u>Distinctions in British and American Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diversity-in-dialogue-macaus-three-major-tongues/"><u>Diversity in Dialogue: Macau’s Three Major Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-a-new-language-expedition/"><u>Embark on a New Language Expedition!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580251708-embrace-hindi-learning-mondly-unveils-top-8-reasons-online/"><u>Embrace Hindi Learning: Mondly Unveils Top 8 Reasons Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580825709-enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580367068-enhancing-your-life-in-hindi-mondly-highlights-8-key-benefits/"><u>Enhancing Your Life in Hindi: Mondly Highlights 8 Key Benefits!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-google-pixel-8-pro-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Google Pixel 8 Pro</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-unstable-visual-glitches-in-your-windows-10-device/"><u>Overcoming Unstable Visual Glitches in Your Windows 10 Device</u></a></li>
+<li><a href="https://win-info.techidaily.com/problembehandlung-und-workaround-tipps-fur-windows-11-die-installation-verhindert-wird/"><u>Problembehandlung Und Workaround-Tipps Für Windows 11, Die Installation Verhindert Wird</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-key-to-crisp-clear-cinematography/"><u>The Key to Crisp, Clear Cinematography</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unified-media-exchange-android-ios/"><u>Unified Media Exchange Android-iOS</u></a></li>
 </ul></div>
 

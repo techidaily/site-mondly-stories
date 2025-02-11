@@ -1,7 +1,7 @@
 ---
 title: "The New Lexicon: Revolutionizing How We Learn Language"
-date: 2024-07-12T08:17:28.490Z
-updated: 2024-07-13T08:17:28.490Z
+date: 2025-02-08T23:15:39.144Z
+updated: 2025-02-10T21:15:01.229Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d01f6c0274e2880e91afbb32b22a67b6646c0f35e
  Language defines us. Being able to speak foreign languages is the first step to upgrading your brain, adding social skills and broadening your horizons. Exchanging information with a stranger in a different language can be a very fulfilling experience. It’s as if you would get to step into a whole different world.
 
  In terms of numbers, learning foreign languages has become a widespread activity for the majority of people, with English holding the number one spot in foreign languages learned in the EU followed by [French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and [German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  . This is a trend that is likely to continue for years to come. It is evolving, changing, faster than we as humans are. Whether it’s self-study books, regular classes or mobile apps, learning a new language is a trend without an expiration date. But what does the future hold for language learning?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Learning languages in the past**
 
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/d01f6c0274e2880e91afbb32b22a67b6646c0f35e
 
 ![Language learning with Mondly VR, nominated for Best Education Startup of 2017 at The Europas](https://edge.mondly.com/blog/wp-content/uploads/2017/05/Mondly-VR-Learn-languages-free-online-Feature-Graphic.png "The Best Way To Learn A Foreign Language In The 21St Century 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The movie Matrix opened the gates to a world where you just plug your brain into a computer and immediately acquire a new language or skill. Elon Musk is one of the most-talked-about names in tech nowadays! What does he have in common with learning languages? Well, he’s developing devices that can be implanted into the human brain, and their end purpose would be to help humans “ [merge with software and keep pace with advancements in artificial intelligence](https://www.theverge.com/2017/3/27/15077864/elon-musk-neuralink-brain-computer-interface-ai-cyborgs)  ”. This could open doors for developers to bring lessons straight into your brain! Take a second to let that sink in – at the click of a button, a language would be merged with your brain! (Matrix, anyone?)
 
 ## 10 best ways to learn a language
@@ -66,11 +74,23 @@ thumbnail: https://thmb.techidaily.com/d01f6c0274e2880e91afbb32b22a67b6646c0f35e
 
 ![young people socializing](https://edge.mondly.com/blog/wp-content/uploads/2017/05/young-people-socializing-960x640.jpg "The Best Way To Learn A Foreign Language In The 21St Century 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Socializing is crucial.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Socialize
 
  One of the best ways to learn something new is to expose yourself through practice. When learning a new language, developing the speaking skills is crucial, so try to socialize with people who speak the language at a proficiency level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Allow yourself to make mistakes
 
@@ -83,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/d01f6c0274e2880e91afbb32b22a67b6646c0f35e
 ### 6\. Notice specific patterns
 
  When you learn on your own, you need to be aware of the way you do things, what you need to improve and how. Noticing patterns will help you remember grammar rules and also notice them when you do speaking and listening exercises.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Have fun
 
@@ -97,6 +121,10 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
  Learn anytime, anywhere.
 
 [Start with Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  and discover how you can learn a language fluently with little effort.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. Choose books you already read
 
@@ -129,8 +157,6 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -138,6 +164,17 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-preventing-frame-skips-in-live-obs-broadcasts/"><u>[New] 2024 Approved Preventing Frame Skips in Live OBS Broadcasts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-beginners-guide-to-video-production-free-course-series/"><u>[Updated] Beginner's Guide to Video Production Free Course Series</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-french-travel-phrases-youll-need-in-your-next-trip-to-france/"><u>100+ French Travel Phrases You'll Need In Your Next Trip To France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tale-of-triumph-mondlylanguages-2-year-dream-journey/"><u>A Tale of Triumph: MondlyLanguages, 2 Year Dream Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amores-orchestra-harmonious-italian-verbal-artistry/"><u>Amore's Orchestra: Harmonious Italian Verbal Artistry</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/assessing-different-versions-available-for-windows-movie-maker/"><u>Assessing Different Versions Available for Windows Movie Maker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-top-10-oldest-languages-in-the-world/"><u>Discovering The Top 10 Oldest Languages In The World</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/follow-friendly-flight-tech-our-top-picks-for-pilots-for-2024/"><u>Follow-Friendly Flight Tech Our Top Picks for Pilots for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-hands-on-guide-flipping-film-with-vlc-software/"><u>In 2024, Hands-On Guide Flipping Film with VLC Software</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-iphone-se-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>In 2024, Unlocking iPhone SE Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
+</ul></div>
 

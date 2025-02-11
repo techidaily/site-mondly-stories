@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Mysteries of Spanish Verb Formations
-date: 2024-07-12T08:17:36.093Z
-updated: 2024-07-13T08:17:36.093Z
+date: 2025-02-08T21:04:58.225Z
+updated: 2025-02-10T18:26:17.210Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/f6b900a7e2a78e7ffb6b0f28d526eebcba1c857a7
 ## Unveiling the Mysteries of Spanish Verb Formations
 
  ¡Hola, Spanish language aficionado! Welcome to another essential Spanish lesson you’ll have to learn if you want to boost your Spanish conversation skills. Today, we are talking about**Spanish verbs** , their conjugations, and some [**Spanish grammar rules**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will naturally join the party. Are you ready? Let’s start with the basics.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish verbs: rules for regular Spanish verbs
 
@@ -60,9 +64,17 @@ Spanish verbs conjugations make sense now, don’t they?
 
 ![Mondly app screenshot verb conjugation](https://edge.mondly.com/blog/wp-content/uploads/2019/06/verb-conjugation-353x600.png "Spanish Verb Conjugation: Regular And Irregular Verbs 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In Mondly, you can quickly see a verb’s conjugation by simply tapping on it
 
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
 
@@ -106,6 +118,10 @@ And the conjugation of comer will look like this:
 * _Ellos / Ellas / Ustedes com**ieron**_
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
@@ -223,6 +239,10 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
  Now that we managed to paint the big picture for both**regular and irregular Spanish verbs** , let’s finish this lesson with some eloquent examples of the most “rebel” verbs of the Spanish language:_ser_ (to be),_estar_ (to be, to be situated) and_ir_ (to go). Here’s the**present tense** ,**preterite tense** , and**future tense conjugation** for each and every one of them:
@@ -305,8 +325,6 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -314,6 +332,20 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-immediate-screen-capture-on-mac-revealing-the-best-5-approaches/"><u>[New] In 2024, Immediate Screen Capture on Mac Revealing the Best 5 Approaches</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-internet-radio-streaming-made-easy-your-recording-guidebook/"><u>[New] In 2024, Internet Radio Streaming Made Easy Your Recording Guidebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-5-affordable-pinterest-video-downloaders-unveiled/"><u>[Updated] 2024 Approved Top 5 Affordable, Pinterest Video Downloaders Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-learn-the-art-of-video-to-animation-stepwise-guide-for-efficient-gif-creation/"><u>[Updated] Learn The Art Of Video to Animation Stepwise Guide for Efficient Gif Creation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/can-grammar-hinder-fluent-speaking/"><u>Can Grammar Hinder Fluent Speaking?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/championing-the-best-3-sites-master-a-new-language-today/"><u>Championing the Best 3 Sites: Master a New Language Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cracking-down-unders-lingo-mastery-guide/"><u>Cracking Down Under's Lingo Mastery Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/craft-delectable-dishes-easier-discover-7-chatgpt-ways/"><u>Craft Delectable Dishes Easier: Discover 7 ChatGPT Ways</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/elevate-audio-understanding-discover-tvos-18s-features-to-boost-dialogue-recognition-on-your-apple-tv-zdnet-insights/"><u>Elevate Audio Understanding - Discover tvOS 18'S Features to Boost Dialogue Recognition on Your Apple TV | ZDNET Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowering-colombias-underprivileged-with-dannys-foundation/"><u>Empowering Colombia's Underprivileged with Danny's Foundation</u></a></li>
+<li><a href="https://driver-download.techidaily.com/rapid-driver-setup-for-thrustmasters-high-performance-t150-device/"><u>Rapid Driver Setup for ThrustMaster's High-Performance T150 Device</u></a></li>
+<li><a href="https://common-error.techidaily.com/streamlining-pasting-processes-in-windows-10-devices/"><u>Streamlining Pasting Processes in Windows 10 Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ethernet-cables-a-buyers-guide/"><u>Top-Rated Ethernet Cables : A Buyer's Guide</u></a></li>
+</ul></div>
 

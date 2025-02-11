@@ -1,7 +1,7 @@
 ---
 title: "Lexical Limits: Earth's Extended Expressions"
-date: 2024-07-12T08:15:16.425Z
-updated: 2024-07-13T08:15:16.426Z
+date: 2025-02-03T19:50:58.794Z
+updated: 2025-02-10T23:04:00.185Z
 tags:
   - speak
   - english
@@ -82,6 +82,10 @@ Anyway, here’s a glimpse of the little titan’s name:
 
 Good luck posting it on Twitter!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The longest word in English – fake version turned official
 
  This is getting more and more interesting. This next word wasn’t originally mentioned in any major dictionaries. In fact, it was originally invented by the president of the National Puzzlers’ League as a synonym for the disease known as silicosis with the sole purpose of becoming a candidate for the longest word in English.
@@ -92,6 +96,10 @@ Good luck posting it on Twitter!
 
 ![surprised lemur](https://edge.mondly.com/blog/wp-content/uploads/2018/10/surprised-lemur-960x639.jpg "What Is The Longest Word In The World? 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “I don’t believe you!” by Maik Stahnke©
 
 ## The longest word in the dictionary – really official version
@@ -101,6 +109,10 @@ Enough with the jokes already! This one is for real. Promise.
 **Pseudopseudohypoparathyroidism** is a**30-letter** word [defined by the Oxford Dictionaries](https://en.oxforddictionaries.com/definition/pseudopseudohypoparathyroidism) as “a genetic disorder in which the skeletal abnormalities of pseudohypoparathyroidism are present without the biochemical abnormalities common to hypoparathyroidism and pseudohypoparathyroidism” – in normal human language that roughly translates to “thyroid disorder”. Pseudopseudohypoparathyroidism is**the longest non-coined word to appear in a major dictionary.**
 
 ![long word in the dictionary](https://media.giphy.com/media/3oz8xQQP4ahKiyuxHy/giphy.gif "What Is The Longest Word In The World? 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Unfortunately, our top doesn’t include a non-technical word so far, so we should keep looking.
 
@@ -128,9 +140,17 @@ Enough with the jokes already! This one is for real. Promise.
 
  Now that you know all the arguments of this complicated debate, feel free to be the judge and decide which one is the longest word in the dictionary,**the longest word in the English language** or even the longest word in the galaxy!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: supercalifragilisticexpialidocious (34 letters)
 
  This is your absolute favorite. You thought this was the longest word, haven’t you? But**supercalifragilisticexpialidocious** is, in fact, a coined word made popular by Marry Poppins. Because you tried to pronounce it countless times, here’s a little help:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The longest German word
 
@@ -154,6 +174,10 @@ Enough with the jokes already! This one is for real. Promise.
 
  **Tweedehandsemotorverkoopsmannevakbondstakingsvergaderingsameroeperstoespraakskrywerspersverklaringuitreikingsmediakonferensieaankondiging (136 letters)** – translates to “issuable media conference’s announcement at a press release regarding the convener’s speech at a secondhand car dealership union’s strike meeting”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The longest word in Danish
 
  Mother tongue of the talented actor Mads Mikkelsen, Danish is a language that allows its speakers to put nouns together always forming new and extremely long words.
@@ -161,6 +185,10 @@ Enough with the jokes already! This one is for real. Promise.
 ![danish](https://media.giphy.com/media/xNBLz5z3ndgAw/giphy.gif "What Is The Longest Word In The World? 7")
 
  For example, Danish author Hans Christian Andersen, King of Dreamy Fairy Tales and children’s favorite author, named one of his characters (from “The Shepherdess and the Chimney Sweep”) **Gedebukkebensoverogundergeneralkrigskommandersergenten (54 letters)** . That translates to “General-clothes-press-inspector-head-superintendent-Goat-legs” and in literal translation sounds even funnier than that: “the goaty-legged-above-and-under-general-war-commanding-sergeant”. The author’s intention was to make fun of the Danish military titles.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The longest word in Dutch
 
@@ -186,11 +214,19 @@ Enough with the jokes already! This one is for real. Promise.
 
 ![italian](https://media.giphy.com/media/135E47VKw6TM6A/giphy.gif "What Is The Longest Word In The World? 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The longest word in Greek
 
  In his comedy,_Assemblywomen_ (written in 391 BC), Aristophanes invented a 173-letter word: **“ lopadotemachoselachogaleokranioleipsanodrimhypotrimmatosilphioparaomelitokatakechymenokichlepikossyphophattoperisteralektryonoptekephalliokigklopeleiolagoiosiraiobaphetraganopterygon “.** The monster word named a fictional food dish consisting of a combination of fish and other meat.
 
  Modern Greek words, on the other hand, are much shorter: **ηλεκτροεγκεφαλογράφημα (ilektroenkefalográfima), is a 22-letter word** that means “electroencephalogram”. Yes, you remember that correctly! It really is connected to the word we mentioned for English (electroencephalographically).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The longest word in**Polish**
 
@@ -247,8 +283,6 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -256,6 +290,21 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-adventure-gear-debate-gopro-hero5-black-and-garmin-virb-2e/"><u>[New] Adventure Gear Debate GoPro Hero5 Black & Garmin VIRB (2E)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-vimeo-to-visual-story-crafting-gifs-from-captivating-videos/"><u>[New] In 2024, Vimeo to Visual Story Crafting GIFs From Captivating Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ecruitment-powerhouses-top-ten-shorts/"><u>[New] Recruitment Powerhouses - Top Ten Shorts</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-the-ultimate-gopro-feature-list-matchup/"><u>[New] The Ultimate Gopro Feature List Matchup</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-utilizing-snap-camera-feature-on-microsoft-teams/"><u>[New] Utilizing Snap Camera Feature on Microsoft Teams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ciclo-semanal-en-espanol-dia-por-dia/"><u>Ciclo Semanal en Español: Día Por Día</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commemorating-10-years-mondlybutton-innovation/"><u>Commemorating 10 Years: MondlyButton Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-guide-to-pt-button-usage-europe-and-brazil/"><u>Comparative Guide to PT Button Usage, Europe and Brazil</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-language-skills-mondlys-augmented-reality-tutorials/"><u>Elevate Your Language Skills: Mondly’s Augmented Reality Tutorials</u></a></li>
+<li><a href="https://win-studio.techidaily.com/experience-the-latest-upgrade-the-brand-new-skin-design-tool-for-pcdjs-dex-3-released/"><u>Experience the Latest Upgrade: The Brand-New Skin Design Tool for PCDJ's Dex 3 Released!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-scanner-not-working-in-windows/"><u>How to Fix Scanner Not Working in Windows</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-content-into-currency-with-instagrams-latest-upgrades/"><u>Transform Your Content Into Currency with Instagram’s Latest Upgrades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577139271-unleash-your-communication-skills-mondly-unveiled/"><u>Unleash Your Communication Skills – Mondly Unveiled!</u></a></li>
+</ul></div>
 

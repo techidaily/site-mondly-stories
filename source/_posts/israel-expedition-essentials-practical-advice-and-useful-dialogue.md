@@ -1,7 +1,7 @@
 ---
 title: "Israel Expedition Essentials: Practical Advice & Useful Dialogue"
-date: 2025-01-29T05:48:19.129Z
-updated: 2025-01-30T02:08:40.746Z
+date: 2025-02-05T19:42:10.764Z
+updated: 2025-02-10T21:28:07.018Z
 tags:
   - speak
   - english
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  In addition to Hebrew, you will also hear [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (about one-fifth of the population is constituted by the Arab minority) and, of course, English. Not everybody speaks perfect English in Israel, but they certainly try. Since tourism is a central part of the country’s economy, shop, pub and restaurant owners try to keep the channel of communication open with the tourists.
 
 ![hebrew phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-phrases-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Mahane Yehuda Market, Jerusalem, Israel” by Roxanne Desgagnés©
 
@@ -78,12 +74,16 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * supermarket –_כלבו – kolbo_
 * souvenir –_מזכרת – mazkeret_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Top 5 places you must visit in Israel
 
  Before moving on to the Hebrew travel phrases that will make your vacation ten times better (yes, learning the language of the natives does that!), let’s discover the top five most beautiful places in Israel. Like we already mentioned, this country is a dream. From beaches to gardens and holy sanctuaries. So let’s discover the most beautiful of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Jerusalem and Nazareth
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  “Tel Aviv-Yafo, Israel” by Shai Pal©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. The Dead Sea
@@ -109,18 +109,18 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![travel to israel](https://edge.mondly.com/blog/wp-content/uploads/2019/09/travel-to-israel-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Dead Sea” by Dave Herring©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Haifa
 
  When you’ll first see Bahá’í Gardens, you’ll feel like you’ve stepped out of reality. That’s how beautiful this place is. Spread almost a kilometer up Mount Carmel, The Terraces of the Bahá’í Faith include design elements inspired from the [Persian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) gardens in Iran, the Nishat Bagh gardens in India and English gardens.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Ramon Crater
 
@@ -132,6 +132,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  “Bahá’í Gardens, Haifa” by Denis Vdovin©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Get ready to enjoy Israel with these basic Hebrew travel phrases
 
  Last but not least, our favorite part of any vacation in a foreign destination: learning the travel phrases.
@@ -139,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  Traveling can be both amazing and stressful. What if you lose your luggage? What if you need to go to the toilet but you don’t know where to find one? What if nobody speaks English? Avoid stressful situation like these. Language should never be a barrier. Learn these basic Hebrew phrases beforehand and enjoy your trip to the fullest.
 
  First, we will explore Hebrew greetings, continue with some common ways to ask for help in Hebrew, basic phrases for when you’ll go to an Israeli restaurant and some basic phrases for shopping sprees. Happy learning!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew Greetings and other basics
 
@@ -161,15 +169,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ![learn hebrew](https://edge.mondly.com/blog/wp-content/uploads/2019/09/learn-hebrew-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 7")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Ein Gedi Oasis, Israel” by Robert Bye©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Common Hebrew phrases for travelers that need help
 
@@ -229,20 +229,21 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-cutting-edge-tools-to-snatch-and-save-videos-flawlessly-for-2024/"><u>[Updated] Cutting-Edge Tools to Snatch and Save Videos Flawlessly for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-minecraft-homes-innovative-and-stylish-designs-for-2024/"><u>[Updated] Minecraft Homes Innovative & Stylish Designs for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-knowledge-gaps-with-ai-assistance/"><u>Bridging Knowledge Gaps With AI Assistance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-countries-that-santa-can-speak-too/"><u>Discover the Countries That Santa Can Speak Too</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/earths-dominant-tongues-leading-fifteen-list/"><u>Earth's Dominant Tongues: Leading Fifteen List</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-vivo-v30-lite-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Vivo V30 Lite 5G to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unleashing-your-channels-potential-increase-youtube-views/"><u>In 2024, Unleashing Your Channel's Potential Increase YouTube Views</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/initiating-film-narratives/"><u>Initiating Film Narratives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/local-lingo-made-simple-speak-like-an-aussie/"><u>Local Lingo Made Simple: Speak Like an Aussie</u></a></li>
-<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-lava-storm-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Lava Storm 5G Black and White | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/solace-for-strugglers-dannys-foundation-in-colombia/"><u>Solace for Strugglers: Danny's Foundation in Colombia</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/trasforma-i-tuoi-video-wma-in-formato-3gp-senza-costi-utilizzando-il-servizio-di-movavi-online/"><u>Trasforma I Tuoi Video WMA in Formato #3GP Senza Costi Utilizzando Il Servizio Di Movavi Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-birthday-a-universal-happiness/"><u>U.S. Birthday: A Universal Happiness</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unlimited-outro-options-at-no-expense-online/"><u>Unlimited Outro Options at No Expense Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-mondly-excellence/"><u>Unlocking the Secrets of Mondly Excellence</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-luminary-pixels-masterful-lighting-secrets-unveiled/"><u>[New] Luminary Pixels Masterful Lighting Secrets Unveiled</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-psychology-of-persuasion-in-subscription-growth/"><u>2024 Approved The Psychology of Persuasion in Subscription Growth</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-steps-for-creating-a-new-account-on-your-oculus-quest-or-quest-2-device/"><u>Easy Steps for Creating a New Account on Your Oculus Quest or Quest 2 Device</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebook-fanfare-unveiled-android-and-iphones-most-liked-apps/"><u>Facebook Fanfare Unveiled Android & iPhone's Most Liked Apps</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixes-and-solutions-how-to-resolve-nier-automata-pc-game-crash-issues/"><u>Fixes and Solutions: How to Resolve Nier: Automata PC Game Crash Issues</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/humor-galore-iphone-edition-for-2024/"><u>Humor Galore IPhone Edition for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-honor-70-lite-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Honor 70 Lite 5G online without jailbreak</u></a></li>
+<li><a href="https://extra-support.techidaily.com/iphone-hdr-masterclass-from-basics-to-brilliance-for-2024/"><u>IPhone HDR Masterclass From Basics to Brilliance for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-gifts-of-joy-on-new-anniversaries/"><u>Linguistic Gifts of Joy on New Anniversaries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-conversation-as-a-buccaneer/"><u>Navigating Conversation as a Buccaneer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-mastering-chinese-characters/"><u>Step-by-Step Guide to Mastering Chinese Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-leap-unveiling-the-top-6-gains/"><u>The Linguistic Leap: Unveiling the Top 6 Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-novice-guide-to-understanding-arabic/"><u>The Novice Guide to Understanding Arabic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-multilingual-apps-for-swiftly-expanding-your-lexicon/"><u>Top 3 Multilingual Apps for Swiftly Expanding Your Lexicon</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-tier-80s-visual-tricks-for-elevated-editing-for-2024/"><u>Top-Tier 80S Visual Tricks for Elevated Editing for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-is-mondly-the-best-language-learning-app-youll-ever-use/"><u>Why Is Mondly The Best Language Learning App You'll Ever Use</u></a></li>
 </ul></div>
 

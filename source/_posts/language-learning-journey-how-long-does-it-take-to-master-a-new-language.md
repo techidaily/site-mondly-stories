@@ -1,7 +1,7 @@
 ---
 title: "Language Learning Journey: How Long Does It Take To Master A New Language?"
-date: 2025-01-24T03:45:17.080Z
-updated: 2025-01-29T20:54:37.615Z
+date: 2025-02-10T00:06:44.561Z
+updated: 2025-02-10T22:50:33.071Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  English is the most international language on the globe. If you are a native English speaker, chances are, you can get along quite comfortably in most Western countries without learning a word in another language. In Europe especially, with enough luck, someone out there may know enough English to initiate and sustain basic communication situations.
 
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Estimated times to learn a new language
 
@@ -43,10 +47,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -63,15 +63,15 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Easiest language to learn for English speakers
 
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
 
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Tier 1:** Languages that are most closely related to English
 
@@ -105,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -118,7 +122,11 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
@@ -158,19 +166,11 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hardest language to learn for English speakers
 
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
 
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Tier 5:** Extraordinary level of difficulty
 
@@ -224,20 +224,17 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-enchanting-music-visuals-using-the-lyric-video-maker-toolkit/"><u>[New] In 2024, Enchanting Music Visuals Using the Lyric Video Maker Toolkit</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-twitch-time-jump-recapturing-lost-moments-for-2024/"><u>[New] Twitch Time Jump Recapturing Lost Moments for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-budding-builders-simple-stylish-mc-habitats/"><u>[Updated] 2024 Approved Budding Builders Simple, Stylish MC Habitats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/50-famous-latin-phrases-to-impress-your-friends/"><u>50 Famous Latin Phrases To Impress Your Friends</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-new-language-a-new-perspective-key-methods-for-deep-engagement/"><u>A New Language, A New Perspective: Key Methods for Deep Engagement</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/commanders-crown-the-ultimate-ranking-of-7-total-war-classics-for-2024/"><u>Commanders' Crown The Ultimate Ranking of 7 Total War Classics for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-lava-yuva-2-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/framing-frontiers-cutting-edge-app-innovations-24/"><u>Framing Frontiers Cutting-Edge App Innovations '24</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/huaweis-appgallery-upgraded-with-mondly/"><u>Huawei's AppGallery Upgraded with Mondly</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-how-to-make-a-thumbnail-for-your-youtube-free-easily/"><u>In 2024, How to Make a Thumbnail for Your YouTube Free Easily!</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-tecno-spark-20-proplus-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Tecno Spark 20 Pro+ Phone Hassle-Free</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-latvian-language-learning-today/"><u>Jumpstart Your Latvian Language Learning Today!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/separating-fact-from-fiction-in-polyglots-journey/"><u>Separating Fact From Fiction in Polyglots' Journey</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/superior-selection-of-multi-person-video-conference-software/"><u>Superior Selection of Multi-Person Video Conference Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/this-is-the-best-way-to-learn-lithuanian-online/"><u>This Is the Best Way to Learn Lithuanian Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-spectrum-of-immersive-tech-vr-vs-ar-and-more/"><u>[New] The Spectrum of Immersive Tech VR Vs. AR and More</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-should-you-consider-itop-for-professional-use/"><u>[Updated] In 2024, Should You Consider ITop for Professional Use?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unveiling-the-best-skype-recorders-of-this-year-for-2024/"><u>[Updated] Unveiling the Best Skype Recorders of This Year for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728476996184-usbcmd/"><u>失去USB中的文件？CMD提供快速恢復方法</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Motorola Moto G73 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-backbone-of-its-education-system/"><u>Mondly: The Backbone of Its Education System</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-croatian-and-boost-your-career-discover-these-7-advantages/"><u>Speak Croatian and Boost Your Career: Discover These 7 Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-volumes-older-adults-new-languages/"><u>Speaking Volumes: Older Adults, New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triumphant-strategies-securing-the-best-language-certifications/"><u>Triumphant Strategies: Securing the Best Language Certifications</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-tips-overcome-w11win10-bluetooth-pin-disconnects/"><u>Troubleshooting Tips: Overcome W11/Win10 Bluetooth PIN Disconnects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/twinspeak-tutorials/"><u>Twinspeak Tutorials</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Japanese Script: From Basics to Proficiency"
-date: 2024-07-12T08:16:31.817Z
-updated: 2024-07-13T08:16:31.817Z
+date: 2025-02-09T17:54:39.596Z
+updated: 2025-02-10T16:14:44.617Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/b5066dad0b601fca3256158753d40238cd5a1c775
 ## The Japanese Script: From Basics to Proficiency
 
  Japanese (日本語 Nihongo) is a unique language with a rich cultural heritage and a writing system that has captivated learners for centuries. While spoken Japanese may be easier to master than the intricacies of its writing system, the beauty and complexity of the**Japanese alphabet** are also what makes this language so rewarding to learn. From the enigmatic world of**Kanji characters** to the distinctive syllabic scripts of**Hiragana and Katakana** , the**Japanese writing system** is a captivating blend of ancient tradition and modern ingenuity. So if you’re ready to dive into the secrets of this fascinating language, let’s explore everything you need to know about the Japanese alphabet.
-
-
 
  Whether you’re a language enthusiast, a traveler to Japan, or simply curious about this fascinating writing system, we’ve got you covered. In this ultimate guide, we’ll take you on a journey through the history, structure, and usage of the Japanese alphabet, revealing everything you need to know to master this intricate and beautiful language.
 
@@ -41,6 +39,10 @@ The main subjects we’re going to cover next are:
 
 ![japanese writing system](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-writing-system-scaled-960x548.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 11")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Japanese writing system
 
  An example of a [Japanese sentence](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) using all three writing systems could be **こんにちは、私の名前はマンドリです。 (Hello, my name is Mondly.)**
@@ -54,6 +56,10 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 **Hiragana characters:** the rest of the sentence
 
 ![How to read Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/05/how-to-read-japanese-900x960.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 12")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Learn Japanese with Mondly easily.
 
@@ -108,6 +114,10 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 14")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Learn Japanese fast
 
  Skip the inch-thick textbooks and breeze through your learning with quick Mondly lessons.
@@ -156,11 +166,19 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  Let’s be honest: Japanese writing is not easy to master. If you want to do it right, it’s essential to keep your focus and avoid the following mistakes. 👇
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mixing up Hiragana, Katakana, and Kanji
 
  It’s easy to confuse these three scripts when you’re a beginner. Make sure you start by learning their differences and uses. Mixing them up can lead to misunderstandings and errors in your writing.
 
 If you need a refresher, you can always come back to this article.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Using the wrong stroke order
 
@@ -181,6 +199,10 @@ If you need a refresher, you can always come back to this article.
  Honorific language is essential in Japanese to show respect to others. Forgetting to use it can come across as rude or disrespectful.
 
  Many of us are familiar with the well-known Japanese custom of the polite bow, as well as the strong emphasis that Japanese culture places on hierarchy and etiquette, especially within the family. These values seem to be deeply ingrained in Japanese society and it’s important to respect them. It all depends on the social context!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Not practicing enough
 
@@ -215,6 +237,10 @@ If you need a refresher, you can always come back to this article.
 
 The Japanese alphabet  has no plurals, which means there is no difference between talking about one person or a group of people. This can be easy if you want to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and you are afraid of the difficulty level one might have.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Intonation is essential
 
  More than in any other language, intonation can completely change the meaning of a word. For example, あめ is used for both “rain” and “candy”. To be able to differentiate between the two and for the conversation to make sense, you need to focus on the right intonation.
@@ -237,11 +263,19 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
  Now, let’s finish this article by answering some frequently asked questions about the Japanese writing system.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is Japanese writing called?
 
  Japanese writing consists of three basic scripts: Hiragana, Katakana and Kanji. Hiragana and Katakana together are also called ‘kana’.
 
  The Japanese writing system is widely regarded as one of the most complex writing systems in use today due to its use of a combination of scripts, as well as a vast number of Kanji characters.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How many letters are in the Japanese alphabet?
 
@@ -250,6 +284,10 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
  In addition, there are several modified forms of Hiragana and Katakana characters that are used to represent sounds that do not occur in the Japanese language. This brings the total number of Hiragana and Katakana characters to over 100.
 
  Depending on how you define “alphabet”, the number of letters in the Japanese writing system can be anywhere from 92 to several thousand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What does Japanese writing look like?
 
@@ -280,8 +318,6 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -289,6 +325,24 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-diving-deep-into-lyric-video-designs-powered-by-lyric-video-maker-for-2024/"><u>[New] Diving Deep Into Lyric Video Designs, Powered by Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-countdown-configuration-guide-for-obs-enthusiasts/"><u>[Updated] 2024 Approved Countdown Configuration Guide for OBS Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-streamline-your-audio-preferences-moving-spotify-playlists-to-youtube-music/"><u>[Updated] 2024 Approved Streamline Your Audio Preferences Moving Spotify Playlists to YouTube Music</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-your-company-culture-via-efficient-language-development/"><u>Advance Your Company Culture via Efficient Language Development</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-and-tools-for-at-home-french-studies/"><u>Best Practices & Tools for At-Home French Studies</u></a></li>
+<li><a href="https://network-issues.techidaily.com/bypass-amds-graphics-setback/"><u>Bypass AMD's Graphics Setback</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-cultures-turkish-and-korean-communication/"><u>Crossing Cultures: Turkish & Korean Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-conduits-pathways-to-effective-international-dialogue/"><u>Cultural Conduits: Pathways to Effective International Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delicate-declarations-italys-flirty-lexicon/"><u>Delicate Declarations: Italy's Flirty Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-dichotomy-ukraine-vs-russias-vernacular/"><u>Dialect Dichotomy - Ukraine Vs Russia's Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortlessly-learn-korean-a-guide-to-the-leading-6-resources/"><u>Effortlessly Learn Korean: A Guide to the Leading 6 Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-your-professional-lexicon-a-strategy/"><u>Elevating Your Professional Lexicon: A Strategy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/find-your-perfect-match-the-top-10-online-converters-list/"><u>Find Your Perfect Match The Top 10 Online Converters List</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-xs-to-other-iphone-11-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone XS to other iPhone 11 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/meld-mixer/"><u>MediaMeld Mixer</u></a></li>
+<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-reimagined-streamlined-reset-techniques/"><u>Windows Reimagined: Streamlined Reset Techniques</u></a></li>
+</ul></div>
 

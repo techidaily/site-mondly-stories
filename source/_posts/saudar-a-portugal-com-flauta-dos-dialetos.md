@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2025-01-27T16:57:22.371Z
-updated: 2025-01-29T18:16:48.147Z
+date: 2025-02-08T16:15:51.997Z
+updated: 2025-02-10T16:53:05.374Z
 tags:
   - speak
   - english
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/fb9dc69321147c58e76f643c816e11fbbc732b6fd
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
@@ -34,6 +34,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -41,10 +45,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -75,6 +83,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -88,10 +100,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Another useful phrase for bidding farewell is “have a good day”. In Portuguese, that’s_t_ _enha um bom dia_ .
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
@@ -119,20 +127,12 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -165,19 +165,17 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-from-basics-to-blockbusters-building-an-audience-on-gaming-channels/"><u>[New] 2024 Approved From Basics to Blockbusters Building an Audience on Gaming Channels</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ratis-design-elements-for-youtube-channel-for-2024/"><u>[New] Gratis Design Elements for YouTube Channel for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-crafting-visual-stories-with-snapchat-photo-edits/"><u>[Updated] 2024 Approved Crafting Visual Stories with Snapchat Photo Edits</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-integrating-youtube-into-your-tiktok-journey-a-complete-manual/"><u>2024 Approved Integrating YouTube Into Your TikTok Journey A Complete Manual</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-radiant-registering-and-unregistering-rites/"><u>2024 Approved Radiant Registering and Unregistering Rites</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-week-in-korea-one-hangul-at-a-time/"><u>A Week in Korea, One Hangul at a Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conoce-los-nombres-del-mundo-animalista-en-espanol/"><u>Conoce Los Nombres Del Mundo Animalista en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-expressions-unveiled-a-curated-list-of-the-top-25/"><u>German Expressions Unveiled: A Curated List of the Top 25</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-many-languages-does-santa-fluent-in/"><u>How Many Languages Does Santa Fluent In?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-pivot-table-field-name-is-not-valid-error-in-excel-by-stellar-guide/"><u>How to fix Pivot Table Field Name is not Valid error in Excel?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-breaking-ground-in-video-marketing-setting-up-a-review-chain/"><u>In 2024, Breaking Ground in Video Marketing Setting Up a Review Chain</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-chinas-bargain-bin-of-virtual-reality-gear/"><u>In 2024, China's Bargain Bin of Virtual Reality Gear</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-partners-up-enhanced-buttonfiltration-with-pearson/"><u>Mondly Partners Up: Enhanced ButtonFiltration With Pearson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-seniors-guide-embracing-multilingualism-and-its-incredible-benefits-post-forty/"><u>The Senior's Guide: Embracing Multilingualism and Its Incredible Benefits Post-Forty</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-expert-picks-the-finest-photo-frame-software-for-2024/"><u>[Updated] Expert Picks The Finest Photo Frame Software for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-picks-affordable-high-quality-4k-home-theatres/"><u>[Updated] In 2024, Top Picks Affordable, High Quality 4K Home Theatres</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevate-your-images-top-10-grid-organizers/"><u>Elevate Your Images Top 10 Grid Organizers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/encode-and-decrypt-ks-mastering-the-linguistics-of-squid-game/"><u>Encode and Decrypt KS: Mastering the Linguistics of Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enunciation-excellence-engage-in-twist-training/"><u>Enunciation Excellence: Engage in Twist Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-the-best-in-language-education-with-mondly/"><u>Experience the Best in Language Education with Mondly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-lenovo-ideapad-130s-a-tale-of-limited-computing-force-with-a-twist-of-surprising-user-friendliness/"><u>Exploring the Lenovo IdeaPad 130S: A Tale of Limited Computing Force with a Twist of Surprising User-Friendliness</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-speaker-in-minutes-with-these-apps/"><u>From Novice to Expert Speaker in Minutes with These Apps</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-poco-c55-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Poco C55 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-fixes-for-updater-glitch-code-0x80073712/"><u>Quick Fixes for Updater Glitch: Code 0X80073712</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209539964-9780883915585-the-magic-of-a-powerful-memory/"><u>The Magic of a Powerful Memory | Free Book</u></a></li>
 </ul></div>
 

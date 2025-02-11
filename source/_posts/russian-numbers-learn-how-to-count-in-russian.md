@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2025-01-26T04:39:02.134Z
-updated: 2025-01-29T16:45:55.077Z
+date: 2025-02-08T16:07:29.325Z
+updated: 2025-02-10T20:48:26.801Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -28,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian numbers 1-10
 
 **Good to know:** when the numbers один (“one”) and два (“two”) are put before a noun, they can change their form according to the gender of the noun thus:
@@ -35,10 +43,6 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * masculine: один _(odin)_ ; два _(dva)_
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
 
@@ -49,10 +53,6 @@ If you did manage, good job! You must be a natural.
  Let’s move on to the next section: learning how to count to 20 in Russian. As you’ll see, the numbers from 11 to 19 are simply formed by adding “надцать” to the numbers 1-9.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Russian numbers 11-20
 
@@ -65,7 +65,7 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian tens
@@ -85,7 +85,7 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -95,7 +95,7 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -143,16 +143,15 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-depth-review-complete-camstudio-screencap-suite-for-2024/"><u>[New] In-Depth Review Complete CamStudio Screencap Suite for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-uncover-5-powerful-speech-recognition-tools-for-your-mac/"><u>[Updated] Uncover 5 Powerful Speech Recognition Tools for Your Mac</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-guide-to-seamlessly-downloading-and-modifying-tamil-ringtones/"><u>2024 Approved Step-by-Step Guide to Seamlessly Downloading and Modifying Tamil Ringtones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-your-progress-in-urdu-with-a-brief-session-daily/"><u>Accelerate Your Progress in Urdu with a Brief Session Daily</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/budget-friendly-brilliance-uncovering-the-outstanding-features-of-fossil-sports-watches/"><u>Budget-Friendly Brilliance: Uncovering the Outstanding Features of Fossil Sports Watches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-ru-letter-sounds-correctly/"><u>Deciphering RU Letter Sounds Correctly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579722292-dive-deep-into-new-dialects-save-a-bundle-on-language-classes/"><u>Dive Deep Into New Dialects - Save a Bundle on Language Classes!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-motorola-moto-e13-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Motorola Moto E13 Phone? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-a-decade-mondlys-legacy/"><u>Journey Through a Decade: Mondly's Legacy</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/review-of-the-fujitsu-scansnap-ix1es-performance-in-home-offices-and-smbs/"><u>Review of the Fujitsu ScanSnap iX1e's Performance in Home Offices and SMBs</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/updated-hp-deskjet-2700-printing-solutions-free-software-downloads-available-now/"><u>Updated HP DeskJet 2700 Printing Solutions - Free Software Downloads Available Now</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitvid-mastery-your-go-to-resource-for-video-downloads/"><u>[New] 2024 Approved TwitVid Mastery Your Go-To Resource for Video Downloads</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-effortless-metaverse-creation-a-comprehensive-avatar-guide-for-2024/"><u>[Updated] Effortless Metaverse Creation A Comprehensive Avatar Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-user-experience-mondly/"><u>A Decade of User Experience - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-las-voces-animalistas-en-espanol/"><u>Descubre Las Voces Animalistas en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dream-in-a-foreign-tongue-romantic-french-narratives/"><u>Dream in a Foreign Tongue: Romantic French Narratives</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-affordability-and-efficiency-in-wearables-the-fitbit-versa-unveiled/"><u>Exploring Affordability & Efficiency in Wearables: The Fitbit Versa Unveiled</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-itel-s23-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Itel S23 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579910213-journey-through-hindi-why-mondlys-online-study-triumphs/"><u>Journey Through Hindi: Why Mondly's Online Study Triumphs!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/step-up-your-game-advanced-video-trimming-techniques-in-windows-11/"><u>Step Up Your Game Advanced Video Trimming Techniques in Windows 11</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/stepwise-integration-merging-hp-officejet-8720-with-pcs/"><u>Stepwise Integration: Merging HP Officejet 8720 with PCs</u></a></li>
 </ul></div>
 

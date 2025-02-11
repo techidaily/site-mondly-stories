@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2025-01-27T00:56:47.684Z
-updated: 2025-01-30T04:49:21.497Z
+date: 2025-02-08T19:30:16.927Z
+updated: 2025-02-10T19:51:30.161Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -56,6 +52,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -63,6 +63,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Literally meaning “how does it go to you?”,_wie geht es dir?_ is an informal way of asking your friend how are things going. If you want to move up the formality scale, you can use the formal_wie geht es Ihnen_ ._Dir_ and_Ihnen_ both mean ‘you’, but unlike English, German uses formal and informal pronouns.
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Alles klar? – “Everything alright?”
 
@@ -79,20 +83,12 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -120,7 +116,7 @@ _– Na._ (“Fine. Thanks!”)
 **Localization:** northern Germany, especially in and around Hamburg.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Grüezi – “Hello”
@@ -136,6 +132,10 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
  A variation of this is_Grüß dich,_ which can be interpreted as “greetings to you”. This one is less formal, but it is still mostly used by seniors.
 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
 
@@ -185,17 +185,22 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-laptop-editing-avoiding-inshot-dependence/"><u>[New] 2024 Approved Laptop Editing Avoiding Inshot Dependence</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-navigating-the-2023-landscape-for-screen-captures-and-ppts/"><u>[New] 2024 Approved Navigating the 2023 Landscape for Screen Captures & PPTs</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-eliminate-unrequested-podcast-additions-on-spotify-feed/"><u>[Updated] Eliminate Unrequested Podcast Additions on Spotify Feed</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-how-to-block-youtube-ads-on-chromefirefoxandroidiphone/"><u>[Updated] How to Block YouTube Ads on Chrome/Firefox/Android/iPhone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-navigate-a-new-era-in-livestrances-top-3-desktop-techniques-on-tiktok/"><u>[Updated] Navigate a New Era in Livestrances Top 3 Desktop Techniques on TikTok</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/1732519013000-ylyl/"><u>守住基线，开创无界：YL计算公司领导人讲解百万亿孤独之路的雪球理念——YL软件专栏文章</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-luminary-in-the-world-of-motivation-johannes-honterus/"><u>A Luminary in the World of Motivation - Johannes Honterus</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/delving-into-affection-hungarys-verbal-expression/"><u>Delving Into Affection: Hungary's Verbal Expression</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubrimiento-fascinante-del-sistema-cardiovascular-del-corazon-a-los-toes/"><u>Descubrimiento Fascinante Del Sistema Cardiovascular: Del Corazón a Los Toes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficiently-acquiring-finnish-skills-virtually/"><u>Efficiently Acquiring Finnish Skills Virtually</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/tial-strategies-for-effective-content-management-in-creator-studio-for-2024/"><u>Essential Strategies for Effective Content Management in Creator Studio for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/love-in-a-digital-age-chatgpt-to-the-rescue/"><u>Love in a Digital Age: ChatGPT to the Rescue</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-boosting-your-youtube-views-a-strategy-guide/"><u>[New] Boosting Your YouTube Views A Strategy Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-transforming-photos-remove-background-with-ease-for-2024/"><u>[New] Transforming Photos Remove Background with Ease for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-ultimate-guide-to-maximum-fitness-mac-recordings-for-snapchat-for-2024/"><u>[New] Ultimate Guide to Maximum Fitness Mac Recordings for Snapchat for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-by-step-navigating-the-full-spectrum-of-storage-in-the-adobe-cloud-ecosystem/"><u>[Updated] Step by Step Navigating the Full Spectrum of Storage in the Adobe Cloud Ecosystem</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-leading-caller-id-changers-with-enchanting-options/"><u>2024 Approved Leading Caller ID Changers with Enchanting Options</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-by-step-elevating-your-instagram-engagement-through-hashtags/"><u>2024 Approved Step-by-Step Elevating Your Instagram Engagement Through Hashtags</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-reasons-for-the-remarkable-achievement-of-the-wii-u/"><u>Discovering the Reasons for the Remarkable Achievement of the Wii U</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ensenanza-interactiva-sobre-el-cuerpo-humano-descubriendo-desde-la-piel-a-los-pulmones/"><u>Enseñanza Interactiva Sobre El Cuerpo Humano: Descubriendo Desde La Piel A Los Pulmones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-benefits-learn-german-now/"><u>Exploring Benefits: Learn German Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expotonguescape-dubai-2s020-crafting-future-communicators/"><u>ExpoTonguescape Dubai 2S020: Crafting Future Communicators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exuberant-echoes-of-july-4th-joy/"><u>Exuberant Echoes of July 4Th Joy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/favored-foreign-languages-for-academic-study/"><u>Favored Foreign Languages for Academic Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foundation-of-hope-dannys-colombia-support-initiative/"><u>Foundation of Hope: Danny's Colombia Support Initiative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-fluent-learn-afrikaans-efficiently-on-mondly-heres-why/"><u>From Beginner to Fluent: Learn Afrikaans Efficiently on Mondly - Here’s Why</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-first-steps-to-fluent-speech-mastering-the-german-way/"><u>From First Steps to Fluent Speech: Mastering the German Way</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-film-lovers-ultimate-selection-of-stop-motion-works/"><u>In 2024, Film Lovers' Ultimate Selection of Stop-Motion Works</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/office-workhorse-recommendations-finding-the-ultimate-non-thinkpad-alternative-to-dell/"><u>Office Workhorse Recommendations: Finding the Ultimate Non-ThinkPad Alternative to Dell</u></a></li>
 </ul></div>
 

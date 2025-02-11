@@ -1,7 +1,7 @@
 ---
 title: Language Learning Pledge for the New Year
-date: 2024-09-16T16:17:46.314Z
-updated: 2024-09-21T16:54:12.325Z
+date: 2025-02-05T00:17:57.443Z
+updated: 2025-02-11T04:25:51.854Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/92ed774f3b41ac1777073a488ce58c2ba128a5ace
 
  Many of us give up early on our New Year’s resolutions because we’re busy and demoralized. We’re only humans, after all. Still, this can change. So, let’s see how you can take up language learning in the new year and keep doing it until December.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are New Year’s Resolutions?
 
  **New Year’s resolutions are personal promises or goals people set for themselves as they embark on a new year.** These resolutions often focus on self-improvement, lifestyle changes, or achieving specific objectives. The tradition of making New Year’s resolutions dates back centuries and is a common practice in many cultures around the world. Many take advantage of the clean slate – meaning the new year – to quit bad habits or maybe learn something new.
@@ -27,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/92ed774f3b41ac1777073a488ce58c2ba128a5ace
  The practice is rooted in looking back on the previous year, identifying areas for improvement, and making a promise to yourself to begin your personal growth journey on the first day of the new year.
 
  The success of New Year’s resolutions varies greatly. For some, they serve as a beneficial source of motivation for instigating positive transformations, while others may encounter difficulties maintaining their resolutions over the long term. The key to successful New Year’s resolutions often lies in setting realistic, specific, and achievable goals, accompanied by a well-structured plan to follow through on them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## SMART Goals for Language Learning
 
@@ -37,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/92ed774f3b41ac1777073a488ce58c2ba128a5ace
  But wait! Now, instead of imagining how accomplished you are going to feel when you reach that certain goal, you should envision the process towards it and enjoy every second of it. Otherwise, you will just end up procrastinating.
 
 ![language learning 2024](https://edge.mondly.com/blog/wp-content/uploads/2019/01/language-learning-2024-600x600.png "New Year, New Language: Your New Year Aspirations 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### A SMART Goal is
 
@@ -58,31 +70,21 @@ thumbnail: https://thmb.techidaily.com/92ed774f3b41ac1777073a488ce58c2ba128a5ace
 
  Moreover, language learning will give a great boost to your memory. In fact, it can increase the size of your brain! This is what [Swedish scientists discovered](https://www.theguardian.com/education/2014/sep/04/what-happens-to-the-brain-language-learning) when they used brain scans to monitor what happens when someone learns a second language.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Mental Well-Being Benefits
 
  The third millennium is governed by stress, depression, sleep deprivation and lack of empathy from those around you. Learning a language can be a fulfilling endeavor that boosts self-esteem, reduces stress, and provides a sense of achievement. So, why not give your brain something to be happy about? Learn Spanish. Learn German. Or maybe learn Japanese. Here are some of the [best tips on how to learn a language fast](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "New Year, New Language: Your New Year Aspirations 6")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Start 2024 with a bang 🎆
 
  Make this the year you learn a new language with Mondly.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2519&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2519%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Economic Advantages of Language Learning
 
@@ -94,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/92ed774f3b41ac1777073a488ce58c2ba128a5ace
 * **Easier business travel:** Language proficiency enables professionals to communicate effectively and build stronger relationships with their local partners and clients and better navigate unfamiliar environments.
 
 ![personal growth](https://edge.mondly.com/blog/wp-content/uploads/2019/01/personal-growth-960x704.jpg "New Year, New Language: Your New Year Aspirations 7")
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Top 5 To-Do’s for Learning a New Language
 
@@ -122,6 +117,10 @@ thumbnail: https://thmb.techidaily.com/92ed774f3b41ac1777073a488ce58c2ba128a5ace
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## New Year, New Language
 
@@ -151,5 +150,22 @@ thumbnail: https://thmb.techidaily.com/92ed774f3b41ac1777073a488ce58c2ba128a5ace
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-handheld-video-stabilizer-equipment-to-help-shoot-smooth-scenes/"><u>[New] In 2024, Top Handheld Video Stabilizer Equipment To Help Shoot Smooth Scenes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-ultimate-guide-to-integrating-snap-photos-in-teams/"><u>[New] The Ultimate Guide to Integrating Snap Photos in Teams</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-reclaim-original-vibrance-in-photographs-with-these-top-apps/"><u>2024 Approved Reclaim Original Vibrance in Photographs with These Top Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-with-mondly-the-story-continues/"><u>A Decade with Mondly: The Story Continues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussteigende-verabschiedungssprunge-im-deutschen/"><u>Aussteigende Verabschiedungssprünge Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-difficult-dialogues-pronunciation-techniques-unveiled/"><u>Decoding Difficult Dialogues: Pronunciation Techniques Unveiled</u></a></li>
+<li><a href="https://article-helps.techidaily.com/exploring-excellence-in-viewing-the-detailed-look-at-lgs-4k-display-model-31mu97-b/"><u>Exploring Excellence in Viewing - The Detailed Look at LG’s 4K Display, Model 31MU97-B</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/identifying-the-right-drivers-for-your-pc-components-a-step-by-step-guide/"><u>Identifying the Right Drivers for Your PC Components: A Step-by-Step Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-internal-device-recorder-to-capture-screens-on-mate-1020-and-p-series-phones-p2010/"><u>In 2024, Internal Device Recorder to Capture Screens on Mate 10/20 & P Series Phones (P20/10)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-ringtone-renaissance-websites-worth-visiting/"><u>In 2024, Ringtone Renaissance Websites Worth Visiting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kickstart-with-korean-to-navigate-the-world-of-squid-game/"><u>Kickstart with Korean to Navigate the World of Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-proficiency-prowess-countdown-to-6-benefits/"><u>Language Proficiency Prowess: Countdown to #6 Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-liberation-unleashing-the-potential-in-your-forties-through-language-learning/"><u>Linguistic Liberation: Unleashing the Potential in Your Forties Through Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-and-mondly-unite-for-superior-gsl-excellence/"><u>Pearson & Mondly Unite for Superior GSL Excellence</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-oppo-a78-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Oppo A78 5G? Tips, Tricks and Helpful Advice</u></a></li>
+</ul></div>
 

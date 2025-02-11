@@ -1,7 +1,7 @@
 ---
 title: 50+ British Phrases and Slangs to Impress Your British Mates
-date: 2024-09-17T17:38:33.995Z
-updated: 2024-09-21T19:26:13.894Z
+date: 2025-02-06T19:40:06.250Z
+updated: 2025-02-10T19:41:14.037Z
 tags:
   - speak
   - english
@@ -28,11 +28,19 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 
  It’s completely possible that you walk into a British bar and don’t understand more than half of what they are saying. If you don’t want to be this person and you want to be able to converse fluently with your British mates, then we’re here to help you out!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 50+ British Phrases and their Meanings
 
  Have you ever been the odd one out in a group of British mates not getting the joke? Do they all belly laugh while you are left grinning awkwardly alongside them?
 
  Well, the chances of that happening are much slimmer after you get through our list. That, plus looking for online tutors can better prep you for your next British conversation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Common British Phrases
 
@@ -46,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 
 I’m tired.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _Cheeky_
 
 Mischievous or playful.
@@ -58,33 +70,21 @@ This is a very British thing to say meaning very.
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Rubbish_
 
  It could mean_garbage_ or_nonsense,_ depending on the context.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _Cockney_
 
@@ -93,6 +93,10 @@ A person native to East London.
 ### _Blimey_
 
  Similar to the American_wow_ ,_blimey_ is used to describe something that takes you by surprise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _Bloke_
 
@@ -103,10 +107,7 @@ A person native to East London.
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Funny British Sayings
@@ -132,18 +133,15 @@ A person native to East London.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "50+ British Phrases And Slangs To Impress Your British Mates 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Improve your English, mate
 
  Speak English like a true Brit with Mondly.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fancy British Words
 
@@ -234,16 +232,13 @@ A person native to East London.
 
  Having learned some of the most common British words and phrases, let’s move on to some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why do the British say ‘cheers’?
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Can you be British but not English?
 
@@ -283,5 +278,18 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-5-prime-fb-video-extractor-guide/"><u>[New] In 2024, 5 Prime FB Video Extractor Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-sharper-stars-in-iphone-nocturne-photos-for-2024/"><u>[Updated] Sharper Stars in iPhone Nocturne Photos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-lingual-dialogues-enriching-english-language/"><u>Cross-Lingual Dialogues Enriching English Language</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/effective-tips-for-modifying-virtual-pc-screen-settings-in-windows-10s-hyper-v/"><u>Effective Tips for Modifying Virtual PC Screen Settings in Windows 10'S Hyper-V</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/identifying-when-your-location-is-monitored-by-apples-airtags-expert-guide/"><u>Identifying When Your Location Is Monitored by Apple's AirTags - Expert Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-vivo-g2-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Vivo G2 Lock Screen Password</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-quick-sequences-with-gopro-burst/"><u>In 2024, Mastering Quick Sequences with GoPro Burst</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-temps-de-la-semaine-en-langue-francaise/"><u>Les Temps De La Semaine en Langue Française</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melody-meets-science-the-ultimate-guide-to-learning-multiple-languages/"><u>Melody Meets Science: The Ultimate Guide to Learning Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcontinental-greetings-on-holy-sunday/"><u>Transcontinental Greetings on Holy Sunday</u></a></li>
+</ul></div>
 

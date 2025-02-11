@@ -1,7 +1,7 @@
 ---
 title: Ranking the World’s Oldest Verbal Expressions
-date: 2024-07-12T08:15:32.003Z
-updated: 2024-07-13T08:15:32.003Z
+date: 2025-02-10T03:46:16.606Z
+updated: 2025-02-10T17:42:52.481Z
 tags:
   - speak
   - english
@@ -48,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/50f9fb85f30d6bdf30041380f63b78a3de31a8743
 
  Languages have always been fascinating because of the role they played as one of the pillars of civilization on Earth. Imagine a world where beings don’t communicate. What does that world look like? It’s unimaginable. Languages have shaped humanity for ages and continue to do so even today. They are fluid and in a continuous evolution. But their timeless metamorphosis makes it hard for historians and linguists to determine what are the oldest languages in the world.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What was the first language on Earth?
 
  We only know what history tells us. And history says the first spoken language appeared 10,000 years ago. But we can never know for sure because no one was there to confirm. So there is only one way to judge the age of a language: by the earliest proof of its written form. However, this still remains guesswork, as it’s always possible that archaeologists might discover something new tomorrow. Something that could change history as we know it. Furthermore, these ancient languages were surely in use long before they were written in stone or on papyruses. But for how long? It remains a mystery.
@@ -57,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/50f9fb85f30d6bdf30041380f63b78a3de31a8743
  While**we may never know for sure what the first human language was,** current research suggests that language has been a fundamental part of the human experience for thousands of generations and that it continues to evolve and adapt to our changing world.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Do you want to learn some of the oldest languages on Earth?
 
@@ -85,6 +93,10 @@ Other ancient languages that are now extinct are:
 * [**Elamite**](https://www.britannica.com/topic/Elamite-language) – the earliest Elamite writings use a pictographic script and date from the middle of the 3rd millennium BC;
 * [**Hittite**](https://en.wikipedia.org/wiki/Anitta) – the oldest known text in the Hittite language was written by Anitta, a king that reigned in the 17th century BC;
 * [**Mycenaean Greek**](https://en.wikipedia.org/wiki/Linear%5FB) – the most ancient attested form of the Greek language with the earliest writings dating back to 1450 BC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 oldest living languages in the world
 
@@ -129,6 +141,14 @@ Here are some of the oldest languages in the world still spoken today.
  Unfortunately, the language will probably soon become extinct since there are only a few people left in the world who continue to [use Coptic](https://dailynewsegypt.com/2005/12/10/coptic-languages-last-survivors/) as their day-to-day vernacular.
 
 !['First language' by NEOM©](https://edge.mondly.com/blog/wp-content/uploads/2020/05/first-language-960x640.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew (cc. 3000 years old)
 
@@ -192,6 +212,10 @@ Here are some of the oldest languages in the world still spoken today.
 
 ![oldest living language](https://edge.mondly.com/blog/wp-content/uploads/2020/05/oldest-living-language-960x640.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “The Holy Book” by T Foz©
 
 ### Tamil – the oldest language in the world?
@@ -205,6 +229,10 @@ Here are some of the oldest languages in the world still spoken today.
  The earliest Tamil writing is attested in inscriptions and potsherds from the 5th century BC. However, with the discovery of Tolkāppiyam, the most ancient Tamil grammar text and the oldest surviving work of Tamil literature, scholars began to debate the true age of Tamil. The author of [Tolkāppiyam](https://en.wikipedia.org/wiki/Tolk%C4%81ppiyam) often mentions “they say so” (or something similar) indicating a rich grammar and literature tradition even before him. Naturally, linguists began to wonder whether we should be dating the Tamil language at least a couple of thousand years before Tolkāppiyam.
 
  Unfortunately, at the moment there is no archaeological evidence to support this claim, so experts stick to the original findings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Irish Gaelic (1500 years old)
 
@@ -226,6 +254,10 @@ Here are some of the oldest languages in the world still spoken today.
 
  The oldest languages still spoken today are Tamil, Sanskrit, Greek, Hebrew, Chinese, Arabic, Coptic Egyptian, Aramaic and Persian.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What are the 5 oldest European languages?
 
  The five oldest European languages are: Greek, Latin, Basque, Lithuanian and Irish Gaelic. Although Latin is considered a dead language, many still study Latin and even speak it fluently.
@@ -239,6 +271,10 @@ Here are some of the oldest languages in the world still spoken today.
  Preserving endangered languages is important because they are vital to cultural preservation and identity. When a language disappears, it often takes with it a unique perspective of the world, including knowledge about traditions, stories, medicinal practices and more.
 
  Moreover, endangered languages offer useful insight into linguistics and cognitive science while also contributing to linguistic diversity. All languages, no matter how big or small, offer unique perspectives and ideas about the world we live in.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is the most widely spoken language in the world now?
 
@@ -275,8 +311,6 @@ Here are some of the oldest languages in the world still spoken today.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -284,6 +318,24 @@ Here are some of the oldest languages in the world still spoken today.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-4-seamless-steps-to-posting-and-uploading-gifs-on-instagram-for-2024/"><u>[New] 4 Seamless Steps to Posting & Uploading GIFs on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-conquering-the-labyrinth-of-lesser-known-youtube-content/"><u>[New] In 2024, Conquering the Labyrinth of Lesser-Known YouTube Content</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-streamlining-your-podcast-for-apple-platform-access/"><u>[New] Streamlining Your Podcast for Apple Platform Access</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50plus-most-popular-english-spanish-cognates-and-false-cognates/"><u>50+ Most Popular English-Spanish Cognates and False Cognates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-perfection-for-spanish-language-learners/"><u>Accent Perfection for Spanish Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-brainpower-with-latin-lessons-online/"><u>Boost Your Brainpower with Latin Lessons Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-study-on-the-practicality-of-brazilians-vs-europeans-pt-keys/"><u>Comparative Study on the Practicality of Brazilians' Vs Europeans' PT Keys</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-farsis-ancient-secrets-future-opportunities/"><u>Discovering Farsi’s Ancient Secrets, Future Opportunities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dual-dialogues-turkey-and-korea/"><u>Dual Dialogues: Turkey & Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easters-global-embrace-through-language/"><u>Easter's Global Embrace Through Language</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/handbrake-dvd/"><u>Handbrake DVD画質改善におけるノイズ除去とブロック解消のテクニック</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-warzone-directx-error-in-4-easy-steps/"><u>How to Fix ‘Warzone DirectX Error’ in 4 Easy Steps</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>How to Turn Off Google Location to Stop Tracking You on Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-class-video-production-smooth-editing-skills/"><u>In-Class Video Production Smooth Editing Skills</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/la-strategie-de-clonage-dordinateurs-sans-problemes-guide-complet-pour-un-reseau-identique/"><u>La Stratégie De Clonage D'Ordinateurs Sans Problèmes: Guide Complet Pour Un Réseau Identique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577853752-quick-urdu-mastery-daily-click-here/"><u>Quick Urdu Mastery Daily – Click Here</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Insight Into Spanish Greetings: An Easy-to-Remember List Of 10"
-date: 2024-07-12T08:17:05.552Z
-updated: 2024-07-13T08:17:05.552Z
+date: 2025-02-09T02:33:30.032Z
+updated: 2025-02-10T20:53:27.723Z
 tags:
   - speak
   - english
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/1e40e68e85695875cbdf7c309b6e95c0f93def476
 
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish greetings for certain moments of the day
 
 **Buenos días** – literally meaning “good days”, “buenos días” is more formal than “hola” and it translates to “[good morning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . The same as in English, this greeting can be used anytime before noon in both formal and informal contexts.
@@ -45,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/1e40e68e85695875cbdf7c309b6e95c0f93def476
  While in English, we use “good evening” to greet someone and “good night” to say goodbye to someone when it’s nighttime, the Spanish language uses “buenas noches” in both contexts.
 
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  ¡Hola, señor! by Bruce Jastrow©
 
@@ -60,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/1e40e68e85695875cbdf7c309b6e95c0f93def476
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -72,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/1e40e68e85695875cbdf7c309b6e95c0f93def476
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -89,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/1e40e68e85695875cbdf7c309b6e95c0f93def476
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -113,8 +133,6 @@ thumbnail: https://thmb.techidaily.com/1e40e68e85695875cbdf7c309b6e95c0f93def476
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -122,6 +140,22 @@ thumbnail: https://thmb.techidaily.com/1e40e68e85695875cbdf7c309b6e95c0f93def476
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-enhance-your-skills-with-the-top-10-drawing-apps-on-android-platform/"><u>[New] In 2024, Enhance Your Skills with the Top 10 Drawing Apps on Android Platform</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-android-moba-gems-discovering-the-classics/"><u>[Updated] In 2024, Android MOBA Gems Discovering the Classics</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-xiaomi-13-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/awaken-your-inner-german-top-25-idioms-to-perfect-your-speech/"><u>Awaken Your Inner German - Top 25 Idioms to Perfect Your Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialogue-diversification-turko-korean-nexus/"><u>Dialogue Diversification: Turko-Korean Nexus</u></a></li>
+<li><a href="https://win-web3.techidaily.com/download-hilarious-killsometime-videos-in-various-formats/"><u>Download Hilarious KillSomeTime Videos in Various Formats</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-deep-affection-in-tech-sales-insights-from-an-apple-vision-pro-representative/"><u>Exploring Deep Affection in Tech Sales: Insights From an Apple Vision Pro Representative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovation-meets-collaboration-mondly-and-pearsons-buttonjunction/"><u>Innovation Meets Collaboration: Mondly & Pearson's ButtonJunction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lectura-temporal-en-espanol-todos-los-pasos/"><u>Lectura Temporal en Español: Todos Los Pasos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lyric-infused-education-science-backed-language-acquisition/"><u>Lyric-Infused Education: Science-Backed Language Acquisition</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-iphone-backup-challenges-a-guide-to-restoring-cloud-sync/"><u>Overcoming iPhone Backup Challenges - A Guide to Restoring Cloud Sync</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-nubia-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Nubia</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-reno-10-pro-5g-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Reno 10 Pro 5G.</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-webcams-for-enhanced-podcast-production-for-2024/"><u>Ultimate Webcams for Enhanced Podcast Production for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unique-uses-in-us-uk-english/"><u>Unique Uses in US-UK English</u></a></li>
+</ul></div>
 

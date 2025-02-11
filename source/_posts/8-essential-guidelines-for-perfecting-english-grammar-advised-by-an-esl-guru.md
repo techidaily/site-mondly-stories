@@ -1,7 +1,7 @@
 ---
 title: 8 Essential Guidelines for Perfecting English Grammar, Advised by an ESL Guru
-date: 2024-07-12T08:14:51.834Z
-updated: 2024-07-13T08:14:51.834Z
+date: 2025-02-07T00:55:46.462Z
+updated: 2025-02-11T04:08:11.610Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d5e8491d3f34992956d5390f8a8c8192037db1bb4
  You always hear about how [English grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is easy compared to German, Finnish, or Icelandic grammar (there are even memes on the matter). And that’s true. English grammar can be super fun and easy to learn if you want it to be. Think about it: most probably, English wouldn’t be a_lingua franca_ if it were very difficult to learn. However almost 900 million people mastered it as a second language. And you can, too.
 
  I for one successfully learned [English as a second language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as a young child living in Eastern Europe. All it took was a dedicated teacher, daily grammar lessons (for some time), and a lot of passion. Now, I want to share my tips and tricks with you. Yes, English grammar is all about verbs, verb tenses, nouns, and adverbs. But it is also about feeling. I believe in [learning the English language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but I‌ also believe in feeling it. So here’s exactly what you could do to learn English grammar easily.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Start with basic grammar rules
 
@@ -81,11 +85,19 @@ thumbnail: https://thmb.techidaily.com/d5e8491d3f34992956d5390f8a8c8192037db1bb4
 
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
 
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Practice English Grammar with Oxford
 
@@ -103,6 +115,10 @@ thumbnail: https://thmb.techidaily.com/d5e8491d3f34992956d5390f8a8c8192037db1bb4
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Read your favorite books in English
 
  What better way is there to get used to English grammar in context than reading your favorite books in English? I, for one, started with Harry Potter because it is easy to read and it does not use complex vocabulary.
@@ -110,6 +126,10 @@ thumbnail: https://thmb.techidaily.com/d5e8491d3f34992956d5390f8a8c8192037db1bb4
  But you can choose any book you want. Just make sure it matches your proficiency level.
 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. Make English grammar your friend
 
@@ -136,8 +156,6 @@ thumbnail: https://thmb.techidaily.com/d5e8491d3f34992956d5390f8a8c8192037db1bb4
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,6 +163,19 @@ thumbnail: https://thmb.techidaily.com/d5e8491d3f34992956d5390f8a8c8192037db1bb4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-screen-recording-on-mac-a-comprehensible-method/"><u>[New] 2024 Approved Screen Recording on Mac A Comprehensible Method</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-best-in-class-android-storage-in-the-cloud/"><u>[New] Best-in-Class Android Storage in the Cloud</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-glide-3-face-off-mirage-4-enters/"><u>[New] Glide 3 Face-Off Mirage 4 Enters</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-ultimate-guide-to-video-uploads-on-instagram/"><u>[Updated] 2024 Approved The Ultimate Guide to Video Uploads on Instagram</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/begin-latin-mastery-at-your-fingertips-online/"><u>Begin Latin Mastery at Your Fingertips Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgiums-communication-tapestry-unveiled/"><u>Belgium's Communication Tapestry Unveiled</u></a></li>
+<li><a href="https://win11.techidaily.com/bypass-chromes-glitch-enabling-flawless-filesync-on-windows/"><u>Bypass Chrome’s Glitch: Enabling Flawless Filesync on Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocer-los-nombres-de-animales-hispanohablantes/"><u>Conocer Los Nombres De Animales Hispanohablantes</u></a></li>
+<li><a href="https://games-able.techidaily.com/productivity-pcs-vs-performance-play-stations/"><u>Productivity PCs Vs. Performance Play Stations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581512791-revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-motorola-moto-g14-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Motorola Moto G14 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/utilizing-tailored-volume-reduction-in-audacity-for-2024/"><u>Utilizing Tailored Volume Reduction in Audacity for 2024</u></a></li>
+</ul></div>
 

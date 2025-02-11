@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Silence: Speaking Each Other's Languages"
-date: 2025-01-27T21:52:46.093Z
-updated: 2025-01-29T16:09:16.895Z
+date: 2025-02-03T23:59:02.017Z
+updated: 2025-02-10T19:03:30.006Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![dating a foreigner](https://media.giphy.com/media/CmqNynXoenYnm/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
 
 ## 2\. You never run out of things to say to each other
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 “Spoon! This is a spoon! Repeat after me! Spoon!” – sounds familiar?
 
 ![multilingual relantionship](https://media.giphy.com/media/AelF2ps5xLKo/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You either go through the entire dictionary or use the brilliance of Mondly to learn the language before one can say Jack Robinson.
 
@@ -58,22 +50,22 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![dating language barrier](https://media.giphy.com/media/xUA7aYMO79CzQNMfJe/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. You eventually become bilingual
 
  And that’s not a bad thing at all! If love is strong, so is your desire to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You know it. You probably did it already.
 
  But if that’s not the case,[Mondly – the amazing language learning app](https://play.google.com/store/apps/details?id=com.atistudios.mondly.languages&hl=ro) – has an entire Romance category dedicated to your love. Just take it from there and see where you can get in just a few months.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Your fights are… sooo fun to watch
 
  Well… obviously! Do you know what a [hullabaloo](https://dictionary.cambridge.org/dictionary/english/hullabaloo) is? Because that’s how you’ll look like if you fight in public. What can I say?! An absolute delight for strangers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. The idea of meeting “the friends” suddenly becomes way more intimidating
@@ -84,6 +76,14 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![overcoming language barriers](https://media.giphy.com/media/12nfFCZA0vyrSw/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. You come up with a sign language of your own
 
  If there’s no language bridge between you two, you have to come up with creative ideas. That’s how your secret communication code got created.
@@ -91,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![dating bad english](https://media.giphy.com/media/6tNOhcNvvynPa/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. You focus less on words and more on action
@@ -110,15 +110,15 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 Watch at your own risk! They might steal your heart!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. You constantly get the reassurance of being truly and honestly loved
 
  Being in a multilingual relationship is a hard business. You either go big or go home. There’s no in-between. If he or she is still there, there must be an enormous quantity of love involved. That’s your reassurance.
 
 ![multilingual relationship](https://edge.mondly.com/blog/wp-content/uploads/2019/04/multilingual-relationship-960x640.jpg "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 9")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Sunset lovers” by Stéphane Delval©
 
@@ -156,20 +156,18 @@ Watch at your own risk! They might steal your heart!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfecting-your-content-a-comprehensive-guide-to-instagram-video-enhancement/"><u>[New] In 2024, Perfecting Your Content A Comprehensive Guide to Instagram Video Enhancement</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-art-of-hiding-hashtags-on-social-media-platforms/"><u>[New] In 2024, The Art of Hiding Hashtags on Social Media Platforms</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-designing-a-spectacular-snapshot-of-cinema/"><u>[Updated] 2024 Approved Designing a Spectacular Snapshot of Cinema</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-androids-photo-editor-showdown-can-pickup-claim-victory-in-2024/"><u>[Updated] Android's Photo Editor Showdown Can PickUp Claim Victory, In 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-starting-an-engaging-instagram-live-session/"><u>2024 Approved Starting an Engaging Instagram Live Session</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-watching-social-network-vids-through-the-television-glass/"><u>2024 Approved Watching Social Network Vids Through the Television Glass?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-french-guide-learning-the-basics-of-friendly-salutations/"><u>Beginner’s French Guide: Learning the Basics of Friendly Salutations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-button-differences-between-european-and-brazilian-pt/"><u>Decoding Button Differences Between European and Brazilian PT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dias-del-mes-aprende-de-lunes-a-domingos-en-espanol/"><u>Días Del Mes: Aprende De Lunes a Domingos en Español</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/guide-to-identifying-and-contacting-private-calls/"><u>Guide to Identifying and Contacting Private Calls</u></a></li>
-<li><a href="https://win11.techidaily.com/innovating-windows-11-6-changes-that-could-revolutionize-the-taskbar/"><u>Innovating Windows 11: 6 Changes that Could Revolutionize the Taskbar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-german-verbal-artistry-the-best-25/"><u>Journey Through German Verbal Artistry: The Best 25</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unites-cultures-and-minds-educating-a-global-family-of-70-millions/"><u>Mondly Unites Cultures & Minds - Educating a Global Family of 70 Millions</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/most-effective-ways-to-log-youtube-live-events/"><u>Most Effective Ways to Log YouTube Live Events</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-confidently-with-mondly-the-language-learning-champion-2022/"><u>Speak Confidently with Mondly - The Language Learning Champion, 2022</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-counteract-vibration-for-clear-captures/"><u>[New] Counteract Vibration for Clear Captures</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/levate-your-video-profiles-using-smart-templates/"><u>[New] Elevate Your Video Profiles Using Smart Templates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581815703-bridging-worlds-essential-strategies-for-effective-intercultural-communication/"><u>Bridging Worlds: Essential Strategies for Effective Intercultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-worldwide-mondlys-enhanced-multicultural-phrasebook/"><u>Connect Worldwide: Mondly's Enhanced Multicultural Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-communication-top-6-strategies-to-embrace-languages/"><u>Conquer Communication: Top 6 Strategies to Embrace Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-russian-greetings-keywords-for-fluency/"><u>Conquering Russian Greetings: Keywords for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-daily-bengali-lessons/"><u>Effortless Daily Bengali Lessons</u></a></li>
+<li><a href="https://win-dash.techidaily.com/find-and-download-updated-sound-driver-packs-compatible-with-windows-os/"><u>Find and Download Updated Sound Driver Packs Compatible with Windows OS</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/from-amateur-to-expert-iphones-audio-recording-journey-for-2024/"><u>From Amateur to Expert IPhone's Audio Recording Journey for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-amplify-your-videos-impact-with-strategically-placed-time-markers/"><u>In 2024, Amplify Your Video's Impact with Strategically Placed Time Markers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-leveraging-instagrams-capabilities-for-podcast-promotion/"><u>In 2024, Leveraging Instagram's Capabilities for Podcast Promotion</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/luminouslabs-top-10-free-and-paid-filters-compare/"><u>LuminousLabs Top 10 Free & Paid Filters Compare</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581107411-mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online</u></a></li>
 </ul></div>
 

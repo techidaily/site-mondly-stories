@@ -1,7 +1,7 @@
 ---
 title: Principios Del Entendimiento Del Tiempo en Español
-date: 2025-01-23T20:03:12.437Z
-updated: 2025-01-29T17:16:02.837Z
+date: 2025-02-05T00:14:59.135Z
+updated: 2025-02-10T21:13:05.937Z
 tags:
   - speak
   - english
@@ -26,10 +26,6 @@ But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## ¿Que hora es? – how to ask for the time in Spanish
 
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
@@ -37,7 +33,7 @@ But first things first.
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The basics of Spanish time
@@ -65,6 +61,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -82,7 +82,7 @@ Here are some examples:
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Telling time in Spanish – a visual guide
@@ -99,7 +99,7 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -113,7 +113,7 @@ Here are some examples:
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
@@ -190,22 +190,24 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-cutting-edge-video-editing-mastering-green-screen-integration/"><u>[New] 2024 Approved Cutting Edge Video Editing Mastering Green Screen Integration</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-comprehensive-explanation-deciphering-google-podcasts-app/"><u>[New] Comprehensive Explanation Deciphering Google Podcasts App</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-amplify-your-yt-engagement-with-multi-stream-techniques/"><u>[Updated] Amplify Your YT Engagement with Multi-Stream Techniques</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-switch-to-the-future-capture-cards-guide/"><u>[Updated] Switch to the Future Capture Cards Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-essential-blueprint-for-tiktok-on-zoom-platforms/"><u>[Updated] The Essential Blueprint for TikTok on Zoom Platforms</u></a></li>
-<li><a href="https://some-tips.techidaily.com/enhanced-user-engagement-with-dynamic-cookiebot-analytics/"><u>Enhanced User Engagement with Dynamic Cookiebot Analytics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-halloween-celebrations-from-dia-de-muertos-to-romanias-st-andrews-day/"><u>Global Halloween Celebrations: From Día De Muertos to Romania’s St. Andrew’s Day</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-apples-new-iphone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 7, Apples New iPhone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/laughing-legacy-laborer/"><u>Laughing Legacy Laborer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-echoes-36-words-birthed-by-the-globe/"><u>Linguistic Echoes: 36 Words Birthed by the Globe</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-passion-across-continents/"><u>Linguistic Passion Across Continents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/manejo-diario-semana-en-espanol/"><u>Manejo Diario: Semana en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-spanish-while-chatting-in-virtual-reality-social-spaces/"><u>Master Spanish While Chatting in Virtual Reality Social Spaces</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reality-check-for-popular-year-end-commitments/"><u>Reality Check for Popular Year-End Commitments</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-the-wpcapdll-is-missing-a-step-by-step-guide/"><u>Resolving the 'wpcap.dll Is Missing: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-japanese-script-from-basics-to-proficiency/"><u>The Japanese Script: From Basics to Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-communications-complexities-learning-9-struggle-filled-dialects/"><u>Unlocking Communication's Complexities: Learning 9 Struggle-Filled Dialects</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-craft-clever-comical-content/"><u>[New] Craft Clever, Comical Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-step-by-step-on-instagram-filter-usage-2023/"><u>[New] The Ultimate Step-by-Step on Instagram Filter Usage 2023</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-top-notch-gopro-cinematography-step-by-step/"><u>2024 Approved Crafting Top-Notch GoPro Cinematography Step by Step</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-the-simplest-way-to-understand-and-apply-discord-spoilers/"><u>2024 Approved The Simplest Way to Understand and Apply Discord Spoilers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compare-and-contrast-a-thorough-review-of-viber-out-services/"><u>Compare and Contrast: A Thorough Review of Viber Out Services</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Nokia 130 Music? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-picks-the-most-advanced-server-racks-and-enclosures/"><u>Expert Picks: The Most Advanced Server Racks and Enclosures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernaculars-journey-into-english-lexicon/"><u>Global Vernacular’s Journey Into English Lexicon</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-core-6-social-media-tools-for-corporate-engagement/"><u>In 2024, Core 6 Social Media Tools for Corporate Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lovemaking-crafting-romantic-dialogue-in-spanish/"><u>Linguistic Lovemaking: Crafting Romantic Dialogue in Spanish</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/loop-creator-pro-for-2024/"><u>Loop Creator Pro for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-latest-update-a-user-friendly-language-book/"><u>Mondly’s Latest Update: A User-Friendly Language Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-overseas-languages-studied-in-usa/"><u>Primary Overseas Languages Studied in USA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quelques-initiations-francaises-pour-merci/"><u>Quelques Initiations Françaises Pour 'Merci'</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-gopro-karma-quest-for-altitude-dominance/"><u>The GoPro Karma Quest for Altitude Dominance</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-11-professional-tools-for-video-editing-in-2er-2024-leading-the-way/"><u>Top 11 Professional Tools for Video Editing in 2Er 2024 - Leading the Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-danish-movies-for-mastering-danish-language/"><u>Top 6 Danish Movies for Mastering Danish Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-global-availability-a-guide-to-using-chatgpt-anytime-anywhere-with-chatgpt-everywhere/"><u>Unlocking Global Availability: A Guide to Using ChatGPT Anytime, Anywhere with ChatGPT Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-italy-top-100-travelers-phrases-in-italian/"><u>Unlocking Italy: Top 100 Traveler's Phrases in Italian</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Hello in Spanish and Other Basic Spanish Greetings You Need to Know
-date: 2024-07-12T08:16:08.785Z
-updated: 2024-07-13T08:16:08.785Z
+date: 2025-02-09T21:27:30.086Z
+updated: 2025-02-11T01:38:34.159Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/dc4a82d976964b1f2e7b859f5b2f6939dbc4ceccf
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “Hello” in Spanish: ¡Hola
 
 **¡Hola!** – pronounced without the “h” – is your safety net wherever you’ll go: to a date, meeting or a Spanish-speaking country. This is the absolute basic greeting you need to know in Spanish and it can be used to salute any person regardless of the circumstance: formal or informal.
@@ -27,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/dc4a82d976964b1f2e7b859f5b2f6939dbc4ceccf
 **“Hola”, the cooler brother of “hello”** – as I like to call it – is so short, sweet & simple you’ll simply love using it even as a part of your English greetings.
 
 ![spanish greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/05/spanish-greetings-1024x720.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Hello” by Pablo Gentile©
 
@@ -60,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/dc4a82d976964b1f2e7b859f5b2f6939dbc4ceccf
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -72,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/dc4a82d976964b1f2e7b859f5b2f6939dbc4ceccf
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -89,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/dc4a82d976964b1f2e7b859f5b2f6939dbc4ceccf
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -113,8 +133,6 @@ thumbnail: https://thmb.techidaily.com/dc4a82d976964b1f2e7b859f5b2f6939dbc4ceccf
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -122,6 +140,22 @@ thumbnail: https://thmb.techidaily.com/dc4a82d976964b1f2e7b859f5b2f6939dbc4ceccf
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-comprehensive-ultimate-guide-to-instagram-stories-for-2024/"><u>[New] Comprehensive Ultimate Guide to Instagram Stories for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-interactive-imaging-archive/"><u>[Updated] 2024 Approved Interactive Imaging Archive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-brain-exercises-to-make-language-learning-easier/"><u>3 Brain Exercises To Make Language Learning Easier</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-tagalog-learning-a-simple-daily-routine/"><u>Accelerated Tagalog Learning - A Simple Daily Routine</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/best-compatible-dvd-players-your-ultimate-guide-to-no-cost-solutions-on-windows-operating-systems/"><u>Best Compatible DVD Players : Your Ultimate Guide to No-Cost Solutions on Windows Operating Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakneck-progress-toward-polyglot-status/"><u>Breakneck Progress Toward Polyglot Status</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-catch-up-minutes-a-day-words-gained/"><u>Catalan Catch-Up: Minutes a Day, Words Gained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocer-el-mes-completo-todos-los-dias-del-ciclo-semanal-en-espanol/"><u>Conocer El Mes Completo: Todos Los Días Del Ciclo Semanal en Español</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-media-matrix-the-battle-of-podcasts-vs-youtube/"><u>In 2024, Media Matrix The Battle of Podcasts Vs. YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-step-by-step-guide-to-using-bandicam-insights-users/"><u>In 2024, Step-by-Step Guide to Using Bandicam – Insights Users</u></a></li>
+<li><a href="https://article-files.techidaily.com/prolific-iphone-photography-cutting-edge-app-selection-guide-for-2024/"><u>Prolific iPhone Photography Cutting-Edge App Selection Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578958498-tagalog-made-simple-learn-every-day-just-10-minutes/"><u>Tagalog Made Simple: Learn Every Day, Just 10 Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581159179-the-days-of-the-week-in-french/"><u>The Days Of The Week In French</u></a></li>
+<li><a href="https://games-able.techidaily.com/war-wisdom-crafting-a-list-of-top-11-ww2-tactical-games/"><u>War Wisdom: Crafting a List of Top 11 WW2 Tactical Games</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/movavi-flac-aac/"><u>영구 이미지, 오디오 최적화: 원격 컴퓨터에서 Movavi를 사용한 FLAC AAC 무료 변환</u></a></li>
+</ul></div>
 

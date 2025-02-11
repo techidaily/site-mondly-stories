@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2025-01-23T03:29:07.489Z
-updated: 2025-01-29T20:40:06.636Z
+date: 2025-02-07T22:14:49.717Z
+updated: 2025-02-10T18:45:58.413Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ Here’s a video showcasing Mondly AR:
 ##
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## We take learning out of the books and bring it to life into your living room using augmented reality
@@ -37,7 +37,7 @@ Here’s a video showcasing Mondly AR:
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
@@ -46,16 +46,12 @@ Here’s a video showcasing Mondly AR:
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -73,6 +69,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -87,7 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -119,18 +119,20 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-rookie-riches-economical-channels-for-monetization/"><u>2024 Approved Rookie Riches Economical Channels for Monetization</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-safeguarding-photos-best-software-guide-uncovered/"><u>2024 Approved Safeguarding Photos Best Software Guide Uncovered</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-oneplus-nord-ce-3-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from OnePlus Nord CE 3 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsch-ein-uberblick-uber-verabschiedungsformeln/"><u>Deutsch: Ein Überblick Über Verabschiedungsformeln</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/easy-travel-organization-at-your-fingertps-check-out-these-7-free-ai-itinerary-generators/"><u>Easy Travel Organization at Your Fingertps: Check Out These 7 Free AI Itinerary Generators</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages!</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-resolve-a-malfunctioning-corsair-keyboard-quickly-and-effectively/"><u>How to Resolve a Malfunctioning Corsair Keyboard Quickly and Effectively</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-heres-everything-you-should-know-about-pokemon-stops-in-detail-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Heres Everything You Should Know About Pokemon Stops in Detail On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/linking-up-tweeted-movies-and-music-on-fb-platform-for-2024/"><u>Linking Up Tweeted Movies and Music on FB Platform for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576425842-must-learn-croatian-dialogues-for-smooth-expat-experiences/"><u>Must-Learn Croatian Dialogues for Smooth Expat Experiences!</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-vivo-s17e-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Vivo S17e – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-pathways-to-mastering-language-barriers/"><u>Quick Pathways to Mastering Language Barriers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579211674-start-with-croatian-find-out-the-top-7-reasons-for-today/"><u>Start with Croatian: Find Out the Top 7 Reasons for Today</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-magic-box-inside-a-top-tier-vr-device/"><u>[New] 2024 Approved The Magic Box Inside a Top-Tier VR Device</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-premiere-music-collections-for-visual-media/"><u>[New] In 2024, Premiere Music Collections for Visual Media</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-reel-them-in-a-step-by-step-approach-to-livestreaming-on-youtube/"><u>[New] Reel Them In A Step-by-Step Approach to Livestreaming on Youtube</u></a></li>
+<li><a href="https://discover-community.techidaily.com/rmvb-mp3-movavi/"><u>網路無需付費，轉換 RMVB 成 MP3 - 使用 Movavi</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-why-linksys-velop-is-the-top-choice-for-smart-home-routers/"><u>Comprehensive Analysis: Why Linksys Velop Is the Top Choice for Smart Home Routers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchantment-expressions-the-verona-variant/"><u>Enchantment Expressions: The Verona Variant</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-language-faux-pas-essential-common-mispronunciations-ranked/"><u>English Language Faux Pas - Essential Common Mispronunciations Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-tips-for-using-english-contractions-correctly/"><u>Essential Tips for Using English Contractions Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/europes-90-years-in-words-language-mosaic-in-full-bloom/"><u>Europe's 90 Years In Words - Language Mosaic in Full Bloom</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-realme-c53-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Realme C53</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fostering-love-with-fluency-beyond-words/"><u>Fostering Love with Fluency Beyond Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-conquering-business-vernacular/"><u>From Novice to Expert: Conquering Business Vernacular</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-effortlessly-edit-and-crop-images-using-iphones-ios-16-tools/"><u>How to Effortlessly Edit and Crop Images Using iPhone's iOS 16 Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-zte-nubia-z60-ultra-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from ZTE Nubia Z60 Ultra</u></a></li>
+<li><a href="https://games-able.techidaily.com/playstation-5-showdown-with-microsofts-xbox-sx/"><u>PlayStation 5 Showdown with Microsoft's Xbox SX?</u></a></li>
 </ul></div>
 

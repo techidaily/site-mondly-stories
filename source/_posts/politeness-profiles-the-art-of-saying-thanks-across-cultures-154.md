@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2025-01-26T01:43:46.427Z
-updated: 2025-01-30T04:49:46.924Z
+date: 2025-02-07T02:38:38.320Z
+updated: 2025-02-11T02:46:57.893Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,17 +127,24 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-splitscreen-designer/"><u>[Updated] SplitScreen Designer</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/a-comparative-look-at-windows-most-utilized-software-tools/"><u>A Comparative Look at Windows' Most Utilized Software Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-blueprint-for-mastering-french-phonetics/"><u>Beginner's Blueprint for Mastering French Phonetics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575207853-championing-the-best-3-sites-master-a-new-language-today/"><u>Championing the Best 3 Sites: Master a New Language Today!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/determining-the-most-practical-linguistic-skill-germanfrench/"><u>Determining the Most Practical Linguistic Skill: German/French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578465650-eternal-access-to-mondlys-best-with-zero-price/"><u>Eternal Access to Mondly's Best with Zero Price</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-learning-chinese-thank-you-expressions/"><u>From Novice to Native: Learning Chinese Thank You Expressions</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-your-linksys-ae120-driver-now-fast-and-effortless-installation/"><u>Get Your Linksys AE120# Driver Now - Fast and Effortless Installation</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-lava-yuva-3-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Lava Yuva 3 Pro to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/skagen-falster-2-analysis-elegant-rival-to-the-iphone/"><u>Skagen Falster 2 Analysis: Elegant Rival to the iPhone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/toggle-onoff-managing-your-gaming-experience-with-windows-10s-xbox-game-bar-feature/"><u>Toggle On/Off: Managing Your Gaming Experience with Windows 10'S Xbox Game Bar Feature</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unparalleled-capturing-the-best-camcorders/"><u>[New] 2024 Approved Unparalleled Capturing The Best Camcorders</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-how-to-keep-your-videos-quiet-and-clear/"><u>[New] In 2024, How to Keep Your Videos Quiet and Clear</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-xiaomi-redmi-k70e-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Xiaomi Redmi K70E to iPhone | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-learning-new-languages-after-fifty/"><u>Age Is Just a Number: Learning New Languages After Fifty</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-free-apple-iphone-15-pro-imei-checker-by-drfone-ios/"><u>Best Free Apple iPhone 15 Pro IMEI Checker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charting-the-course-to-fluency-a-comparative-analysis/"><u>Charting the Course to Fluency: A Comparative Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-vietnamese-a-beginners-phrasebook/"><u>Conquering Vietnamese: A Beginner's Phrasebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/creating-a-strong-brand-voice-with-social-media-videos-for-2024/"><u>Creating a Strong Brand Voice with Social Media Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deconstructing-jargon-a-slang-dictionary-for-the-informal-age/"><u>Deconstructing Jargon: A Slang Dictionary for the Informal Age</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-language-learning-in-virtual-reality-mondly-unveils-vr-edition/"><u>Dive Into Language Learning in Virtual Reality - Mondly Unveils VR Edition</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-strategies-to-overcome-in-game-lag-in-world-of-warcraft/"><u>Effective Strategies to Overcome In-Game Lag in World of Warcraft</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-german-a-list-of-convincing-reasons/"><u>Embrace German: A List of Convincing Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/emotive-epics-celebrating-french-romance/"><u>Emotive Epics: Celebrating French Romance</u></a></li>
+<li><a href="https://article-files.techidaily.com/harnessing-the-power-of-photography-and-videography-a-pixiz-approach-for-2024/"><u>Harnessing the Power of Photography & Videography A Pixiz Approach for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580711523-hello-in-japanese-all-the-japanese-greetings-you-need-to-know/"><u>Hello In Japanese - All The Japanese Greetings You Need To Know</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1662598-9780861717538-real-meditation-in-minutes-a-day/"><u>Real Meditation in Minutes a Day | Free Book</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/the-sibolan-szbox-s6nce-an-affordable-mini-pc-in-classic-colors-powered-by-legacy-ryzen-chips/"><u>The Sibolan SZBox S6nce: An Affordable Mini PC in Classic Colors, Powered by Legacy Ryzen Chips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577021074-top-ranked-non-native-language-classes-us/"><u>Top Ranked Non-Native Language Classes U.S.</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-the-secrets-to-blurring-iphone-photos-a-comprehensive-guide-for-2024/"><u>Unveiling the Secrets to Blurring iPhone Photos A Comprehensive Guide for 2024</u></a></li>
 </ul></div>
 

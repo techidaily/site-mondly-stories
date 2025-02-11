@@ -1,7 +1,7 @@
 ---
 title: "Cultural Syntax in Speech: Brazilians & Europeans"
-date: 2024-07-12T08:14:05.901Z
-updated: 2024-07-13T08:14:05.901Z
+date: 2025-02-08T03:15:16.141Z
+updated: 2025-02-11T01:42:17.578Z
 tags:
   - speak
   - english
@@ -20,17 +20,29 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 
  In general, those who speak either language can understand the other, but it may be difficult in some situations. That’s because there are so many nuances between the two. American linguist Albert Marckwardt coined the term “Colonial Lag” as a hypothesis that original varieties of a language (i.e., Brazilian Portuguese) change less than the variety spoken in the mother country (Portugal).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## History
 
  Countries tend to follow the linguistic developments of the mother country with a bit of delay due to the geographical distance. Portuguese was not deemed the official language in Brazil until 1758, whereas the colonization really began in the 16th century. Over time, changes occurred in the language because of increasing contact with European and [Asian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) immigrants.
 
  The other countries colonized by Portugal speak a Portuguese more akin to the [mother language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Many of them are [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) countries, so they don’t have external contact from other cultures that could have impacted their way of speaking. Secondly, compared to Brazil, those countries gained their independence much later and had more contact with Portugal during their early development.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Differences in the Pronunciation
 
  Pronunciation is one of the main differences between the languages. Brazilians speak vowels longer and wider, while Portuguese pronounce the words with a more closed mouth, without pronouncing the vowels as much.
 
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Accents
 
@@ -43,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
  Brazilians are more creative with their use of Portuguese, converting some nouns into verbs. To congratulate uses the [Portuguese phrase](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) — “dar os parabéns” — but Brazilians may condense the expression into one verb – “parabenizar.”
 
  Sometimes, Brazilian Portuguese takes words from American English, ignoring its Latin roots. European Portuguese usually adopts words from Latin roots, keeping the original spelling. Overall, European Portuguese is more resistant to change and assimilation of foreign words.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Formal and Informal Speech
 
@@ -87,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Speak Portuguese fluently in just 10 minutes a day
 
  Do you want to speak Portuguese fluently fast? Get Mondly, the award-winning language learning app that will help you speak Portuguese as if it were your first language.
@@ -103,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,6 +130,24 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-capture-every-skype-interaction-windows-and-os-x-style-for-2024/"><u>[New] Capture Every Skype Interaction Windows & OS X Style for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-game-on-tips-for-excellent-video-game-clips/"><u>[Updated] 2024 Approved Game On! Tips for Excellent Video Game Clips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/111-must-learn-croatian-language-skills-before-your-next-trip-to-the-coastal-paradise/"><u>111 Must-Learn Croatian Language Skills Before Your Next Trip to the Coastal Paradise</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-delving-into-youtubes-complex-calculation-of-viewer-stats/"><u>2024 Approved Delving Into YouTube's Complex Calculation of Viewer Stats</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-by-step-install-and-utilize-ifunny-memes/"><u>2024 Approved Step-by-Step Install & Utilize iFunny Memes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-step-by-step-guide-to-indonesian-greeting-etiquette/"><u>A Step-by-Step Guide to Indonesian Greeting Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-enhancement-through-challenging-twisters-100/"><u>Accent Enhancement Through Challenging Twisters (100)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-a-los-animales-60-nombres/"><u>Aprende a Agradecernos a Los Animales: 60 Nombres</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breeze-through-basic-numbers-in-japanese/"><u>Breeze Through Basic Numbers in Japanese!</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-lava-yuva-2-pro-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Lava Yuva 2 Pro Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-full-circle-mondlys-jubilee-year/"><u>Celebrating a Full Circle: Mondly’s Jubilee Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombian-charity-danny-empowering-those-in-need/"><u>Colombian Charity Danny: Empowering Those in Need</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-mondly-in-your-huawei-app/"><u>Discover Mondly in Your Huawei App</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-activate-stellar-data-recovery-for-iphone-7-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Activate Stellar Data Recovery for iPhone 7 Plus | Stellar</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-exit-dfu-mode-on-iphone-7-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-potential-misidentifications-in-microsofts-windows-defender-insights-from-yl-computing/"><u>Understanding Potential Misidentifications in Microsoft's Windows Defender - Insights From YL Computing</u></a></li>
+<li><a href="https://some-skills.techidaily.com/why-the-oneplus-12-still-stands-out-after-six-months-a-loyal-users-perspective/"><u>Why the OnePlus 12 Still Stands Out After Six Months - A Loyal User's Perspective</u></a></li>
+</ul></div>
 

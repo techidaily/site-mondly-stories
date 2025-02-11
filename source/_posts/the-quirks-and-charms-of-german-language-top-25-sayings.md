@@ -1,7 +1,7 @@
 ---
 title: The Quirks and Charms of German Language (Top 25 Sayings)
-date: 2024-09-20T17:45:12.599Z
-updated: 2024-09-21T17:16:33.651Z
+date: 2025-02-05T22:51:15.739Z
+updated: 2025-02-11T01:10:12.296Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
  Idioms can be really tricky if you don’t know their meaning. Wishing someone to break their leg doesn’t sound especially friendly. But they are a valuable addition to your vocabulary. For instance, if you want to speak German like a fluent speaker, German idioms are probably the fastest way to get to it.
 
  Once you start learning, the most exciting thing about**German idioms** is that **they feel like learning a super secret code only the fluent speakers understand.** As they provide useful insights into German culture and history, including idioms in your day-to-day conversations will make you sound like “one of their own.” So let’s cut to the chase and present you with the essential collection of German idioms designed to up your German game fast.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Common German idioms Germans love
 
@@ -42,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
  Germans and sausages go together like… well, Germans and sausages! For this reason, it’s no surprise that their idioms include_wursts_ . Even if the special treatment implies getting more dessert,[Germans will still say](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you’re asking for an extra sausage.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **3.** _Lügen haben kurze Beine_
 
 **Literal translation:** Lies have short legs.
@@ -57,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
  Is someone lying to your face? Better remind them that_Lügen haben kurze Beine_ or lies won’t get them too far with those tiny legs. This idiom is similar to the English expression “Liar, liar, pants on fire.”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **4.** _Ich glaube ich spinne_
 
 **Literal translation:** I believe I spider.
@@ -64,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 **Actual meaning:** I think I’m going crazy.
 
  As odd as this one sounds, it will come in very handy in those situations when you can’t believe what you’re hearing or seeing. The English equivalent could be “You’ve got to be kidding me!”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **5.** _Seinen Senf dazugeben_
 
@@ -74,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
  Where there are sausages, there also must be mustard. If you want to ask someone for their opinion and sound like a fluent speaker when doing it, you better invite them to add their mustard.
 
 !['German idioms in English' by Ron Lach©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-idioms-in-english-960x640.jpg "Top 25 German Idioms To Speak Like A German 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **6.** _Die Kirche im Dorf lassen_
 
@@ -107,6 +116,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
  This idiom is perfect for those who usually celebrate their victories prematurely. Its sentiment is similar to the English equivalent “Don’t count your chickens before they hatch. “
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **10.** _Da kannst du Gift drauf nehmen_
 
 **Literal translation:** You can take poison on that.
@@ -122,6 +135,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 **Actual meaning:** You’re annoying me.
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **12.** _Da steppt der Bär_
 
@@ -142,10 +159,7 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 !['Common German idioms' by Gratisography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/common-german-idioms-960x640.jpg "Top 25 German Idioms To Speak Like A German 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **14.** _Das ist Schnee von gestern_
@@ -155,13 +169,6 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 **Actual meaning:** To insist on something that has passed./To beat a dead horse.
 
  Is someone you know constantly talking about an issue that is over and decided? _Das ist Schnee von gestern_ is perfect in this context.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **15.** _Ein Fisch auf dem Trockenen_
 
@@ -203,19 +210,6 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **20.** _Ich habe Schwein gehabt_
 
 **Literal translation:** I’ve had a pig.
@@ -226,6 +220,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **21.** _Haare auf den Zähnen haben_
 
 **Literal translation:** To have hair on one’s teeth.
@@ -233,13 +231,6 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 **Actual meaning:** To be confrontational or bossy.
 
  That’s just weird, but okay, German. If someone’s having one of those days, it may prove helpful the lighten the mood with this funny idiom.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **22.** _Einen Kater haben_
 
@@ -271,6 +262,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
 It’s usually used as an insult, so be careful to who you are saying this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **25.** _Jemandem ein Ohr abkauen_
 
 **Literal translation:** Chew off someone’s ear.
@@ -296,6 +291,10 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Speak German like a fluent speaker fast
 
@@ -326,5 +325,22 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-technical-edge-why-high-dynamic-range-triumphs-over-standard-dynamic-range/"><u>[New] 2024 Approved The Technical Edge Why High Dynamic Range Triumphs over Standard Dynamic Range</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/acer-unveils-the-ultimate-blend-of-mobility-and-muscle-with-its-predator-helios-neo-14-laptop/"><u>Acer Unveils the Ultimate Blend of Mobility & Muscle with Its Predator Helios Neo 14 Laptop</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bonnes-entrees-en-francais-merci-pour-larrivee/"><u>Bonnes Entrées en Français: Merci Pour L’Arrivée</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bonds-through-the-right-japanese-greeting/"><u>Building Bonds Through the Right Japanese Greeting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-complex-speech-overcoming-difficult-word-enunciation/"><u>Conquering Complex Speech: Overcoming Difficult Word Enunciation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-top-5-exciting-features-of-apples-ios-18-preview-what-you-can-test-today/"><u>Discover the Top 5 Exciting Features of Apple's iOS 18 Preview - What You Can Test Today</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/e-necessario-spegnere-il-computer-dopo-un-backup/"><u>È Necessario Spegnere Il Computer Dopo Un Backup?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-dialogues-preparing-to-master-the-language-of-the-adriatic-sea/"><u>Essential Croatian Dialogues: Preparing to Master the Language of the Adriatic Sea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-recognition-educators-in-multilingual-light/"><u>Global Recognition: Educators in Multilingual Light</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/google-play-store-experience-on-amazon-fire-devices-a-comprehensive-overview/"><u>Google Play Store Experience on Amazon Fire Devices: A Comprehensive Overview</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/renewed-list-of-questions-to-inspire-podcast-attendees-for-2024/"><u>Renewed List of Questions to Inspire Podcast Attendees for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamlessly-install-new-sounds-card-drivers-begin-now/"><u>Seamlessly Install New Sounds Card Drivers - Begin Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576862006-speak-croatian-and-boost-your-career-discover-these-7-advantages/"><u>Speak Croatian and Boost Your Career: Discover These 7 Advantages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tongue-of-croatia/"><u>The Tongue of Croatia</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/windows-server-2012-hdd/"><u>Windows Server 2012のディスクコピー: HDD移行時におすすめのシンプル手順</u></a></li>
+</ul></div>
 

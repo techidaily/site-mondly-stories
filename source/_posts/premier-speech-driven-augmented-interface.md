@@ -1,7 +1,7 @@
 ---
 title: Premier Speech-Driven Augmented Interface
-date: 2025-01-24T02:10:18.981Z
-updated: 2025-01-30T00:38:49.310Z
+date: 2025-02-10T00:03:08.899Z
+updated: 2025-02-10T23:13:22.781Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ Here’s a video showcasing Mondly AR:
 ##
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## We take learning out of the books and bring it to life into your living room using augmented reality
@@ -37,7 +37,7 @@ Here’s a video showcasing Mondly AR:
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
@@ -47,7 +47,7 @@ Here’s a video showcasing Mondly AR:
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Alex Iliescu, our CEO, spoke about the launch:
@@ -70,7 +70,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -87,7 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -119,16 +119,20 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mastering-chrome-os-4-screenshots-tricks/"><u>[New] 2024 Approved Mastering Chrome OS 4 Screenshots Tricks</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-actor-rights-free-movie-downloads-license/"><u>[New] In 2024, Actor Rights Free Movie Downloads License</u></a></li>
-<li><a href="https://techtrends.techidaily.com/boost-your-traffic-with-advanced-cookiebot-driven-analytics/"><u>Boost Your Traffic with Advanced Cookiebot-Driven Analytics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-down-the-jargon-top-10-slang-words-explained/"><u>Breaking Down the Jargon: Top 10 Slang Words Explained</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-vivo-y100i-power-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Vivo Y100i Power 5G Quickly | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-samsung-galaxy-a05-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Samsung Galaxy A05 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-anywhere-speak-everywhere-enjoy-a-major-discount-on-language-lessons/"><u>Learn Anywhere, Speak Everywhere – Enjoy a Major Discount on Language Lessons!</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138575672-9781462039371-mantras-and-musical-solutions/"><u>Mantras and Musical Solutions | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-fluent-korean-unveiling-the-top-6-digital-tools/"><u>Speak Fluent Korean: Unveiling the Top 6 Digital Tools</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/by-step-guide-to-collab-videos-and-channel-growth/"><u>Step-by-Step Guide to Collab Videos & Channel Growth</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-spelling-pitfall-index-englands-top-100-errors/"><u>The Spelling Pitfall Index: England's Top 100 Errors</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-premier-audio-archivers-for-teachings-for-2024/"><u>[Updated] Premier Audio Archivers for Teachings for 2024</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/complimentary-windows-10-data-rescue-utility-on-usb-free-download-and-guide/"><u>Complimentary Windows 10 Data Rescue Utility on USB: Free Download & Guide</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209636671-9781547571345-meditacion-atencion-plena-para-que-los-principiantes-eliminen-el-estres/"><u>Meditación: Atención Plena Para Que Los Principiantes Eliminen El Estrés | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mosaic-honoring-european-linguistic-heritage/"><u>Multilingual Mosaic: Honoring European Linguistic Heritage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nations-with-hispanic-voices-collected/"><u>Nations with Hispanic Voices Collected</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pc-gaming-fixes-solving-continuous-crashes-in-assassins-creed-valhalla/"><u>PC Gaming Fixes: Solving Continuous Crashes in Assassin's Creed Valhalla</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplifying-your-approach-to-spanish-verbal-usage/"><u>Simplifying Your Approach to Spanish Verbal Usage</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/solving-non-responsive-application-issues-expert-guide-from-yl-computing/"><u>Solving Non-Responsive Application Issues: Expert Guide From YL Computing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-on-giants-a-comprehensive-review-of-apples-ipad-mini-5/"><u>Taking on Giants: A Comprehensive Review of Apple's iPad Mini 5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-korean-days-an-introductory-guide/"><u>The Essentials of Korean Days: An Introductory Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-realme-narzo-60x-5g-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Realme Narzo 60x 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-cinematographer-secrets-for-exceptional-visuals-for-2024/"><u>Top Cinematographer Secrets for Exceptional Visuals for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tech-enhanced-language-learning-for-corporates/"><u>Top Tech-Enhanced Language Learning for Corporates</u></a></li>
+<li><a href="https://techtrends.techidaily.com/twitch-account-deletion-process-explained-in-detail/"><u>Twitch Account Deletion Process Explained in Detail</u></a></li>
+<li><a href="https://discover-best.techidaily.com/unlocking-roi-through-process-optimization-expert-tips-and-strategies-from-abbyys-data-science-blog/"><u>Unlocking ROI Through Process Optimization: Expert Tips and Strategies From ABBYY's Data Science Blog</u></a></li>
 </ul></div>
 

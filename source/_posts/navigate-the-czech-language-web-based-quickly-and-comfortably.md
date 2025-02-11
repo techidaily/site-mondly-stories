@@ -1,7 +1,7 @@
 ---
 title: Navigate the Czech Language Web-Based, Quickly & Comfortably
-date: 2024-07-12T08:16:20.560Z
-updated: 2024-07-13T08:16:20.560Z
+date: 2025-02-06T21:41:30.427Z
+updated: 2025-02-10T22:12:42.500Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
 
  The**oldest records of the Czech language** are glosses appearing in German and Latin texts in**the 12th century.** Thus it’s not a surprise to find out that the Czech vocabulary is extensively influenced by Latin and German.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Czech – the most common language spoken at home in the US?
 
  A little-known fact about the Czech language is that it is very well represented in the United States. Czech people immigrated from Europe to the United States primarily from 1848 to 1914, so Czech became a [Less Commonly Taught Language](https://en.wikipedia.org/wiki/Less%5FCommonly%5FTaught%5FLanguages) in U.S. schools and is nowadays taught at Czech heritage centers.
@@ -36,13 +40,25 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
 
 ![czech republic prague](https://edge.mondly.com/blog/wp-content/uploads/2022/02/czech-republic-prague-960x640.jpg "The Easiest Way To Study Czech Online 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ‘Prague, Czech Republic’ by Ouael Ben Salah©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Czech vs Slovak – how similar are they?
 
  If you didn’t already know, the sister language of Czech is [Slovak](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (also available to [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6512&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6512?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6512?mother%5Flang=en%5Fus?target%5Flang=sk) ) because of their very high degree of mutual intelligibility. This means that if you already know Slovak you will have an easier time learning Czech.
 
  Czech and Slovak shared a common history long before the creation of Czechoslovakia in 1918 (a state which peacefully split in 1993), so it’s no surprise that literary Slovak is so similar to Czech. How similar though? Well, think of British English and American English then tone down the level a bit. We’re talking about slightly different vocabulary, false cognates, varied syntax, localized idioms, and different vocabulary and slang. But all in all,**Czech and Slovak are very much alike.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 basic Czech words you can learn right now
 
@@ -60,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
 * _Na shledanou!_ – Goodbye!
 
 Here’s a glimpse of how some of these Czech words sound:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The easiest way to study Czech online with Mondly
 
@@ -90,8 +110,6 @@ Here’s a glimpse of how some of these Czech words sound:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -99,6 +117,16 @@ Here’s a glimpse of how some of these Czech words sound:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/approved-the-algorithm-behind-youtubes-post-upload-logic/"><u>2024 Approved The Algorithm Behind YouTube's Post-Upload Logic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-korean-wiz-the-essential-guide-to-6-superior-sites/"><u>Become a Korean Wiz: The Essential Guide to 6 Superior Sites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daybreak-to-dusk-in-korea-easy-language-explanations/"><u>Daybreak to Dusk in Korea: Easy Language Explanations</u></a></li>
+<li><a href="https://win11.techidaily.com/decoding-and-resolving-steam-content-locks/"><u>Decoding and Resolving Steam Content Locks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-abroad-the-international-influence-on-english/"><u>Echoes From Abroad: The International Influence on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-tech-in-hr-the-top-5-language-learning-apps-for-your-business/"><u>Embracing Tech in HR: The Top 5 Language Learning Apps for Your Business</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-microsofts-wireless-display-adapter-when-it-fails-to-pair-with-windows-10/"><u>How to Fix Microsoft's Wireless Display Adapter When It Fails to Pair with Windows 10</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-shorts-revenue-sharing-explained-how-much-will-i-make/"><u>YouTube Shorts Revenue Sharing Explained How Much Will I Make?</u></a></li>
+</ul></div>
 

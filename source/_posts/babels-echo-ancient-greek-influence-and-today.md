@@ -1,7 +1,7 @@
 ---
 title: "Babel’s Echo: Ancient Greek Influence & Today"
-date: 2024-07-12T08:15:52.837Z
-updated: 2024-07-13T08:15:52.837Z
+date: 2025-02-05T22:07:59.851Z
+updated: 2025-02-11T02:36:56.812Z
 tags:
   - speak
   - english
@@ -22,7 +22,9 @@ thumbnail: https://thmb.techidaily.com/6e0cdf2b7038ec925488e32c1b0811331fe39479e
 
  Men think about the Roman Empire a lot, but I believe ancient Greece is just as fascinating. What do you think?
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Ancient Greek Language – Historical Journey
 
@@ -74,6 +76,10 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -110,6 +116,10 @@ Other literary works of art representative of this period include:
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9012&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9012%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Ancient Greek influence on art, architecture, and literature
 
  Beyond politics and philosophy, Greek mythology is probably the one that influenced Western culture the most. The epic tales of gods, goddesses, demigods, and heroes have inspired numerous artists, writers, and thinkers to create their next big work of art. If you look into it, you’ll see that the influence of Greek myths can still be found everywhere, from literature and sculpture to popular culture and advertising.
@@ -128,11 +138,19 @@ Other literary works of art representative of this period include:
 
 ![ancient Greek vs modern Greek](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greek-vs-modern-greek.jpg "Ancient Greek Language Influence On Modern Languages 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ancient Greek Language Influence on Modern Languages
 
  Now that you have an overview of the intellectual and artistic heritage we received from ancient Greece, it’s time to take an even closer look at languages. Because yes, the Ancient Greek language has carved its imprints not just in the annals of history but in the very syntax and semantics of modern languages. **English, Spanish, and French are probably the most important bearers of Greek influences.**
 
  Whenever you say a word like ‘psychology’, ‘theater’, or ‘chronology’, you pay tribute to the ancient Greek language. Still, the linguistic legacy is not limited to vocabulary but extends to idiomatic expressions, grammatical structures, and even rhetorical styles. Keep in mind the fact that this influence happened despite the geographical distance between ancient Greece and the English-speaking world.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Enriching the modern lexicon
 
@@ -147,6 +165,10 @@ Other literary works of art representative of this period include:
  As you can see, **ancient Greek words have infiltrated the English language through a complex route, often via Latin and French,** but their imprint is unmistakable. Although modern English contains numerous borrowed words from languages such as French, Italian, and Spanish, a significant portion of them actually originate from ancient Greek.
 
  This is just one example among countless others where a modern English word owes its existence to Ancient Greek ancestry. As a matter of fact, it’s estimated that **more than 150,000 English words can be traced back to their Greek origins.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## English words of Greek origin
 
@@ -188,6 +210,10 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  The myth of Pandora’s box originates from the story where Prometheus steals fire from the gods to give to mankind. As a punishment for humanity, the gods create Pandora, the first woman, and give her a box with strict instructions not to open it. Overcome by curiosity, Pandora opens the box, releasing all the world’s troubles. Only Hope remains trapped inside.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Herculean task
 
 **Refers to a task that requires extremely great strength or effort.**
@@ -195,6 +221,10 @@ _Describes a weakness in spite of overall great strength or resilience._
  Hercules, a hero born from Zeus and a human mother, was renowned for his immense strength. According to the legend, Hera, Zeus’ wife, cast a spell on Hercules that drove him mad and caused him to kill his wife and their two children. Remorseful and devastated, Hercules sought out Apollo, the god of truth and healing and another son of Zeus, pleading to be penalized for his actions.
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. The Midas Touch
 
@@ -225,6 +255,10 @@ _Refers to a person who has good fortune._
  All in all, the transformation from ancient to modern Greek is characterized by a movement towards phonetic, grammatical, and semantic simplification while retaining core elements of the language’s rich history.
 
  To summarize everything we learned about the ancient Greek language, let’s look at some frequently asked questions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Is ancient Greek still spoken today?
 
@@ -263,8 +297,6 @@ _Refers to a person who has good fortune._
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -272,6 +304,26 @@ _Refers to a person who has good fortune._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-guide-to-youtube-thumbnails-that-get-views/"><u>[New] In 2024, The Ultimate Guide to YouTube Thumbnails that Get Views</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-step-by-step-guide-to-kinemasters-mastery-plus-10-superior-editing-counterparts/"><u>[Updated] 2024 Approved Step-by-Step Guide to KineMaster's Mastery + 10 Superior Editing Counterparts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-explore-ioss-premier-choice-in-ps2-gaming-tools/"><u>[Updated] Explore iOS’s Premier Choice in PS2 Gaming Tools</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/1-metodos-faciles-para-migrar-una-imagen-de-discos-hdd-al-ssd/"><u>1. Métodos Fáciles Para Migrar Una Imagen De Discos HDD Al SSD</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-meditative-harmony-top-free-no-copyright-playlists/"><u>2024 Approved Meditative Harmony – Top Free, No-Copyright Playlists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-essential-scandinavian-flicks-for-danish-learning/"><u>6 Essential Scandinavian Flicks for Danish Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-ukrainian-learning-in-quick-ten-minute-sessions-102-chars/"><u>Accelerated Ukrainian Learning in Quick Ten-Minute Sessions (102 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/afrikaans-on-mondly-the-ultimate-guide-to-learning-with-ease-and-reason/"><u>Afrikaans on Mondly: The Ultimate Guide to Learning with Ease & Reason</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-linguistic-elite-the-top-3-titans/"><u>Asia's Linguistic Elite: The Top 3 Titans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-earthly-expressions-a-study-of-galactic-lexicons/"><u>Beyond Earthly Expressions: A Study of Galactic Lexicons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-through-turkish-and-korean-tongues/"><u>Bridging Cultures Through Turkish & Korean Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-10-years-mondlybutton-filters-journey/"><u>Celebrating 10 Years: MondlyButton Filters' Journey</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/comprehensive-breakdown-sony-fdr-x1000v-complete-guide/"><u>Comprehensive Breakdown Sony FDR-X1000V Complete Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-each-korean-day-your-quick-reference/"><u>Discovering Each Korean Day: Your Quick Reference</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-xs-max-to-roku-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone XS Max to Roku? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-infinix-note-30frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Infinix Note 30FRP Lock</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-monetization-an-instagram-income-journey-for-2024/"><u>Mastering Monetization An Instagram Income Journey for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/maximizing-your-mac-preview-experience-step-by-step-for-2024/"><u>Maximizing Your Mac Preview Experience Step-by-Step for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581230819-what-language-is-spoken-in-croatia/"><u>What Language Is Spoken In Croatia?</u></a></li>
+</ul></div>
 

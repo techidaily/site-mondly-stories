@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2025-01-26T18:44:05.755Z
-updated: 2025-01-30T02:12:49.243Z
+date: 2025-02-05T18:55:04.740Z
+updated: 2025-02-11T02:44:35.216Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  Swedish people are sociable, and they care about traditions, so any foreigner should know how to, at least, properly introduce themselves and start a conversation. Learn more about all the Swedish greetings, and maybe you’ll feel inspired to try something new and [start learning the Nordic language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Here’s some to start with:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What you should know
@@ -34,28 +34,28 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
@@ -98,16 +98,14 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-hack-the-art-of-instagram-reels-creation-for-2024/"><u>[New] Hack the Art of Instagram Reels Creation for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-prestigious-zooids-introduction-spotlight/"><u>[Updated] 2024 Approved Prestigious Zooids Introduction Spotlight</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-smooth-shifts-audio-transition-wisdom-from-sonar-by-platinum/"><u>[Updated] 2024 Approved Smooth Shifts Audio Transition Wisdom From Sonar by Platinum</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-samsung-gear-360-vs-lg-360-cam-which-360-degree-camera-is-better/"><u>[Updated] Samsung Gear 360 vs LG 360 Cam Which 360 Degree Camera Is Better</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-storage-woes-removing-youtube-media/"><u>Avoiding Storage Woes Removing YouTube Media</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-germanys-favorite-ways-to-show-appreciation/"><u>Explore Germany's Favorite Ways to Show Appreciation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-monday-morning-rushes-to-sunday-slumbers/"><u>From Monday Morning Rushes to Sunday Slumbers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-simplifying-video-cutting-in-windows-10-a-photoshop-free-guide/"><u>In 2024, Simplifying Video Cutting in Windows 10 A Photoshop-Free Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-language-leap-with-10-minute-method/"><u>Quick Language Leap with 10-Minute Method</u></a></li>
-<li><a href="https://tools.techidaily.com/swifdoo/products/"><u>Swifdoo's Products</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-norse-narratives-vikings-linguistic-legacy/"><u>Unlocking Norse Narratives: Vikings' Linguistic Legacy</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-enhance-iphone-hd-video-clarity-in-premiere-pro-post-production/"><u>[Updated] 2024 Approved Enhance iPhone HD Video Clarity in Premiere Pro Post-Production</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-mastery-how-to-add-structure-and-subdivisions-for-enhanced-content-for-2024/"><u>[Updated] YouTube Mastery How to Add Structure and Subdivisions for Enhanced Content for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/advancing-privacy-measures-over-worker-monitoring-within-transit-sectors-innovations-featured-on-zdnet/"><u>Advancing Privacy Measures Over Worker Monitoring Within Transit Sectors - Innovations Featured on ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-easy-online-and-autonomous-learning-options/"><u>Break Language Barriers with Easy Online & Autonomous Learning Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-a-bilingual-future-young-learners-guide/"><u>Building a Bilingual Future: Young Learners' Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-the-language-first-steps-into-chinese-greetings/"><u>Embracing the Language: First Steps Into Chinese Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581465970-exploring-benefits-learn-german-now/"><u>Exploring Benefits: Learn German Now</u></a></li>
+<li><a href="https://windows11.techidaily.com/learn-to-disperse-windows-11-taskbar-clusters/"><u>Learn to Disperse Windows 11 Taskbar Clusters</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-whatsapp-sync-hurdles-step-by-step-solutions-for-icloud-backups-not-working/"><u>Overcoming WhatsApp Sync Hurdles: Step-by-Step Solutions for iCloud Backups Not Working</u></a></li>
 </ul></div>
 

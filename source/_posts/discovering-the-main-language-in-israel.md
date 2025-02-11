@@ -1,7 +1,7 @@
 ---
 title: Discovering the Main Language in Israel
-date: 2024-07-12T08:15:00.443Z
-updated: 2024-07-13T08:15:00.443Z
+date: 2025-02-07T19:34:15.468Z
+updated: 2025-02-11T02:47:03.931Z
 tags:
   - speak
   - english
@@ -18,15 +18,21 @@ thumbnail: https://thmb.techidaily.com/5f63ba1e3593ebd7d73d1c72fb68eace0cd63a5c8
 
  Home to three major religions (Judaism, Christianity and Islam), Israel is just as diverse when it comes to languages. Therefore, it’s not a matter of “what language is spoken in Israel”, but of which**_are_** **_the languages_** spoken in Israel.
 
-
-
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
 
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew
 
@@ -35,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/5f63ba1e3593ebd7d73d1c72fb68eace0cd63a5c8
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -53,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/5f63ba1e3593ebd7d73d1c72fb68eace0cd63a5c8
  Apart from the fact that the government and businesses often provide information in Russian as well, there is also an Israeli television broadcast channel in Russian. Naturally, Russian immigrants and their children speak Hebrew, but the majority of them still use Russian with family and friends.
 
 So, as you can see, Russian is surprisingly widespread in Israel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Other languages
 
@@ -73,6 +87,10 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
 
  Do you want to speak Hebrew fluently fast? Or maybe Arabic? Get Mondly, the award-winning language learning app that will help you speak a new language in just 10 minutes a day.
@@ -89,8 +107,6 @@ So, as you can see, Russian is surprisingly widespread in Israel.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,6 +114,24 @@ So, as you can see, Russian is surprisingly widespread in Israel.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-streamline-creativity-with-1-to-5-mac-editors-for-sierra-users/"><u>[New] Streamline Creativity with #1 to #5 Mac Editors for Sierra Users</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-latest-in-video-capturing-apeaksoft-2023-edition-analysis/"><u>[New] The Latest in Video Capturing Apeaksoft 2023 Edition Analysis</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-harnessing-the-power-of-targeted-video-appeal/"><u>[Updated] Harnessing the Power of Targeted Video Appeal</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-innovative-10-plugin-upgrades-for-fcp-users/"><u>[Updated] In 2024, Innovative 10 Plugin Upgrades for FCP Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-polyglot-faster-leading-app-based-language-learning-experience/"><u>Become a Polyglot Faster: Leading App-Based Language Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-lexicon-enriching-english/"><u>Cross-Border Lexicon Enriching English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-lingo-top-english-slang-terms-explained/"><u>Decoding Lingo: Top English Slang Terms Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-humanitys-ancestral-verbal-arts/"><u>Discovering Humanity's Ancestral Verbal Arts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/discovering-the-most-engaging-facebook-vids-for-2024/"><u>Discovering the Most Engaging Facebook Vids for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-german-from-novice-to-expert-via-dark-netflix-style/"><u>Dive Into German: From Novice to Expert via Dark, Netflix Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-indonesian-warmth-common-greetings-guide/"><u>Dive Into Indonesian Warmth: Common Greetings Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-your-business-with-effective-language-training/"><u>Empower Your Business With Effective Language Training</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/fasttrackpodcastlive-your-straightforward-guide-to-livestreaming-success-for-2024/"><u>FastTrackPodcastLive Your Straightforward Guide to Livestreaming Success for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/google-mov-swf/"><u>Google에서 찾아보세요! 원본 동영상 크기를 줄이고, MOV SWF로 전환하는 무료 솔루션</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-y200-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Y200</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578596250-mondly-ukrainians-embrace-free-education/"><u>Mondly: Ukrainians, Embrace FREE Education!</u></a></li>
+</ul></div>
 

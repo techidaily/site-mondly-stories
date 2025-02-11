@@ -1,7 +1,7 @@
 ---
 title: Lectura Y Manejo De Hora en Espaňol Para Nuevos Aprendices
-date: 2024-07-12T08:17:09.797Z
-updated: 2024-07-13T08:17:09.797Z
+date: 2025-02-09T19:05:37.554Z
+updated: 2025-02-10T20:03:51.257Z
 tags:
   - speak
   - english
@@ -25,6 +25,10 @@ _¿Que hora es?_ demands an answer! And no, we’re not talking about the Mexica
 But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ¿Que hora es? – how to ask for the time in Spanish
 
@@ -57,6 +61,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -73,7 +81,15 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Telling time in Spanish – a visual guide
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
 
@@ -85,6 +101,10 @@ Here are some examples:
 
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
 
@@ -161,8 +181,6 @@ Here are some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,6 +188,20 @@ Here are some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-10-best-microphones-for-action-cameras/"><u>[New] 2024 Approved 10 Best Microphones for Action Cameras</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-from-airplay-to-download-apple-podcasts-simplified/"><u>[Updated] 2024 Approved From Airplay to Download Apple Podcasts Simplified</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-workplace-cloud-storage-networks/"><u>[Updated] Top Workplace Cloud Storage Networks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/augment-your-world-learn-through-mondlys-ar-platforms/"><u>Augment Your World: Learn Through Mondly’s AR Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-deep-into-afrikaans-with-these-7-mondly-lessons-benefits/"><u>Dive Deep Into Afrikaans with These 7 Mondly Lessons Benefits</u></a></li>
+<li><a href="https://win-special.techidaily.com/experience-the-wild-with-gorilla-graphics-by-yl-software/"><u>Experience the Wild with Gorilla Graphics by YL Software</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-motorola-moto-g34-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Motorola Moto G34 5G Through Google Earth?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/human-mastery-over-spreadsheet-tactics-unachievable-by-ai-assistants/"><u>Human Mastery Over Spreadsheet Tactics Unachievable by AI Assistants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navega-a-domingo-con-el-idioma-espanol/"><u>Navega a Domingo Con El Idioma Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prime-language-management-solutions/"><u>Prime Language Management Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-performance-in-gaming-routers-unveiling-the-power-of-the-razer-portal/"><u>Top Performance in Gaming Routers - Unveiling the Power of the Razer Portal</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-fixes-why-your-pcs-touchpad-scroll-function-fails-in-windows-10/"><u>Troubleshooting Fixes: Why Your PC's Touchpad Scroll Function Fails in Windows 10</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-elevate-your-events-best-video-invitation-apps-for-mobile/"><u>Updated In 2024, Elevate Your Events Best Video Invitation Apps for Mobile</u></a></li>
+</ul></div>
 

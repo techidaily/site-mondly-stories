@@ -1,7 +1,7 @@
 ---
 title: 50 Popular Latin Phrases to Impress Your Friends
-date: 2024-07-12T08:13:54.095Z
-updated: 2024-07-13T08:13:54.095Z
+date: 2025-02-07T18:50:23.843Z
+updated: 2025-02-10T17:05:09.731Z
 tags:
   - speak
   - english
@@ -18,15 +18,25 @@ thumbnail: https://thmb.techidaily.com/e7ff9df7bb6af3b5e4d65d67011a30e37297e02c3
 
  Far from being a dead language, Latin is very much alive in our day-to-day conversations._Carpe diem, et cetera, cum laude, curriculum vitae_ and_mea culpa_ are just a few of the Latin phrases still widely used today. It’s unclear whether Latin made a comeback or it has been this cool for hundreds of years. But one thing is sure: **Latin phrases are nowadays the cooler siblings of slang words.** And Julius Caesar approves this message. So, let’s see the most famous Latin phrases you can use to impress your friends.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Famous Latin Phrases you need to know
 
 These are nearly as famous as Julius Caesar himself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Veni, vidi, vici. —** _I came, I saw, I conquered._
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Alea iacta est. —** _The die has been cast._
 
@@ -52,9 +62,17 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
@@ -258,6 +276,10 @@ Different phrase, same story. You’re welcome.
 
  “Roman statue” by engin akyurt©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -294,6 +316,10 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why are Latin words powerful?
 
  Latin words are perceived as powerful most probably in relation to the Roman Empire, a civilization of immense historical influence and achievement. Additionally, Latin words may be considered powerful thanks to their ability to convey complex legal, scientific, and philosophical concepts succinctly. Their use in various specialized fields has endowed them with a sense of authority and timelessness, allowing for clear and unambiguous communication across different languages and cultures.
@@ -321,8 +347,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -330,6 +354,24 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-constructive-approaches-to-defeating-digital-trolls/"><u>[New] In 2024, Constructive Approaches to Defeating Digital Trolls</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-which-screen-recorder-prevails-bandicam-vs-camtasia-in-2024/"><u>[New] Which Screen Recorder Prevails Bandicam vs Camtasia, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/120plus-must-know-words-and-phrases-in-vietnamese/"><u>120+ Must-Know Words and Phrases in Vietnamese</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-deciphering-social-media-copyright-laws-including-fb/"><u>2024 Approved Deciphering Social Media Copyright Laws, Including FB</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-do-screen-record-snapchat-on-mobile-phone/"><u>2024 Approved How to Do Screen Record Snapchat on Mobile Phone?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/birth-of-an-ai-infused-verbal-ar-experience/"><u>Birth of an AI-Infused, Verbal AR Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578514739-boost-your-urdu-skills-in-a-flash/"><u>Boost Your Urdu Skills in a Flash!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-uk-style-learn-easy-phrases/"><u>Conversational UK Style: Learn Easy Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/czech-conquerors-guide-speedy-study-strategies-online/"><u>Czech Conqueror's Guide: Speedy Study Strategies Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-instant-gratification-avoiding-fb-reels/"><u>Disabling Instant Gratification: Avoiding Fb Reels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581066868-hello-in-indonesian-a-quick-guide-to-indonesian-greetings/"><u>Hello In Indonesian: A Quick Guide To Indonesian Greetings</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-15-pro-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone 15 Pro with a Broken Screen?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580286223-multilingual-cupids-arrow-say-i-love-you-more-ways/"><u>Multilingual Cupid’s Arrow: Say 'I Love You' More Ways</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-top-reaction-video-creators-you-need-to-know/"><u>New 2024 Approved Top Reaction Video Creators You Need to Know</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-easy-driver-update-for-intels-iris-plus-640-graphics-card/"><u>Step-by-Step: Easy Driver Update for Intel's Iris Plus 640 Graphics Card</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-realme-gt-neo-5-se-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Realme GT Neo 5 SE Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576338655-transform-your-life-through-hindi-discover-8-compelling-mondly-benefits/"><u>Transform Your Life Through Hindi: Discover 8 Compelling Mondly Benefits</u></a></li>
+</ul></div>
 

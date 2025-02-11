@@ -1,7 +1,7 @@
 ---
 title: "Voyage Vocabulary: Top Phrases to Conquer Francophone Lands"
-date: 2024-07-12T08:15:42.761Z
-updated: 2024-07-13T08:15:42.761Z
+date: 2025-02-06T19:26:20.004Z
+updated: 2025-02-10T17:50:56.758Z
 tags:
   - speak
   - english
@@ -108,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd
 
 ![basic french phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-phrases-1024x686.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Nice, France” by @Oscar Nord
 
 * Where is a pharmacy? –_Où est la pharmacie?_
@@ -171,6 +175,10 @@ thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd
 * We would like to have dinner. –_Nous voudrions dîner._
 * What would you like for breakfast? –_Que désirez-vous pour le petit déjeuner?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Common French phrases for tourists who want to have fun
 
  Probably the most important phrases – for some of us – are those related to fun. Going out might tell you a lot about the country you are visiting. Are people drunk, friendly and talkative even at 2 or 3 a.m.? Is the city center empty at 11 o’clock? Never miss a chance to explore a city and know its people. Sleep is for the weak! Having fun is for travelers!
@@ -184,6 +192,10 @@ thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd
 
 ![french for tourists](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-for-tourists-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ©Diao Darius
 
 * Can you get me a ticket? –_Pouvez-vous me procurer un billet?_
@@ -192,6 +204,10 @@ thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd
 * One ticket, please. –_Un billet, s’il vous plaît._
 * Let’s have some fun. –_Amusons-nous._
 * Are there seats available? –_Est-ce qu’il reste des places?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Basic French phrases for your shopping adventures
 
@@ -210,6 +226,10 @@ thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd
 
 ![basic french travel phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-travel-phrases-scaled-640x960.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 9")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ©Gijs Coolen
 
  But if you manage to get caught up in a passionate love story – “by mistake”, of course – it will be so much better if you have your**French phrasebook** on point. It’s time to get real and admit it! Travel phrases are not just for travel, they are also for connecting with new friends or maybe even… lovers?! Who knows? Poor Prince Charming could be stuck in a tree somewhere waiting. Travel as much as possible and find him when you least expect it.
@@ -224,6 +244,10 @@ thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd
 * You are very handsome. –_Tu es très beau._
 
 ![french love quotes](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-love-quotes-683x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 10")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Love” by ©Cedric Klei
 
@@ -258,8 +282,6 @@ thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -267,6 +289,19 @@ thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/0-best-vr-videos-on-youtube-to-have-immersive-experience-for-2024/"><u>[New] 10 Best VR Videos on YouTube to Have Immersive Experience for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-spotlight-on-the-5-most-advanced-game-streaming-webcams/"><u>[New] In 2024, Spotlight On The 5 Most Advanced Game Streaming Webcams</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-plotting-prime-promotional-summaries/"><u>[New] Plotting Prime Promotional Summaries</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unleashing-androids-audio-potential-mastering-the-art-of-ringtones-and-sounds-for-2024/"><u>[New] Unleashing Android's Audio Potential Mastering the Art of Ringtones & Sounds for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-love-for-words-the-romance-family/"><u>A Love for Words: The Romance Family</u></a></li>
+<li><a href="https://some-tips.techidaily.com/a-positive-outlook-the-smooth-process-of-pre-ordering-the-new-apple-vision-pro-reflects-exciting-future-prospects-gadgetguru/"><u>A Positive Outlook: The Smooth Process of Pre-Ordering the New Apple Vision Pro Reflects Exciting Future Prospects | GadgetGuru</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-fluency-tackling-the-worlds-difficult-linguistics/"><u>Beyond Fluency: Tackling the World’s Difficult Linguistics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/converta-seus-filmes-de-wmavob-em-qualquer-formato-com-o-conversor-on-line-gratis-da-movavi/"><u>Converta Seus Filmes De WMA/VOB Em Qualquer Formato Com O Conversor On-Line Grátis Da Movavi!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-slices-of-success-learn-slovak-online-10-minutes-each/"><u>Daily Slices of Success: Learn Slovak Online, 10 Minutes Each</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easter-broadcast-hearing-the-world-speak/"><u>Easter Broadcast: Hearing the World Speak</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/monetizing-your-social-media-presence-snapchat-edition/"><u>Monetizing Your Social Media Presence Snapchat Edition</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-4-ways-to-trace-apple-iphone-12-pro-location-drfone-by-drfone-virtual-ios/"><u>Top 4 Ways to Trace Apple iPhone 12 Pro Location | Dr.fone</u></a></li>
+</ul></div>
 

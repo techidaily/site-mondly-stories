@@ -1,7 +1,7 @@
 ---
 title: Starter's Pack of Spanish Counting
-date: 2024-07-12T08:16:28.639Z
-updated: 2024-07-13T08:16:28.639Z
+date: 2025-02-05T00:08:48.056Z
+updated: 2025-02-10T18:10:04.656Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
 
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish numbers 1 to 30
 
  One of my Danish friends discovered how important Spanish numbers actually are when he needed to tell someone [the time in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and had no idea that “five” is_cinco_ in Spanish. So this is a great piece of advice: don’t move to Barcelona without knowing one of the most basic [Spanish lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) first. Especially when it takes just 10 minutes to master it.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -70,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
 
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -98,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
 * 79 –_setenta y nueve_
 * 84 –_ochenta y cuatro_
 * 98 –_noventa y ocho_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish numbers to 1000 and beyond
 
@@ -135,6 +151,10 @@ Here are some more examples:
 * 999 – _novecientos noventa y nueve_
 
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Barcelona, Spain
 
@@ -176,8 +196,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -185,6 +203,21 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-bring-out-clarity-in-low-light-iphone-recordings/"><u>[New] Bring Out Clarity in Low-Light iPhone Recordings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-harnessing-pip-feature-a-comprehensive-guide-for-2024/"><u>[New] Harnessing PIP Feature A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-elite-console-emulation-top-5-ps3-options-for-2024/"><u>[Updated] Elite Console Emulation Top 5 PS3 Options for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-cutting-edge-techniques-to-elevate-your-screen-recordings-in-adobe-captive/"><u>[Updated] In 2024, Cutting-Edge Techniques to Elevate Your Screen Recordings in Adobe Captive</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-maximizing-impact-making-an-engaging-podcast-trailer/"><u>2024 Approved Maximizing Impact Making an Engaging Podcast Trailer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amores-secret-language-italian-flirting-guide/"><u>Amore’s Secret Language: Italian Flirting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-essential-russian-salutations-and-vocabulranium-navigating-a-new-world-of-social-interactions-and-expressions-in-latin-america/"><u>Beginner's Guide to Essential Russian Salutations & Vocabulranium: Navigating a New World of Social Interactions and Expressions in Latin America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-dedication-mondlys-ten-year-triumph/"><u>Celebrating Dedication: Mondly's Ten-Year Triumph</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-freedom-spoken-everywhere/"><u>Celebrating Freedom, Spoken Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-latin-legacy-spanish-vs-portuguese/"><u>Decoding the Latin Legacy: Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-boxed-insights-unpacking-effective-strategy/"><u>In 2024, Boxed Insights Unpacking Effective Strategy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/innovative-8-cameras-transforming-online-broadcasting-for-2024/"><u>Innovative 8 Cameras Transforming Online Broadcasting for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/playful-prodigies-the-ultimate-kids-game-compilation/"><u>Playful Prodigies The Ultimate Kids' Game Compilation</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-tutorial-for-creating-awkward-potions-in-minecraft-gameplay/"><u>The Ultimate Tutorial for Creating Awkward Potions in Minecraft Gameplay</u></a></li>
+</ul></div>
 

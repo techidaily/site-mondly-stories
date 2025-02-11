@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Breakfast Banter: How to Say 'Good Morning'"
-date: 2025-01-23T23:16:35.204Z
-updated: 2025-01-29T22:56:42.201Z
+date: 2025-02-10T01:42:41.172Z
+updated: 2025-02-10T23:01:36.883Z
 tags:
   - speak
   - english
@@ -37,10 +37,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  It is also important to note that in some countries from South America it’s common to say “buen día” which is literally the singular form of “buenos días”. However, if you go to Spain, it’s best to stick with “buenos días”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Good morning in French:_Bon matin !_
 
  **Remember this: in European French, there is no exact translation for the phrase “good morning”.** Therefore, in France, you should always use [“bonjour”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) instead of “bon matin” if you want to “good morning” in French.
@@ -49,15 +45,15 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Both “bonjour” and “bon matin” are appropriate in both formal and informal settings and can be used with friends and strangers alike.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Good morning in German:_Guten Morgen!_
 
  To say “good morning” in German, you can use the phrase “Guten Morgen”. This is a common and polite way to greet someone until noon. It can be used with both friends and strangers which makes it appropriate in both formal and informal social contexts.
 
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Good morning in Italian:_Buongiorno!_
 
@@ -76,7 +72,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7421&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Good morning in Russian:_Доброе утро!_
@@ -86,10 +82,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Like all morning greetings on this list, “доброе утро” can safely be used in all kinds of social contexts with both friends and strangers.
 
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Good morning in Chinese:_早上好！_
 
@@ -106,7 +98,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. Good morning in Arabic:_صباح الخير!_
@@ -116,6 +108,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Other morning greetings in Arabic include يسعد صباحكم_(_ _Yaseed sabahkom)_ which translates to “may you have a nice morning”, صباح الياسمين_(_ _Sabah al Yasmine)_ meaning “a morning full of jasmine”, and صباح أل عشت_(_ _Sabah al ishta)_ which is “a morning full of cream”.
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
@@ -133,6 +129,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## From “good morning” to conversational fast
 
@@ -165,22 +165,22 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-content-with-insightful-channel-descriptions/"><u>[New] Elevate Your Content with Insightful Channel Descriptions</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-reactivate-and-enhance-photo-viewing-with-ease-win-11/"><u>[Updated] In 2024, Reactivate and Enhance Photo Viewing with Ease (Win 11)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-fifties-50s-sixties-60s-seventies-70s-and-beyond/"><u>4 Reasons Why You Should Learn a Language in Your Fifties (50S), Sixties (60S), Seventies (70S) & Beyond</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/are-ride-hailing-apps-like-uber-cheaper-than-conventional-taxicabs-for-your-wallet/"><u>Are Ride-Hailing Apps Like Uber Cheaper than Conventional Taxicabs for Your Wallet?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-german-language-alphabet-and-articulation/"><u>Decoding the German Language: Alphabet & Articulation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-echoes-around-the-earth-irish-scottish-and-australian-tones-compared/"><u>English Echoes Around the Earth: Irish, Scottish & Australian Tones Compared</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experts-choice-key-93-spanish-expressions-for-every-voyager/"><u>Expert's Choice: Key 93 Spanish Expressions for Every Voyager</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-4-unlocked-for-all-yet-6-chatgpt-plus-advantages-remain/"><u>GPT-4: Unlocked For All, Yet 6 ChatGPT Plus Advantages Remain.</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-plus-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 14 Plus Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigate-through-these-6-typical-pitfalls-during-auto-gpt-installation-and-their-fixes/"><u>Navigate Through These 6 Typical Pitfalls During Auto-GPT Installation and Their Fixes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-triumph-1500-free-learning-moments/"><u>The Triumph: 1,500 Free Learning Moments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-techniques-for-lithuanian-self-learning-online/"><u>Top Techniques for Lithuanian Self-Learning Online</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-tier-80s-visual-tricks-for-elevated-editing-for-2024/"><u>Top-Tier 80S Visual Tricks for Elevated Editing for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-best-binge-friends-amazon-primes-most-liked-shows-23-for-2024/"><u>Twitter's Best Binge-Friends Amazon Prime's Most Liked Shows, '23 for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-cultural-connection-with-key-phrases-and-vocabularies-from-latin-america/"><u>Unlocking Cultural Connection with Key Phrases & Vocabularies From Latin America</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-israels-preferred-communication/"><u>Unveiling Israel's Preferred Communication</u></a></li>
-<li><a href="https://driver-install.techidaily.com/updating-intel-82579lm-a-guide-for-windows-drivers/"><u>Updating Intel 82579LM: A Guide for Windows Drivers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-smooth-reels-enhancing-android-video-clarity/"><u>[New] In 2024, Smooth 'Reels' Enhancing Android Video Clarity</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-stop-ipadiphone-from-freezing-during-fb-playback/"><u>[New] Stop iPad/iPhone From Freezing During FB Playback</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-deep-dive-into-sharex-feedback-and-substitutes/"><u>[Updated] Deep Dive Into ShareX Feedback & Substitutes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-screen-recorder-showdown-features-and-prices-compared/"><u>[Updated] Screen Recorder Showdown Features and Prices Compared</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-hand-signals-to-enhance-your-italian-experience/"><u>Essential Hand Signals to Enhance Your Italian Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-strategies-for-novice-learners-in-speaking-french/"><u>Essential Strategies for Novice Learners in Speaking French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanded-communication-10-advantages-from-using-mondly/"><u>Expanded Communication: 10 Advantages From Using Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-new-words-with-mondlys-augmented-reality/"><u>Experience New Words with Mondly's Augmented Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-art-of-ru-phonology/"><u>Exploring the Art of RU Phonology</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2077624-9781607349570-fortune-telling-using-playing-cards/"><u>Fortune Telling Using Playing Cards | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foundation-of-compassion-danny-for-colombias-needy/"><u>Foundation of Compassion: Danny for Colombia's Needy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-bilingual-leading-3-applications-for-linguistic-growth/"><u>From Novice to Bilingual: Leading 3 Applications for Linguistic Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gaining-mastery-in-foreign-languages-realistic-timelines/"><u>Gaining Mastery In Foreign Languages: Realistic Timelines</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-vivo-x-fold-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/hps-latest-chromebook-range-the-perfect-match-for-remote-workers-and-academic-pursuits-insights/"><u>HP's Latest Chromebook Range: The Perfect Match for Remote Workers and Academic Pursuits | Insights</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unwavering-pictures-vivid-videos-for-2024/"><u>Unwavering Pictures, Vivid Videos for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-ultimate-guide-to-online-and-offline-video-to-audio-conversion-tools/"><u>Updated In 2024, Ultimate Guide to Online and Offline Video-to-Audio Conversion Tools</u></a></li>
 </ul></div>
 

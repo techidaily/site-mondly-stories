@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2025-01-22T21:59:09.399Z
-updated: 2025-01-30T02:04:25.550Z
+date: 2025-02-08T20:32:17.700Z
+updated: 2025-02-10T16:41:14.143Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ But first things first.
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ¿Que hora es? – how to ask for the time in Spanish
@@ -35,6 +35,10 @@ But first things first.
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The basics of Spanish time
 
@@ -61,6 +65,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -78,13 +86,13 @@ Here are some examples:
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Telling time in Spanish – a visual guide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
@@ -98,10 +106,6 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -111,10 +115,6 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -190,18 +190,15 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-how-to-enhance-team-engagement-through-zoom-recording/"><u>[New] In 2024, How to Enhance Team Engagement Through Zoom Recording</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-analyzing-hdr-quality-with-luminance-for-2024/"><u>[Updated] Analyzing HDR Quality with Luminance for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsch-eine-auswahl-an-verabschiedungsformen/"><u>Deutsch: Eine Auswahl an Verabschiedungsformen</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-setup-samsung-960-evo-m2-drive-drivers-made-easy-for-windows-operating-systems/"><u>Download & Setup: Samsung 960 EVO M.2 Drive Drivers Made Easy for Windows Operating Systems</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-realme-gt-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-vivo-y100t-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Vivo Y100t Device SIM</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-ultimate-2022-language-experience/"><u>Mondly - The Ultimate 2022 Language Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-italy-must-know-expressions-for-guests/"><u>Navigating Italy: Must-Know Expressions for Guests</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-advent-of-intelligent-search-with-bing/"><u>The Advent of Intelligent Search with Bing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essence-free-knowledge-every-day/"><u>The Essence: Free Knowledge Every Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-japons-language-with-key-salutations/"><u>Unlocking Japon's Language with Key Salutations</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/upgrade-your-red-mobile-get-dex-3-at-just-129-until-august-24th-perfecto-digital-dj/"><u>Upgrade Your RED Mobile: Get DEX 3 at Just $129 Until August 24Th - Perfecto Digital DJ</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-cognitive-conclave-selective-general-knowledge-channels/"><u>[New] Cognitive Conclave Selective General Knowledge Channels</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-superior-vistas-for-digital-viewership/"><u>[New] Superior Vistas for Digital Viewership</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unlock-the-magic-of-stories-in-fb-free-cross-platform-tools/"><u>[New] Unlock the Magic of Stories in FB – Free, Cross-Platform Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-vlc-video-record-a-critique/"><u>[New] VLC Video Record A Critique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-global-speech-functionality-in-oculus-quest-via-mondly/"><u>Introducing Global Speech Functionality in Oculus Quest via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-a-multilingual-universe-with-mondlys-cutting-edge-vr-app/"><u>Step Into a Multilingual Universe with Mondly's Cutting-Edge VR App</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-go-anywhere-tp-link-travel-router-stylish-and-powerful-wi-fi-companion/"><u>The Go-Anywhere TP-Link Travel Router: Stylish and Powerful Wi-Fi Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-germanback-buttonfilter-button/"><u>Top 25 German Idioms To Speak Like A GermanBack ButtonFilter Button</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/vital-top-6-business-focused-social-networking-places/"><u>Vital Top 6 Business-Focused Social Networking Places</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-enabled-language-education-takes-off-with-mondlys-new-app/"><u>VR-Enabled Language Education Takes Off with Mondly's New App</u></a></li>
 </ul></div>
 

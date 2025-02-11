@@ -1,7 +1,7 @@
 ---
 title: På Kul Annars (Swedish)
-date: 2024-07-12T08:16:23.300Z
-updated: 2024-07-13T08:16:23.300Z
+date: 2025-02-09T22:18:31.426Z
+updated: 2025-02-11T03:55:01.659Z
 tags:
   - speak
   - english
@@ -56,11 +56,19 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 ![merry christmas in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-spanish-1024x758.jpg "How To Say Merry Christmas In 21 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Santa and a fan” by Mike Arney©
 
 ## French –_Joyeux Noël!_
 
  Do you want to see what Christmas magic and miracles really mean? Then add the movie with the same name –_Joyeux Noël_ – on your Christmas movies list and thank me later. I promise it won’t be cheesy. On the contrary!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German –_Frohe Weihnachten!_
 
@@ -70,6 +78,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  Famous for its_bellezza_ and absolutely splendid seashores, Italy is also the home of highly religious Christmas traditions. One of the most important Italian Christmas celebrations is having_presepi_ (nativity scenes) everywhere.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Portuguese –_Feliz Natal!_
 
  While in Portugal [Santa Claus](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is known as_Pai Natal_ (“Father Christmas”), in Brazil people call him_Papai Noel_ or_Bom Velhinho_ (“Good Old Man”). Unlike many countries in Europe where Santa leaves presents under the Christmas tree, in Brazil kids leave a sock near a window hoping that Papai Noel will find it and exchange it for a present.
@@ -78,6 +90,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  “The Christmas present we all need” by Jakob Owens©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Romanian –_Crăciun Fericit!_
 
  Did you know that one of the most beautiful Christmas markets in Europe takes place in Sibiu? It’s almost like Santa had scattered magic dust all over the place. It’s breathtakingly beautiful!
@@ -85,6 +101,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 ## Russian –_Счастливого Рождества! (Schastlivogo Rozhdestva!)_
 
  While most countries celebrate Christmas on the 25th of December, Russia celebrates it on the 7th of January because the Russian Orthodox church uses “The old calendar” or the Julian calendar. And the 25th of December on the Julian calendar corresponds to the 7th of January in the Gregorian calendar.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Swedish – _God Jul!_
 
@@ -95,6 +115,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  Christmas wasn’t celebrated in Norway until the XI century when Christianity first came to the area. But today, children in Norway patiently wait for_Julenissen_ (Santa Claus) every year in December.
 
  But the most beautiful Norwegian Christmas tradition remains that of the Christmas Tree that Norway gives to the UK every year as a “thank you” for the help that British have to Norwegians during World War II.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Danish –_Glædelig Jul!_
 
@@ -150,6 +174,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  Czech tradition says that Ježíšek or “Little Jesus” (the Czech_Christkind_) brings presents while children enjoy the Christmas Eve dinner and leaves them under the Christmas Tree.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Japanese –_メリークリスマス！(Merīkurisumasu!)_
 
  In Japan, which is primarily Buddhist and Shinto, Christmas isn’t a traditional holiday. However, like other Western holidays and traditions, it has become increasingly popular in Japan since World War II. The only difference is that Christmas is seen as a romantic occasion for couples here. They also celebrate [Thanksgiving](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Suitably enough, the most famous Japanese Christmas song is “Christmas Eve” by Tatsuro Yamashita, which is about lovers unable to meet on Christmas Eve.
@@ -159,6 +187,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 ## Latin –_Felicem Natalem Christi!_
 
  To say “Merry Christmas” in Latin, you can use the phrase “Felicem Natalem Christi”. This expression is derived from the Latin words “felicem”, which means ‘happy’ or ‘joyful’; “natalem”, which means ‘birthday’ or ‘nativity’; and “Christi”, which is the genitive form of “Christus”, meaning Christ. Therefore,_Felicem Natalem Christi_ can be translated as “happy birthday of Christ” or “joyful nativity of Christ” in reference to the birth of Jesus Christ.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Chinese –_圣诞节快乐! (Shèngdàn jié kuàilè!)_
 
@@ -172,11 +204,19 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 “Merry Christmas” in Korean writing looks like this: 메리 크리스마스.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Irish –_Nollaig Shona!_
 
  Just like anywhere else, in Ireland, Christmas is a time for celebrating with family and friends. Many people attend church services and celebrate the holiday with traditional meals and activities. Christmas Eve is typically a time for visiting with friends, while Christmas Day is spent at home with family. Popular traditions include decorating the Christmas tree, singing carols, and exchanging gifts.
 
  “Merry Christmas” in Irish is_Nollaig Shona_ and it translates to “Merry Christmas to you”, rather than simply “Merry Xmas”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: How to say Merry Christmas in 100 more languages
 
@@ -314,8 +354,6 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -323,6 +361,21 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ivestream-elite-top-equipment-for-youtube-content-creators/"><u>[New] Livestream Elite Top Equipment For YouTube Content Creators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-secrets-integrating-text-overlays-in-your-clips/"><u>[New] YouTube's Secrets Integrating Text Overlays in Your Clips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhance-content-reach-and-impact-social-blades-role-in-youtube-analytics/"><u>[Updated] 2024 Approved Enhance Content Reach and Impact - Social Blade's Role in YouTube Analytics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/25-must-use-german-phrases/"><u>25 Must-Use German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/alphabet-accuracy-in-sweden-pronunciation-essentials/"><u>Alphabet Accuracy in Sweden: Pronunciation Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-favorite-extra-national-study-areas/"><u>America's Favorite Extra-National Study Areas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-pronunciations-conquering-the-most-tricky-tongues-in-the-world/"><u>Beyond Pronunciations: Conquering the Most Tricky Tongues in the World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-english-grammar-9-powerful-hints-from-an-esl-maven/"><u>Decoding English Grammar: 9 Powerful Hints From an ESL Maven</u></a></li>
+<li><a href="https://app-tips.techidaily.com/discover-how-these-10-cutting-edge-ai-chatbots-can-elevate-your-communication-game/"><u>Discover How These 10 Cutting-Edge AI Chatbots Can Elevate Your Communication Game</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Oppo A59 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-what-does-jailbreaking-iphone-15-pro-i-do-get-answers-here-by-drfone-ios/"><u>In 2024, What Does Jailbreaking iPhone 15 Pro i Do? Get Answers here</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ion-air-pro-3-breakdown-review-of-the-latest-action-cam-for-2024/"><u>ION Air Pro 3 Breakdown - Review of the Latest Action Cam for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/stop-file-explorer-disruptions-with-these-7-proven-fixes/"><u>Stop File Explorer Disruptions with These 7 Proven Fixes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/unleash-new-sounds-top-7-voice-transformation-android-apps-for-2024/"><u>Unleash New Sounds Top 7 Voice Transformation Android Apps for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Worldwide Hispanic Voice Network
-date: 2025-01-29T00:36:28.933Z
-updated: 2025-01-30T01:50:05.193Z
+date: 2025-02-04T04:41:38.645Z
+updated: 2025-02-10T16:48:12.995Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  Without further ado, let’s dive in and uncover the full list of Spanish-speaking countries. While we’re at it, we’ll also look into the history behind the expansion of the Spanish language and how many people [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How many people speak Spanish?
@@ -56,16 +56,12 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 !['How many people speak Spanish' by Cecy Alvarado©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/how-many-people-speak-spanish-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish-speaking countries in South America
@@ -98,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  \* the number represents the percentage of the population who speak Spanish.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish-speaking countries in North America
@@ -106,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
 
@@ -128,10 +128,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 * Equatorial Guinea — 74% (percentage of the entire population speaking Spanish)
 
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
 
@@ -159,6 +155,10 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Speak Spanish like a local fast
 
@@ -191,16 +191,20 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-expert-tips-for-skype-calls-best-recording-techniques-freepaid-for-2024/"><u>[New] Expert Tips for Skype Calls Best Recording Techniques (Free/Paid) for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-access-royalty-free-beats-for-your-vlog-and-more/"><u>[Updated] 2024 Approved Access Royalty-Free Beats for Your Vlog & More</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialect-dynamics-portuguese-of-the-two-hemispheres/"><u>Dialect Dynamics: Portuguese of the Two Hemispheres</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gsl-transformation-pearson-and-mondly-join-forces/"><u>GSL Transformation - Pearson & Mondly Join Forces</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-czech-with-online-simplicity-techniques/"><u>Mastering Czech with Online Simplicity Techniques</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-zooming-on-iphoneipad-tips-and-techniques/"><u>Mastering Zooming on iPhone/iPad: Tips & Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oculus-event-practice-your-spanish-and-socialize-in-mondly-vr-multiplayer/"><u>Oculus Event: Practice Your Spanish and Socialize in Mondly VR Multiplayer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-powered-by-100-dynamic-twisters/"><u>Perfect Pronunciation Powered by 100 Dynamic Twisters</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2212465-9780007536924-pisces-2014-your-personal-horoscope/"><u>Pisces 2014: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-lighting-solutions-for-your-home-office-insights-from-zdnet/"><u>Top-Rated Lighting Solutions for Your Home Office - Insights From ZDNet</u></a></li>
-<li><a href="https://fox-that.techidaily.com/understanding-iphone-14s-battery-life-tips-and-troubleshooting-guide/"><u>Understanding iPhone 14'S Battery Life: Tips & Troubleshooting Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-does-immediate-subscribing-affect-content-recommendations-for-2024/"><u>[New] Does Immediate Subscribing Affect Content Recommendations for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-topnotch-recorder-for-windows-users-win-10-for-2024/"><u>[New] TopNotch Recorder for Windows Users (Win 10) for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-address-missing-watch-playback-symbol-for-2024/"><u>[Updated] Address Missing Watch Playback Symbol for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-effortless-techniques-recording-and-storing-gotomeeting-data/"><u>2024 Approved Effortless Techniques Recording and Storing GoToMeeting Data</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-5-amazing-free-youtube-intro-makers-ranked/"><u>In 2024, 5 Amazing Free YouTube Intro Makers Ranked</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-iphonedesktops-top-8-video-transformation-tools/"><u>In 2024, IPhone/Desktop's Top 8 Video Transformation Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-dawns-exchanging-good-mornings-across-languages/"><u>International Dawns: Exchanging Good Mornings Across Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-enchantment-learning-by-playing/"><u>Latin Enchantment: Learning by Playing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-access-to-premium-mondly-zero-price/"><u>Lifetime Access to Premium Mondly: Zero Price</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-ai-transparency-the-veracity-of-chatgpt-in-providing-accurate-information/"><u>Navigating AI Transparency: The Veracity of ChatGPT in Providing Accurate Information</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-for-a-new-chapter-in-communication-with-ai/"><u>Prepare for a New Chapter in Communication with AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rediscovering-languages-first-steps/"><u>Rediscovering Language's First Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/sparkle-with-style-animating-text-in-your-insta-stories-for-2024/"><u>Sparkle with Style Animating Text in Your Insta Stories for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-foundation-of-fluency-9-essential-english-grammar-strategies-by-an-esl-authority/"><u>The Foundation of Fluency: 9 Essential English Grammar Strategies by an ESL Authority</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triumph-in-global-business-with-language-skills/"><u>Triumph in Global Business With Language Skills</u></a></li>
 </ul></div>
 

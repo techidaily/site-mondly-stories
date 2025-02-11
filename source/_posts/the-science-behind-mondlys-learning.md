@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2025-01-28T00:03:00.799Z
-updated: 2025-01-30T04:41:49.877Z
+date: 2025-02-07T02:58:02.024Z
+updated: 2025-02-10T19:55:42.526Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,14 +102,17 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-dawn-of-new-horizons-lighten-up-your-android-vids/"><u>[Updated] 2024 Approved Dawn of New Horizons Lighten Up Your Android Vids</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-essential-knowledge-unmarked-photo-accumulation/"><u>2024 Approved Essential Knowledge Unmarked Photo Accumulation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/8-strategies-for-perfecting-english-grammar-with-esl-insight/"><u>8 Strategies for Perfecting English Grammar with ESL Insight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/flirting-in-german-success-strategies/"><u>Flirting in German: Success Strategies</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gratis-download-professionelle-dvd-dekodierung-software-fur-alle-arten-von-dvds/"><u>Gratis Download: Professionelle DVD-Dekodierung Software Für Alle Arten Von DVDs</u></a></li>
-<li><a href="https://article-tips.techidaily.com/hasty-hacks-for-enhancing-personal-movie-making-for-2024/"><u>Hasty Hacks for Enhancing Personal Movie Making for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hellenic-heirs-language-legacy-and-current-usage/"><u>Hellenic Heirs: Language Legacy & Current Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-premium-lifetime-no-cost-plan/"><u>Mondly Premium: Lifetime, No-Cost Plan</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/total-circles-capture-systems/"><u>Total Circles Capture Systems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-expert-tips-on-choosing-the-best-youtube-to-avi-software/"><u>[New] 2024 Approved Expert Tips on Choosing the Best YouTube-to-AVI Software</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-compilation-of-top-5-mkv-apps-for-mac/"><u>[New] In 2024, Compilation of Top 5 MKV Apps for Mac</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sharing-joy-iphone-memes/"><u>2024 Approved Sharing Joy IPhone Memes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-steps-for-home-based-french-proficiency/"><u>Essential Steps for Home-Based French Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-vietnamese-expressions-a-travelers-guidebook/"><u>Essential Vietnamese Expressions: A Traveler's Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-heartbeats-international-loving-terms-on-14th/"><u>Expressive Heartbeats: International Loving Terms on 14Th</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-francophone-literature-recommended-20-novels/"><u>First Steps in Francophone Literature: Recommended 20 Novels</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-non-functional-bluetooth-drivers-a-step-by-step-for-qualcomm-atheros-on-windows-10/"><u>Fixing Non-Functional Bluetooth Drivers: A Step-by-Step for Qualcomm Atheros on Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-how-mondly-transformed-my-language-learning-top-10/"><u>From Novice to Expert: How Mondly Transformed My Language Learning (Top 10)</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-on-apple-iphone-xr-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 On Apple iPhone XR</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-nokia-130-music-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Nokia 130 Music FRP</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-with-ease-a-review-of-mapmyrides-mapping-capabilities/"><u>Navigating with Ease: A Review of MapMyRide's Mapping Capabilities</u></a></li>
 </ul></div>
 

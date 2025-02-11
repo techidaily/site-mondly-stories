@@ -1,7 +1,7 @@
 ---
 title: Grammar's Impact on Second Language Acquisition
-date: 2024-07-12T08:15:05.781Z
-updated: 2024-07-13T08:15:05.781Z
+date: 2025-02-05T19:01:58.748Z
+updated: 2025-02-10T18:04:45.290Z
 tags:
   - speak
   - english
@@ -30,9 +30,17 @@ One of the best ways to learn a language is to practice both writing the languag
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
 
@@ -40,9 +48,17 @@ Grammar rules are generally about perfecting the written language. This isn’t 
 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **3\. A Lack of Conversational Aspects**
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **4\. A Major Lack of Fun**
 
@@ -62,6 +78,10 @@ Do you feel that grammar holds you back from learning a language? Share your sto
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Speak a new language in just 10 minutes a day
 
 Want to become fluent fast? With Mondly, the award-winning language learning app, you’ll speak any language from day 1\. It’s fun, easy and efficient. Quick Daily Lessons. 5 minutes a day. It’s so entertaining you’ll become addicted. The best part? You’ll be fluent in no time.
@@ -78,8 +98,6 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -87,6 +105,20 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-from-draft-to-delightful-storyboarding-animations-in-movie-maker/"><u>[New] From Draft to Delightful Storyboarding Animations in Movie Maker</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/os-video-editing-made-easy-the-top-5-apps/"><u>[New] IOS Video Editing Made Easy The Top 5 Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unveiling-what-makes-youtube-tv-different-from-others/"><u>[Updated] Unveiling What Makes YouTube TV Different From Others</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-tempo-treasure-trove-compiling-the-best-dj-visuals-download/"><u>2024 Approved Tempo Treasure Trove Compiling the Best DJ Visuals Download</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-german-numbers-1-100/"><u>Beginner's Guide to German Numbers 1-100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-of-dawn-greetings-a-multilingual-morning-salutation-list/"><u>Break of Dawn Greetings: A Multilingual Morning Salutation List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-of-arabic-starting-point-explored/"><u>Dawn of Arabic: Starting Point Explored</u></a></li>
+<li><a href="https://article-files.techidaily.com/discover-how-to-tailor-your-snapchat-videos-speed-and-tempo/"><u>Discover How To Tailor Your Snapchat Videos' Speed & Tempo</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effortless-communication-messaging-loved-ones-via-apple-watch/"><u>Effortless Communication: Messaging Loved Ones via Apple Watch</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/guide-how-to-attract-more-nfl-viewers-for-your-sports-live-streaming-channel-for-2024/"><u>Guide How to Attract More NFL Viewers for Your Sports Live Streaming Channel for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-saving-on-cameras-the-best-value-of-cheap-action-choices/"><u>In 2024, Saving on Cameras The Best Value of Cheap ACTION Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577209551-rapid-mastery-of-latvian-language-10-minute-sessions/"><u>Rapid Mastery of Latvian Language, 10-Minute Sessions</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/revolutionize-your-business-with-ipatchsolutions-the-ultimate-project-management-tool/"><u>Revolutionize Your Business with IPatchSolutions: The Ultimate Project Management Tool</u></a></li>
+</ul></div>
 

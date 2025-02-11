@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2025-01-24T23:02:57.901Z
-updated: 2025-01-30T02:31:32.106Z
+date: 2025-02-04T00:05:57.014Z
+updated: 2025-02-11T02:04:24.913Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  Here’s a quick guide to all the basics you need to know about Persian before deciding whether you want to learn Persian or not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Is Persian a language?
 
  **Yes, Persian is very much a language. Known to its native speakers as Farsi, Persian is the official language of modern-day Iran.** Additionally, two varieties of Persian known as Dari and Tajik are the official languages of parts of Afghanistan and the central Asian republic of Tajikistan. Having over 70 million native speakers, Persian is one of the most important members of the Indo-Iranian branch of the [Indo-European family of languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -33,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Persian language – history and facts
@@ -53,12 +49,16 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Persian influence on other languages
 
@@ -76,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
  Considering their shared history presented above, Persian and Arabic developed to become somehow similar, but not as similar as many think.
@@ -93,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
@@ -115,6 +111,10 @@ Other benefits of learning Persian include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
 
@@ -147,17 +147,15 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-120plus-original-title-concepts-for-unique-and-memorable-snapchat-stories/"><u>[New] 2024 Approved 120+ Original Title Concepts for Unique and Memorable Snapchat Stories</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-the-ultimate-checklist-for-broadcasting-on-discord/"><u>[Updated] 2024 Approved The Ultimate Checklist for Broadcasting on Discord</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/50-popular-latin-phrases-to-impress-your-friends/"><u>50 Popular Latin Phrases to Impress Your Friends</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138591999-9781469746562-a-beautiful-mind-wasted/"><u>A Beautiful Mind Wasted | Free Book</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/acer-ryzen-graphics-driver-download-free-and-latest-version/"><u>Acer Ryzen Graphics Driver Download - Free & Latest Version</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/asus-ax6000-rt-ax88u-in-depth-analysis-of-a-leading-wi-fi-6-router-with-advanced-capabilities/"><u>Asus AX6000 RT-AX88U: In-Depth Analysis of a Leading Wi-Fi 6 Router with Advanced Capabilities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578913208-how-to-say-thank-you-in-30-different-languages/"><u>How To Say Thank You In 30 Different Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-a-gateway-to-smart-minds/"><u>Language Learning - A Gateway to Smart Minds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mast-hopping-lingo-key-pirate-words-for-authenticity/"><u>Mast-Hopping Lingo: Key Pirate Words for Authenticity</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/master-warzone-20-pc-setup-uncover-these-7-essential-tweaks-to-avoid-start-up-hurdles/"><u>Master Warzone 2.0 PC Setup: Uncover These 7 Essential Tweaks to Avoid Start-Up Hurdles</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-hardest-speakers-challenge-deciphering-tough-languages/"><u>The Hardest Speakers' Challenge: Deciphering Tough Languages</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-step-by-step-audio-capture-in-garageband-your-personalized-tutorial/"><u>Updated 2024 Approved Step-by-Step Audio Capture in GarageBand Your Personalized Tutorial</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-compreran-exploration-of-giroptics-panorama/"><u>[Updated] Compreran Exploration of Giroptic's Panorama</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-streams-for-gamers-unveiled/"><u>2024 Approved Ultimate Streams for Gamers Unveiled</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/boosting-trust-in-e-mobility-how-chargepoint-is-advancing-the-reliability-of-ev-chargers-with-their-new-plan/"><u>Boosting Trust in E-Mobility: How ChargePoint Is Advancing the Reliability of EV Chargers with Their New Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-endorsed-mondly-your-language-mastery-guide/"><u>Google Endorsed: Mondly - Your Language Mastery Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/guaranteeing-corrected-status-for-windows-monitor/"><u>Guaranteeing Corrected Status for Windows Monitor</u></a></li>
+<li><a href="https://win-dash.techidaily.com/guide-to-conserve-data-with-audio-playback-from-youtube-videos/"><u>Guide to Conserve Data with Audio Playback From YouTube Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-vivo-s17-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Vivo S17 Without PUK Codes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-by-pearson/"><u>Mondly By Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redefining-language-learning-in-the-digital-age-via-ai/"><u>Redefining Language Learning in the Digital Age via AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/travel-talk-essential-french-for-every-francophile/"><u>Travel Talk: Essential French for Every Francophile</u></a></li>
 </ul></div>
 

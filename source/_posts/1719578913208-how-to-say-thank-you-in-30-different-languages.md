@@ -1,7 +1,7 @@
 ---
 title: How To Say Thank You In 30 Different Languages
-date: 2024-07-12T08:14:49.767Z
-updated: 2024-07-13T08:14:49.767Z
+date: 2025-02-05T17:03:30.472Z
+updated: 2025-02-10T22:32:34.823Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,7 +60,15 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -81,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -102,8 +118,6 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -111,6 +125,20 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-saving-social-media-stories-chromes-top-5-tools-for-2024/"><u>[New] Saving Social Media Stories Chromes' Top 5 Tools for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-chronicles-of-charms-a-compreentic-toolkit-for-twitters-visual-treasures-for-2024/"><u>[Updated] Chronicles of Charms A Compreentic Toolkit for Twitter's Visual Treasures for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-comparing-screen-capture-software-features-bandicam-and-camtasia/"><u>2024 Approved Comparing Screen Capture Software Features Bandicam & Camtasia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-learning-latin-online-naturally/"><u>Accelerate Learning Latin Online, Naturally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-basics-for-first-timers/"><u>Arabic Basics for First-Timers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-redmi-k70-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Redmi K70 Pro to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-from-iphone-14-plus-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue From iPhone 14 Plus</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-fixes-for-already-used-error-on-windows-pcs-153-chars/"><u>Quick Fixes for 'Already Used' Error on Windows PCs (153 Chars)</u></a></li>
+<li><a href="https://fox-making.techidaily.com/so-kopieren-sie-ihr-bootfahiges-windows-1011-betriebssystem-schnell-auf-einen-usb-stick/"><u>So Kopieren Sie Ihr Bootfähiges Windows 10/11 Betriebssystem Schnell Auf Einen USB-Stick</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577749458-sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210727488-9780760353646-the-ancient-egyptian-book-of-the-dead/"><u>The Ancient Egyptian Book of the Dead | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580375581-the-best-way-to-learn-korean-online-6-brilliant-resources/"><u>The Best Way To Learn Korean Online - 6 Brilliant Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579536662-unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96% Off!</u></a></li>
+</ul></div>
 

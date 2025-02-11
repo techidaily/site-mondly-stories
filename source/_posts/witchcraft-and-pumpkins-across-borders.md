@@ -1,7 +1,7 @@
 ---
 title: Witchcraft & Pumpkins Across Borders
-date: 2024-09-16T18:45:08.302Z
-updated: 2024-09-21T19:13:09.530Z
+date: 2025-02-09T18:23:22.037Z
+updated: 2025-02-10T22:45:29.034Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/9681e2a52e53572a5b2a969e09d45c7b049caa711
 
 ## Halloween-like Traditions Worldwide
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mexico: Día de Muertos (Day of the Dead)
 
  Inscribed in the UNESCO Representative List of the Intangible Cultural Heritage of Humanity,_Día de los Muertos_ is celebrated yearly on October 31, November 1, and November 2 to coincide with the celebration the Allhallowtide: All Saints’ Eve, All Saints’ Day, and All Souls’ Day.
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/9681e2a52e53572a5b2a969e09d45c7b049caa711
  The same as Halloween,_Día de Muertos_ is a celebration of the afterlife. Friends and family gather to remember and pray for their loved ones who have died. Mexicans view death as a natural part of the human cycle and praying for someone who has died as a way of helping them in their spiritual journey. So Día de Muertos is not a day of sadness, but one of celebration and color!
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Calaveras” by Valeria Almaraz©
 
@@ -45,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/9681e2a52e53572a5b2a969e09d45c7b049caa711
  Celebrated yearly during the seventh month in the lunar calendar (September, also known as the Ghost Month) with a peak on the 15th day (also known as Ghost Day), one of the most interesting traditions of the Hungry Ghost Festival is serving meals (often vegetarian) with empty seats for each deceased in the family and treating the deceased as if they are still living.
 
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
 
@@ -65,16 +77,7 @@ thumbnail: https://thmb.techidaily.com/9681e2a52e53572a5b2a969e09d45c7b049caa711
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
@@ -82,10 +85,7 @@ thumbnail: https://thmb.techidaily.com/9681e2a52e53572a5b2a969e09d45c7b049caa711
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
@@ -134,5 +134,20 @@ thumbnail: https://thmb.techidaily.com/9681e2a52e53572a5b2a969e09d45c7b049caa711
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-leading-tools-to-record-your-desktop/"><u>[New] 2024 Approved Leading Tools to Record Your Desktop</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-leading-lights-in-the-world-of-game-tiktoks/"><u>[Updated] 2024 Approved Leading Lights in the World of Game TikToks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-make-the-most-of-youtube-tv-offerings/"><u>2024 Approved How to Make the Most of YouTube TV Offerings</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brit-english-for-beginners-easier-ways-to-learn/"><u>Brit English for Beginners: Easier Ways to Learn</u></a></li>
+<li><a href="https://app-tips.techidaily.com/can-you-master-artificial-intelligence-without-technical-expertise-understanding-the-need-for-varied-education-in-complex-systems-zdnet/"><u>Can You Master Artificial Intelligence Without Technical Expertise? Understanding the Need for Varied Education in Complex Systems | ZDNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-corazon-humano-en-espanol-un-viaje-intrigante-desde-el-niveles-superiores-al-subterraneo/"><u>Descubre El Corazón Humano en Español: Un Viaje Intrigante Desde El Niveles Superiores Al Subterráneo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-bilingual-superpowers-6-highlighted/"><u>Exploring Bilingual Superpowers: #6 Highlighted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-eloquence-top-tutors-for-articulation-skills/"><u>Expressive Eloquence: Top Tutors for Articulation Skills</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-how-to-get-people-to-subscribe-to-your-youtube-channel/"><u>In 2024, How to Get People to Subscribe to Your YouTube Channel</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-xiaomi-redmi-12-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Xiaomi Redmi 12 for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/ranking-the-best-cameras-that-dont-feature-a-gopro-brand-for-2024/"><u>Ranking the Best Cameras That Don't Feature a GoPro Brand for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-realme-c53-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Realme C53 without Him Knowing | Dr.fone</u></a></li>
+</ul></div>
 

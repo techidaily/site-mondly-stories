@@ -1,7 +1,7 @@
 ---
 title: "Say It Like A Local: Essential 17 Spanish Proverbs"
-date: 2024-09-16T19:52:56.374Z
-updated: 2024-09-21T17:33:43.001Z
+date: 2025-02-04T20:03:44.751Z
+updated: 2025-02-10T22:19:19.828Z
 tags:
   - speak
   - english
@@ -48,14 +48,11 @@ thumbnail: https://thmb.techidaily.com/4a4e8f7773cbb7ba2441b2203815dab13dab20d5c
 
 ![spanish expressions](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-expressions-960x638.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Valldemossa, Spain” by Patrick Baum©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Cuando el río suena, agua lleva
 
@@ -79,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/4a4e8f7773cbb7ba2441b2203815dab13dab20d5c
 
 Who wouldn’t prefer cakes over bread though?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. El hábito no hace al monje
 
 **Literal translation:** The habit doesn’t make the monk.
@@ -88,10 +89,7 @@ Who wouldn’t prefer cakes over bread though?
  Don’t ever judge a person solely by appearances because this is not a reliable indication of the true character of that person. No matter if it’s a positive or a negative bias. You might be surprised.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Mucho ruido y pocas nueces
@@ -114,13 +112,6 @@ Who wouldn’t prefer cakes over bread though?
 
 ![spanish saying](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-saying-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 3")
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Barcelona, Spain” by Toa Heftiba©
 
 ### 10\. En casa del herrero, cuchillo de palo
@@ -136,6 +127,10 @@ Who wouldn’t prefer cakes over bread though?
  Now, let’s move on to a more tricky business: Spanish sayings with no direct English equivalents. To help you fully understand these, we’ll give you some examples.
 
  Oh, and don’t tell anyone you know it from us, but learning sayings to sound like a native it’s kind of a gimmick. Or a shortcut – to put it more elegantly. Lucky for you,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5924&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es) is all about language learning gimmicks, so don’t hesitate to check out [the app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5924&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es) and speak Spanish with ease in just 10 minutes a day.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Al mal tiempo, buena cara
 
@@ -164,10 +159,7 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 ![spanish phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-phrases-1-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 4")
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
@@ -185,6 +177,10 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
  _– Estoy un poco nervioso para mañana, pero espero que todo salga bien con el nuevo proyecto._ (“I’m a little nervous for tomorrow, but I hope all will be well with the new project.”)
 
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Como Pedro por su casa
 
@@ -206,6 +202,10 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. A caballo regalado no se le mira el diente
 
 **Literal translation:** A gift horse does not look at the tooth.
@@ -216,13 +216,6 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
 ![spanish idioms](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-idioms-960x720.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “A man and his dog in San Sebastián, Spain” by Lucian Alexe©
 
 ### 2\. Más vale pájaro en mano que ciento volando
@@ -232,6 +225,10 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 **English equivalent or meaning:** “A bird in the hand is worth two in the bush.”
 
 In other words, don’t risk losing everything by seeking to get more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. En boca cerrada no entran moscas
 
@@ -249,6 +246,10 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Speak Spanish fluently in just 10 minutes a day
 
@@ -273,5 +274,21 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-how-tos-selecting-free-powerful-iphoneipad-edits/"><u>[New] 2024 Approved How-To's Selecting Free, Powerful iPhone/iPad Edits</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-discover-how-to-thrive-in-tiktok-lives-from-desktop/"><u>[New] In 2024, Discover How to Thrive in TikTok Lives From Desktop</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-stepwise-strategies-building-a-playlist-on-youtube/"><u>[New] In 2024, Stepwise Strategies Building a Playlist on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-tastemakers-playbook-recipes-for-attractive-channel-names/"><u>[New] In 2024, Tastemakers' Playbook Recipes for Attractive Channel Names</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-use-your-switch-pro-controller-on-steam-for-2024/"><u>[Updated] How to Use Your Switch Pro Controller on Steam for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/alphabetization-in-chinese-writing-systems/"><u>Alphabetization in Chinese Writing Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-strategies-efficient-czech-studies-start-here/"><u>Digital Strategies: Efficient Czech Studies Start Here</u></a></li>
+<li><a href="https://techtrends.techidaily.com/duelling-digitally-essential-techniques-for-friendly-battles-in-the-world-of-pokemon-go/"><u>Duelling Digitally: Essential Techniques for Friendly Battles in the World of Pokémon GO</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-advanced-dialogue-introducing-new-ai/"><u>Embrace Advanced Dialogue: Introducing New AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-educators-celebration-multilingual-homage/"><u>Global Educators Celebration: Multilingual Homage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/gopro-hero5-black-vs-hero5-standard/"><u>GoPro Hero5 Black vs Hero5 Standard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/take-your-portuguese-skills-to-new-heights-discover-6-effective-methods/"><u>Take Your Portuguese Skills to New Heights: Discover 6 Effective Methods</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-picks-for-ultimate-gaming-displays-insights-from-zdnet/"><u>Top Picks for Ultimate Gaming Displays - Insights From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unity-in-diversity-mastering-cultural-exchange-techniques/"><u>Unity in Diversity: Mastering Cultural Exchange Techniques</u></a></li>
+</ul></div>
 

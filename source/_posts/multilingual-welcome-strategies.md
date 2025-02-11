@@ -1,7 +1,7 @@
 ---
 title: Multilingual Welcome Strategies
-date: 2024-07-12T08:15:26.514Z
-updated: 2024-07-13T08:15:26.514Z
+date: 2025-02-07T21:30:43.542Z
+updated: 2025-02-11T01:59:19.712Z
 tags:
   - speak
   - english
@@ -34,17 +34,29 @@ thumbnail: https://thmb.techidaily.com/7713f731aa5d1a79b016145c24d7f030b3ba8189c
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-russian-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Hello Russia” by Michael Parulava©
 
  At the same time,**_Здравствуйте (Zdravstvuyte)_** is also a very nice way to greet your Russian friends. The root of the word actually goes back to the expression “to be healthy and well” so it is also a wish for good health.
 
  Wanna dig deeper into Russian greetings? Here are five different ways to say [**‘hello’ in Russian**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hello in Japanese — こんにちは (Kon’nichiwa)
 
  The same as the Spanish_hola_ ,**_Kon’nichiwa_** is a kind of universal Japanese greeting that can be used safely in all sorts of social contexts. There are two exceptions, though. Early in the morning and late at night, you should use the specific greetings dedicated to certain moments of the day. To learn more about them, check out this in-depth guide on how to say **[‘hello’ in Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
 
@@ -100,6 +112,10 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hello in Portuguese — Olá
 
 **_Olá_ or_Oi_ ?** What’s your Portuguese hello of choice?
@@ -113,6 +129,10 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Hello” by Octavian Dan©
 
@@ -173,8 +193,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -182,6 +200,20 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/updated-ace-list-of-low-cost-youtube-caption-tools/"><u>[Updated] Ace List of Low-Cost YouTube Caption Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578225825-2022-speak-anywhere-for-a-bargain-priced-language-bundle/"><u>2022: Speak Anywhere for a Bargain-Priced Language Bundle!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/7-key-elements-for-perfect-instagram-unpackings-for-2024/"><u>7 Key Elements for Perfect Instagram Unpackings for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-xiaomi-14-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-alphabet-introduction-to-chinese-letters/"><u>Chinese Alphabet: Introduction To Chinese Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-japanese-online-paths-for-independent-and-free-learning/"><u>Conquer Japanese: Online Paths for Independent and Free Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/difficulty-levels-studying-german/"><u>Difficulty Levels: Studying German</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-avoid-watermarks-in-stock-purchases/"><u>How To Avoid Watermarks in Stock Purchases</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-dissecting-biggest-fifa-footage-trends-in-graphs/"><u>In 2024, Dissecting Biggest FIFA Footage Trends in Graphs</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-realme-c55-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Realme C55 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-multimedia-a-detailed-review-of-video-editors/"><u>Mastering Multimedia A Detailed Review of Video Editors</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-aol-mail-understanding-downtime-or-user-issues/"><u>Troubleshooting AOL Mail: Understanding Downtime or User Issues?</u></a></li>
+</ul></div>
 

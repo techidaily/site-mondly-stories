@@ -1,7 +1,7 @@
 ---
 title: Your Handbook to Conversational Russian for Travelers
-date: 2025-01-26T01:25:18.255Z
-updated: 2025-01-29T19:23:53.323Z
+date: 2025-02-05T04:20:34.167Z
+updated: 2025-02-10T20:04:28.071Z
 tags:
   - speak
   - english
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 7. [Basic Russian phrases for shopping sprees](#basic-russian)
 8. [Russia Travel Guide – how to say that you have fallen in love?](#russia-travel-guide)
 9. [Bonus basic Russian phrases for FIFA World Cup 2018](#russian-phrases-world-cup)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Greetings and other useful Russian words
 
@@ -81,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 ![useful russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Tom Barrett
@@ -110,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * Where is the bus station, please? – _Скажите пожалуйста, где автобусная остановка? – Skazhyte pozhaluysta, gde avtobusnaya ostanovka?_
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Photo by A.L.
 
@@ -152,10 +160,6 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 
 ![russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-words-1024x684.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Photo by Max Delsid
 
 * My wife would like a bowl of soup. –_Моей жене – суп. – Moyey zhene – sup._
@@ -171,6 +175,10 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -180,7 +188,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Russian for travelers who want to have fun
@@ -216,10 +224,6 @@ Just joking. Still is an amazing drink, though!
 
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Photo by Alina Grubnyak
 
 * How much are they? –_Сколько они стоят? – Skolko oni stoyat?_
@@ -242,10 +246,6 @@ Just joking. Still is an amazing drink, though!
 
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Photo by Greg Rakozy
 
 * May I hold your hand? –_Можно взять тебя за руку? – Mozhno vzyat tebya za ruku?_
@@ -258,7 +258,7 @@ Just joking. Still is an amazing drink, though!
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: Basic Russian phrases for football lovers
@@ -303,17 +303,20 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-haul-videography-unlocked-step-by-step-guide-for-enthusiasts/"><u>2024 Approved Haul Videography Unlocked Step-by-Step Guide for Enthusiasts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-innovative-app-for-video-consumption-analysis/"><u>2024 Approved Innovative App for Video Consumption Analysis</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-jujutsu-kaisen-characters-in-the-world-of-tiktok-creatives/"><u>2024 Approved Jujutsu Kaisen Characters in the World of TikTok Creatives</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-youtube-to-dailymotion-transferring-videos-seamlessly/"><u>2024 Approved YouTube to Dailymotion Transferring Videos Seamlessly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-a-comparative-study-on-pt-shortcuts/"><u>Brazilians vs Europeans: A Comparative Study on PT Shortcuts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/insider-tips-on-french-salutations-from-salut-to-sincere-smiles/"><u>Insider Tips on French Salutations: From 'Salut' To Sincere Smiles</u></a></li>
-<li><a href="https://win-bits.techidaily.com/master-web-development-through-enhanced-html-modification-in-emeditor/"><u>Master Web Development Through Enhanced HTML Modification in EmEditor</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/next-gen-amd-unleashed-the-zen-5-mobile-chip-that-packs-desktop-power-at-just-115w-spotted-in-leaked-photos-of-the-mighty-ryzen-strix-halo-with-a-whopping-179/"><u>Next-Gen AMD Unleashed: The Zen 5 Mobile Chip That Packs Desktop Power at Just 115W - Spotted in Leaked Photos of the Mighty Ryzen Strix Halo with a Whopping 16 Cores & RDNA Graphics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathways-from-canadian-twang-to-british-cockney/"><u>Pronunciation Pathways: From Canadian Twang to British Cockney</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-patterns-for-the-new-swede/"><u>Pronunciation Patterns for the New Swede</u></a></li>
-<li><a href="https://windows11.techidaily.com/remedying-could-not-create-vm-problems-in-microsoft-os/"><u>Remedying 'Could Not Create VM' Problems in Microsoft OS</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/reviving-deleted-or-lost-gmail-correspondence-with-easy-backup-retrieval-methods/"><u>Reviving Deleted or Lost Gmail Correspondence with Easy Backup Retrieval Methods</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ponsoring-made-simple-boosting-your-channel-budget-efficiently/"><u>[New] Sponsoring Made Simple Boosting Your Channel Budget Efficiently</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-social-media-marketing-get-more-viewers-with-youtube/"><u>[Updated] 2024 Approved Social Media Marketing Get More Viewers with YouTube</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-insightful-analysis-of-modern-human-interaction-systems/"><u>[Updated] In 2024, Insightful Analysis of Modern Human Interaction Systems</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-how-to-tweet-videos-on-iphoneandroid-without-a-retweet/"><u>2024 Approved How To Tweet Videos on iPhone/Android Without a Retweet</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-samsung-galaxy-f04-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Samsung Galaxy F04? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-play-mkv-movies-on-huawei-nova-y71-by-aiseesoft-video-converter-play-mkv-on-android/"><u>How do I play MKV movies on Huawei Nova Y71?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Xiaomi Redmi Note 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-xiaomi-redmi-k70-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Xiaomi Redmi K70 Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-on-japanese-number-acumen-today/"><u>Jumpstart on Japanese Number Acumen Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thank-you-in-chinese-xiexie-and-12-other-thank-you-chinese-phrases/"><u>Thank You in Chinese: Xièxiè and 12 Other Thank You Chinese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-inspirational-journey-of-johannes-honterus/"><u>The Inspirational Journey of Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-music-when-learning-a-new-language-sing-that-language/"><u>The Power Of Music When Learning A New Language – Sing That Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timing-your-way-to-linguistic-excellence/"><u>Timing Your Way to Linguistic Excellence</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlock-the-best-live-stream-options-today/"><u>Unlock the Best Live Stream Options Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-invest-in-your-future-with-german/"><u>Why Invest in Your Future with German</u></a></li>
 </ul></div>
 

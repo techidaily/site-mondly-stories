@@ -1,7 +1,7 @@
 ---
 title: "Italian Dialogues: Key Phrases to Enhance Your Visit"
-date: 2025-01-27T16:47:41.378Z
-updated: 2025-01-30T05:38:36.518Z
+date: 2025-02-05T00:50:21.693Z
+updated: 2025-02-10T20:05:48.054Z
 tags:
   - speak
   - english
@@ -59,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ![italian phrases english translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-phrases-english-translation-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Manarola, Italy” by Marc Zimmer©
 
 ## 2\. Basic Italian phrases for travelers that need help
@@ -86,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * Please wait a moment. –_Aspetti un momento, per favore._
 * I’ll be back immediately. –_Ritorno subito._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Italian phrases for food lovers
 
  Food is a crucial part of a trip to Italy. No one – and I mean not even a single soul, not even Arya Stark – leaves Italy without indulging on mountains of pizza, pasta and [gelato](https://en.wikipedia.org/wiki/Gelato) . So here’s**how to order drinks or food in Italian restaurants:**
@@ -108,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * I would like a coffee. –_Vorrei un caffè._
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
  Looking for the perfect accommodation can be a real headache sometimes. Well, imagine you did find it, but the hosts only speak Italian. How will you deal with that? Some**basic Italian** would surely be useful in this situation.
@@ -120,10 +124,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * How was your stay with us? –_Come è stato il suo soggiorno con noi?_
 * Very pleasant, thank you. –_Molto piacevole, grazie._
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Italian for tourists who want to have fun
 
@@ -143,7 +143,7 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * Are there seats available? –_Ci sono posti disponibili?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Italian phrases about love
@@ -168,14 +168,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Vernazza, Italy” by Daniil Vnoutchkov
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Days of the week and numbers in Italian
 
@@ -222,6 +218,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Speak Italian fluently in just 10 minutes a day
 
  Do you want to see these Italian phrases in action in real-life conversations? Get Mondly, the award-winning language learning app that will [help you speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were Tuscany-born.
@@ -247,17 +247,21 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-digital-experts-5-favorite-video-recorders/"><u>[New] 2024 Approved Digital Experts' 5 Favorite Video Recorders</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quintessential-play-by-radio-stories/"><u>[Updated] Quintessential Play-by-Radio Stories</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/alexas-essence-in-miniature-discover-why-the-3rd-gen-echo-dot-is-a-game-changer/"><u>Alexa's Essence in Miniature: Discover Why the 3Rd Gen Echo Dot Is a Game-Changer!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparing-englishes-across-seas/"><u>Comparing Englishes Across Seas</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effective-solutions-to-revive-a-dysfunctional-lenovo-keyboard-glow/"><u>Effective Solutions to Revive a Dysfunctional Lenovo Keyboard Glow</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-phrases-explained-deciphering-prevalent-slang/"><u>Everyday Phrases Explained: Deciphering Prevalent Slang</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-watcher-to-writer-embrace-the-linguistic-journey-of-ks/"><u>From Watcher to Writer: Embrace the Linguistic Journey of KS</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-securely-get-the-latest-samsung-usb-adb-driver/"><u>How to Securely Get the Latest Samsung USB ADB Driver</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-beginners-ultimate-list-of-must-have-video-tech/"><u>In 2024, Beginner's Ultimate List of Must-Have Video Tech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-worlds-vocabulary-dollars-into-english/"><u>The World’s Vocabulary Dollars Into English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-basic-arabic-a-beginners-course/"><u>Unveiling Basic Arabic: A Beginner's Course</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-break-it-down-streamlining-video-length-with-efficient-chapter-breaks-on-youtube/"><u>[New] 2024 Approved Break It Down Streamlining Video Length with Efficient Chapter Breaks on YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-harmony-hunt-uncover-the-most-popular-free-downloader-apps-on-youtube-and-android/"><u>[Updated] 2024 Approved Harmony Hunt - Uncover the Most Popular Free Downloader Apps on YouTube and Android</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-psd-layer-control/"><u>2024 Approved Ultimate PSD Layer Control</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-busted-the-real-power-of-polyglots/"><u>5 Myths Busted: The Real Power of Polyglots</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-comprehveive-tutorial-displaying-source-codes-in-your-word-docs/"><u>A Comprehveive Tutorial: Displaying Source Codes in Your Word Docs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connective-horizons-proven-methods-for-intercultural-conversation/"><u>Connective Horizons: Proven Methods for Intercultural Conversation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decode-german-eloquence-top-16-thank-you-expressions/"><u>Decode German Eloquence: Top 16 'Thank You' Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/does-rigidity-thwart-language-acquisition/"><u>Does Rigidity Thwart Language Acquisition?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581908867-effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquent-expression-100-twisting-challenges-await/"><u>Eloquent Expression: 100 Twisting Challenges Await</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fix-why-is-cyberpunk-2077-ignoring-my-graphics-card-on-windows-10/"><u>Fix: Why Is Cyberpunk 2077 Ignoring My Graphics Card on Windows 10?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/from-raw-recordings-to-professional-vids-webcam-edition/"><u>From Raw Recordings to Professional Vids - Webcam Edition</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/how-to-fix-apowermanager-note-reading-issues-on-ios-devices/"><u>How to Fix ApowerManager Note Reading Issues on iOS Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579935808-ignite-cultural-curiosity-with-hindi-experience-7-exciting-mondly-benefits/"><u>Ignite Cultural Curiosity with Hindi - Experience 7 Exciting Mondly Benefits</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-effective-methods-share-twitch-stream-on-facebook/"><u>In 2024, Effective Methods | Share Twitch Stream on Facebook?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/maximizing-earnings-on-snapchat-platforms-for-2024/"><u>Maximizing Earnings on Snapchat Platforms for 2024</u></a></li>
 </ul></div>
 

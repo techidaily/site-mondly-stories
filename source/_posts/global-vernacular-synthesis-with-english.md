@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Synthesis with English
-date: 2024-07-12T08:16:58.054Z
-updated: 2024-07-13T08:16:58.054Z
+date: 2025-02-08T17:31:30.728Z
+updated: 2025-02-10T21:47:23.375Z
 tags:
   - speak
   - english
@@ -28,7 +28,9 @@ thumbnail: https://thmb.techidaily.com/9e69a0e784bd3ae3dd472d66f7b82a73a597b4e83
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Where did English Come From?
 
@@ -75,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/9e69a0e784bd3ae3dd472d66f7b82a73a597b4e83
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -86,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/9e69a0e784bd3ae3dd472d66f7b82a73a597b4e83
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -165,6 +175,10 @@ thumbnail: https://thmb.techidaily.com/9e69a0e784bd3ae3dd472d66f7b82a73a597b4e83
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -188,6 +202,10 @@ thumbnail: https://thmb.techidaily.com/9e69a0e784bd3ae3dd472d66f7b82a73a597b4e83
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -238,8 +256,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,6 +263,22 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-navigating-pip-functionality-in-apples-browsers/"><u>[New] In 2024, Navigating PIP Functionality in Apple's Browsers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-ultimate-list-top-free-screen-recorder-tools-for-easy-capture/"><u>[New] Ultimate List Top Free Screen Recorder Tools for Easy Capture</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solved-it-takes-two-not-launch/"><u>[SOLVED] It Takes Two Not Launch</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-places-for-discovering-premium-soundtracks-from-instagram-and-designing-exceptional-ringtone-alerts/"><u>[Updated] Top Places for Discovering Premium Soundtracks From Instagram & Designing Exceptional Ringtone Alerts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asian-language-phenomena-prime-rankings-unveiled/"><u>Asian Language Phenomena: Prime Rankings Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-doses-of-urdu-ten-minutes-lifelong-gain/"><u>Daily Doses of Urdu: Ten Minutes, Lifelong Gain</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-bringing-bygone-era-filmmaking-to-life-today/"><u>In 2024, Bringing Bygone Era Filmmaking to Life Today</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastery-in-motion-an-in-depth-look-at-polarrs-toolset/"><u>In 2024, Mastery in Motion An In-Depth Look at Polarr’s Toolset</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/invitations-francaises-au-gre-de-merci/"><u>Invitations Françaises Au Gré De 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581006400-language-barriers-break-for-a-minimal-0-today/"><u>Language Barriers Break for a Minimal $0 Today!</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1726029797481-obs-studio/"><u>OBS Studioによるフルスクリーンキャプチャの技術ガイド</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/olympian-odes-tracing-the-evolution-of-greek/"><u>Olympian Odes: Tracing the Evolution of Greek</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-samsung-galaxy-a24-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Samsung Galaxy A24 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-grev-for-sverige/"><u>Tänk Om Sverige: Grev För Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-elite-examination-and-certification-prep/"><u>Unlock Your Potential: Elite Examination and Certification Prep</u></a></li>
+</ul></div>
 

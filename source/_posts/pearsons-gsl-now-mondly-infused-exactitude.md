@@ -1,7 +1,7 @@
 ---
 title: "Pearson's GSL Now: Mondly-Infused Exactitude"
-date: 2025-01-26T01:20:56.100Z
-updated: 2025-01-30T02:35:28.597Z
+date: 2025-02-08T17:40:25.151Z
+updated: 2025-02-10T18:32:53.541Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
  The Global Scale of Languages (GSL) helps educators and language learners know where they are, where they need to go and how they can get there.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Starting with the Global Scale of English (GSE)**
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -42,16 +46,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -59,6 +59,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
 * **Confidence in clarity:**  The GSL enables learners to pinpoint their strengths in reading, writing, listening, and speaking with a straightforward 10-90 scale. This level of clarity fosters motivation and boosts learners’ confidence.
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
 
@@ -69,7 +73,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
@@ -82,10 +86,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
 
@@ -108,18 +108,20 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-essential-skills-for-non-audio-shooting/"><u>[New] Essential Skills for Non-Audio Shooting</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-your-essential-list-of-the-finest-ios-ps2-emulators-for-2024/"><u>[New] Your Essential List of the Finest iOS PS2 Emulators for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-7-pulse-pounding-workouts-that-gain-traction-on-social-media/"><u>[Updated] In 2024, 7 Pulse-Pounding Workouts That Gain Traction on Social Media</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crossing-languages-turkey-and-koreas-tale/"><u>Crossing Languages: Turkey & Korea's Tale</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-poco-m6-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Poco M6 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-year-new-language-your-new-year-aspirations/"><u>New Year, New Language: Your New Year Aspirations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/silver-tongues-senior-brains-and-new-languages/"><u>Silver Tongues: Senior Brains & New Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-learning-russian-arithmetic/"><u>Step-by-Step Guide: Learning Russian Arithmetic</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-generating-visuals-using-dall-e-and-chatgpt-4-integration/"><u>The Ultimate Guide to Generating Visuals Using DALL-E and ChatGPT-4 Integration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-linguistic-journey-key-immersive-strategies/"><u>The Ultimate Linguistic Journey: Key Immersive Strategies</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/trasforma-mp4-in-wmv-senza-costi-guida-rapida-al-servizio-di-conversione-video-gratuito-di-movavi/"><u>Trasforma MP4 in WMV Senza Costi: Guida Rapida Al Servizio Di Conversione Video Gratuito Di Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/upgrade-to-cutting-edge-ai-chat-companions/"><u>Upgrade to Cutting-Edge AI Chat Companions</u></a></li>
-<li><a href="https://video-capture.techidaily.com/wonderfox-dvd-to-video-conversion-exclusive-discounts-and-gifts-for-gemaste-readers/"><u>WonderFox DVD-to-Video Conversion: Exclusive Discounts and Gifts for Gemaste Readers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-your-asmr-experience-with-top-tier-mics-for-2024/"><u>[Updated] Enhance Your ASMR Experience with Top-Tier Mics for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ultimate-guide-prime-video-stabilizers-for-2024/"><u>[Updated] Ultimate Guide Prime Video Stabilizers for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/cerebras-releases-revolutionary-wse-section-1-advanced-problem-on-antenna-ground-systems/"><u>Cerebras Releases Revolutionary WSE- # Section 1: Advanced Problem on Antenna Ground Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/erfolgreich-lesen-die-deutschen-von-eins-bis-hundert/"><u>Erfolgreich Lesen: Die Deutschen Von Eins Bis Hundert</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-urdu-phrases-and-words-beginners-guide/"><u>Essential Urdu Phrases and Words Beginner's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-colors-in-fast-french-speech/"><u>Expressive Colors in Fast French Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-futures-shape-your-world-with-new-languages-vr/"><u>Fluent Futures: Shape Your World with New Languages VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-films-unveiling-the-world-of-words/"><u>Foreign Films Unveiling the World of Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forties-fluency-why-language-mastery-matters-now-more-than-ever/"><u>Forties Fluency: Why Language Mastery Matters Now More Than Ever</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-what-are-the-best-sites-to-download-google-pixel-ringtones/"><u>In 2024, What Are the Best Sites to Download Google Pixel Ringtones</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-depth-video-metrics-at-your-fingertips-social-blade-for-youtube-for-2024/"><u>In-Depth Video Metrics at Your Fingertips Social Blade for YouTube for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/maximizing-productivity-with-two-screens-on-your-apple-device/"><u>Maximizing Productivity with Two Screens on Your Apple Device</u></a></li>
+<li><a href="https://windows11.techidaily.com/remedying-the-process-termination-failure-error-window/"><u>Remedying the 'Process Termination Failure' Error Window</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-your-devices-earphone-port-solutions-for-non-functional-front-audio-jack/"><u>Reviving Your Device's Earphone Port: Solutions for Non-Functional Front Audio Jack</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/troubleshooting-your-tech-how-driver-updates-can-fix-hardware-malfunctions-advice-by-yl-software-professionals/"><u>Troubleshooting Your Tech: How Driver Updates Can Fix Hardware Malfunctions – Advice by YL Software Professionals</u></a></li>
 </ul></div>
 

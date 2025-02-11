@@ -1,7 +1,7 @@
 ---
 title: Popularity of Global Languages in American Academia
-date: 2025-01-29T01:49:53.884Z
-updated: 2025-01-29T17:33:31.533Z
+date: 2025-02-05T22:54:59.896Z
+updated: 2025-02-11T03:15:37.940Z
 tags:
   - speak
   - english
@@ -20,12 +20,16 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
 
  So, what are the most studied languages in America, or the US, to be more precise? Read on and find out!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Spanish
 
 ![spanish flag](https://edge.mondly.com/blog/wp-content/uploads/2021/12/spanish-flag-960x639.jpg "Which Are The Most Studied Foreign Languages In America? 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Spanish flag” by Mikhail Nilov©
@@ -35,12 +39,16 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
  As the official language of 21 nations, it would be a great idea for a traveler to [start learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  as soon as possible. Since we’re on the topic of learning on the internet, you must also know that Spanish is the third most utilized language online, after English and Chinese. English speakers usually pick Spanish as their secondary language because it’s easy to learn – with only approximately 600 hours of study time required. Want to sound like a fluent speaker? Here are [17 Spanish sayings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will help you achieve that!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. French
 
 ![eiffel tower paris](https://edge.mondly.com/blog/wp-content/uploads/2021/12/eiffel-tower-paris-960x640.jpg "Which Are The Most Studied Foreign Languages In America? 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Paris, Eiffel Tower” by Eugene Dorosh©
 
@@ -48,13 +56,13 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
 
  Back home, French is mainly spoken in Louisiana and Maine, which has to do with the history of the states. If you thought about Cajuns, you’re on the right track! Americans usually prefer to learn French in order to increase employment opportunities and enjoy the rich culture and traditions. Cajun seasoning may have something to do with their decision, but we’re not sure. If you struggle with pronunciation, we can help you with this [quick guide](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. German
 
 ![german flag](https://edge.mondly.com/blog/wp-content/uploads/2021/12/german-flag-960x587.jpg "Which Are The Most Studied Foreign Languages In America? 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “German flag” by Ingo Joseph©
 
@@ -68,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
 
 ![italian car](https://edge.mondly.com/blog/wp-content/uploads/2021/12/italian-car-960x644.jpg "Which Are The Most Studied Foreign Languages In America? 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Fiat” by Jonathan Bean©
 
  Again, not really a shocker since there are large communities of Italians scattered in the US, most notably in San Francisco and Boston. American gangster movies are famous for their portrayal of Italian-Americans and Italian-American culture is basically a staple of American life. Not to mention the fact that many Americans are direct descendants of Italian immigrants, so they [learn Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to communicate with nonna.
@@ -84,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
 ---
 
  If any of these languages piqued your interest, you should start using Mondly on your computer for free, or better yet, download the app and start learning on the go ![Learn with Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-6310&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-6310%26mt%3D8 "Learn with Mondly")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,24 +104,14 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-sonicarchive-pro-downloads-and-analysis/"><u>[Updated] 2024 Approved SonicArchive Pro Downloads & Analysis</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-step-by-step-inserting-music-in-your-ppt-masterpieces-for-2024/"><u>[Updated] Step-by-Step Inserting Music in Your PPT Masterpieces for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-your-learning-of-japanese-digits/"><u>Accelerate Your Learning of Japanese Digits</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/easy-steps-how-to-deactivate-the-accessibility-shortcut-sticky-keys-in-windows-os/"><u>Easy Steps: How to Deactivate the Accessibility Shortcut 'Sticky Keys' In Windows OS</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/guia-experticia-resolucion-de-problemas-metodos-efectivos-para-guardar-la-copia-de-seguridad-en-windows-11/"><u>Guía Experticia: Resolución De Problemas - Métodos Efectivos Para Guardar La Copia De Seguridad en Windows 11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-i-screen-mirroring-apple-iphone-12-pro-max-to-tvlaptop-drfone-by-drfone-ios/"><u>How Can I Screen Mirroring Apple iPhone 12 Pro Max to TV/Laptop? | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-building-blocks-to-brilliance-crafting-circles-and-spheres-in-mc/"><u>In 2024, Building Blocks to Brilliance Crafting Circles and Spheres in MC</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-samsung-galaxy-m34-by-drfone-android/"><u>In 2024, How to Bypass FRP from Samsung Galaxy M34?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-mastering-gameplay-with-best-gadgets/"><u>In 2024, Mastering Gameplay with Best Gadgets</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-educators-day-multilingual-commemoration/"><u>International Educators' Day: Multilingual Commemoration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/invest-in-yourself-lifetime-access-for-just-pennies/"><u>Invest in Yourself: Lifetime Access for Just Pennies!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sharpen-articulation-skills-100-engaging-tongue-twisters/"><u>Sharpen Articulation Skills: 100 Engaging Tongue Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplifying-spanish-verb-forms-and-tenses/"><u>Simplifying Spanish Verb Forms & Tenses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-japan-study-independent-paths-and-free-tools/"><u>Step-By-Step Japan Study: Independent Paths and Free Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-foundations-of-hiragana-and-katakana-systems/"><u>The Foundations of Hiragana and Katakana Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-power-of-two-tongues-essential-bilingual-gains/"><u>The Power of Two Tongues: Essential Bilingual Gains</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tracing-dutch-linguistics-origin-and-evolution/"><u>Tracing Dutch Linguistics: Origin and Evolution</u></a></li>
-<li><a href="https://driver-download.techidaily.com/upgrade-your-printer-experience-with-the-newest-epson-wf-2630-driver-suite-supports-win-7-81-and-10/"><u>Upgrade Your Printer Experience with the Newest Epson WF-2630 Driver Suite - Supports Win 7, 8.1 & 10</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/1728489285148-windows-server-2012-r2/"><u>Windows Server 2012 (R2) 擴展機能：兩種方法個人化的資料夾與電子郵件回報設定</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-essential-list-high-quality-cost-free-meeting-platforms/"><u>[Updated] In 2024, Essential List High-Quality, Cost-Free Meeting Platforms</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-maximizing-memories-storing-digitalized-vintage-photographs-for-2024/"><u>[Updated] Maximizing Memories Storing Digitalized Vintage Photographs for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-7-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 7 After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-oneplus-ace-2-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from OnePlus Ace 2 Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-top-93-vital-spanish-phrases-for-trips-abroad/"><u>Learn the Top 93 Vital Spanish Phrases for Trips Abroad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-timeline-for-fluency/"><u>Mastering Languages: Timeline for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-mastering-chinese-warmth-exchanges/"><u>Step-by-Step Guide to Mastering Chinese Warmth Exchanges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-spanish-verbs-conjugation-essentials/"><u>Unlocking Spanish Verbs: Conjugation Essentials</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/video-fix-error-code-36-on-mac-unable-to-empty-trash-on-macos/"><u>Video - Fix Error Code 36 on Mac | Unable to Empty Trash on macOS</u></a></li>
 </ul></div>
 

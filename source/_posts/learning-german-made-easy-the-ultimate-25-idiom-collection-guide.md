@@ -1,7 +1,7 @@
 ---
 title: "Learning German Made Easy: The Ultimate 25 Idiom Collection Guide"
-date: 2025-01-26T01:42:52.817Z
-updated: 2025-01-29T18:02:52.422Z
+date: 2025-02-07T03:32:20.684Z
+updated: 2025-02-10T16:40:14.722Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  Once you start learning, the most exciting thing about**German idioms** is that **they feel like learning a super secret code only the fluent speakers understand.** As they provide useful insights into German culture and history, including idioms in your day-to-day conversations will make you sound like “one of their own.” So let’s cut to the chase and present you with the essential collection of German idioms designed to up your German game fast.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Common German idioms Germans love
 
 [Cambridge Dictionary](https://dictionary.cambridge.org/dictionary/english/idiom) defines ‘idiom’ as “a group of words in a fixed order that has a particular meaning that is different from the meanings of each word on its own.” For example, to be “over the moon” is an idiom that means you are extremely happy or delighted. In other words, idioms have figurative, non-literal meanings because you’re not**literally** “over the moon.”
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** To beat around the bush.
 
  Germans are usually pretty straightforward, but there are times when even they happen to beat around the bush. When such a situation occurs, you can use this idiom to invite them to get straight to the point.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **2.** _Eine Extrawurst haben_
 
@@ -50,10 +58,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  Is someone lying to your face? Better remind them that_Lügen haben kurze Beine_ or lies won’t get them too far with those tiny legs. This idiom is similar to the English expression “Liar, liar, pants on fire.”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **4.** _Ich glaube ich spinne_
 
 **Literal translation:** I believe I spider.
@@ -61,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** I think I’m going crazy.
 
  As odd as this one sounds, it will come in very handy in those situations when you can’t believe what you’re hearing or seeing. The English equivalent could be “You’ve got to be kidding me!”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **5.** _Seinen Senf dazugeben_
 
@@ -88,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  In Germany, when you are blind to what’s happening around you, people could say you have tomatoes on your eyes. Maybe you’re not up to date with the latest news, or you’re not seeing the truth staring you right in the face. Either way, tomatoes seem to affect your vision.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **8.** _Ich verstehe nur Bahnhof_
 
 **Literal translation:** I can only understand ‘train station.’
@@ -96,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  The origin of this idiom goes back to World War I when deployed German soldiers would say that the only thing they understood when given orders was ‘train station’ because they hoped to go home. Nowadays, it’s used to say you didn’t comprehend something that was explained to you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **9.** _Man soll den Tag nicht vor dem Abend lobe_ n
 
 **Literal translation:** One shouldn’t praise the day before the evening.
@@ -107,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** Don’t count your chickens before they hatch.
 
  This idiom is perfect for those who usually celebrate their victories prematurely. Its sentiment is similar to the English equivalent “Don’t count your chickens before they hatch. “
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **10.** _Da kannst du Gift drauf nehmen_
 
@@ -127,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** You’re annoying me.
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **12.** _Da steppt der Bär_
 
@@ -145,10 +153,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  In Germany, if you want to say that a place is not far from here, you usually say “that’s a cat’s jump.” Way more fun than the English “a stone’s throw away.”
 
 !['Common German idioms' by Gratisography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/common-german-idioms-960x640.jpg "Top 25 German Idioms To Speak Like A German 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **14.** _Das ist Schnee von gestern_
 
@@ -174,10 +178,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  Same story here. You already know in which situations it’s suitable to use this one.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **17.** _Du nimmst mich auf den Arm_
 
 **Literal translation:** You’re taking me on your arm.
@@ -185,10 +185,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** You’re joking./You’re pulling my leg.
 
  Germans have a unique take on this idiom. Instead of pulling one’s leg, they are taken on someone’s arm. Picture the scene and you can help but giggle! Obviously, both versions are used to express disbelief about someone’s actions or claims.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **18.** _Dumm wie Bohnenstroh_
 
@@ -199,7 +195,7 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  We don’t support insults, but this one can also be used as a joke between very – and we mean**very** – close friends.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **19.** _Alles hat ein Ende, nur die Wurst hat zwei_
@@ -210,6 +206,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **20.** _Ich habe Schwein gehabt_
 
 **Literal translation:** I’ve had a pig.
@@ -219,10 +219,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  I guess it is inevitable. If there are German idioms about sausages, there must also be German idioms about pigs. Naturally, when someone says_Ich habe Schwein gehabt_ , it means they have been lucky without having done anything themselves to earn it.
 
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **21.** _Haare auf den Zähnen haben_
 
@@ -242,6 +238,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  Before you jump to conclusions, you must know that_Kater_ (‘tomcat’) comes from the word_Katarrh_ , a condition in which a lot of thick liquid is produced in your nose and throat. Over time, the pronunciation of the word changed into_Kater_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **23.** _Da haben wir den Salat_
 
 **Literal translation:** There we have the salad.
@@ -251,7 +251,7 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  Sometimes we see a bad situation coming and we warn the parties involved, but they choose not to listen. Well, this idiom is perfect for the aftermath when all you want to say is: I told you so!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **24.** _Einen Vogel haben_
@@ -265,10 +265,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  On a more serious note, this is yet another fun idiom you can use to sound like a fluent speaker. The idiom probably originated from the belief that crazy people must have flocks of little birds in their heads.
 
 It’s usually used as an insult, so be careful to who you are saying this.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **25.** _Jemandem ein Ohr abkauen_
 
@@ -295,6 +291,10 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Speak German like a fluent speaker fast
 
@@ -327,19 +327,22 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-cameraphone-gimbal-optimal-pan-and-tilt-stability/"><u>[New] In 2024, Top Camera/Phone Gimbal – Optimal Pan & Tilt Stability</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-best-free-screen-recorder-tool-bandicam-or-camtasia-for-2024/"><u>[Updated] The Best Free Screen Recorder Tool Bandicam or Camtasia for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-top-choice-vr-game-engines-update-march-2023-for-2024/"><u>[Updated] Top Choice VR Game Engines Update - March 2023 for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-golden-text-in-3d-selecting-quality-online-sites/"><u>2024 Approved Golden Text in 3D Selecting Quality Online Sites</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-install-brother-l2700dw-printer-drivers-on-windows/"><u>Download & Install Brother L2700DW Printer Drivers on Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-tongues-foreign-flavor-syntax-and-vocabulary-shifts/"><u>English Tongue's Foreign Flavor: Syntax & Vocabulary Shifts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-the-journey-with-english-contractions/"><u>From Novice to Expert: The Journey with English Contractions</u></a></li>
-<li><a href="https://win-community.techidaily.com/high-definition-dota-2-graphics-and-backgrounds-premium-collection-by-yl-computing/"><u>High-Definition Dota 2 Graphics & Backgrounds: Premium Collection by YL Computing</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nokia-c22-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Nokia C22 Android SIM Unlock APK</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/milestone-mondlybacks-10-year-filter-legacy/"><u>Milestone: MondlyBack’s 10-Year Filter Legacy</u></a></li>
-<li><a href="https://games-able.techidaily.com/stop-automatic-steam-launch-on-system-restart/"><u>Stop Automatic Steam Launch on System Restart</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tandu-update-better-control-enhanced-clarity/"><u>T&U Update: Better Control, Enhanced Clarity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-tools-for-efficient-foreign-language-proficiency-growth/"><u>Top Tools for Efficient Foreign Language Proficiency Growth</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-hidden-layers-behind-facebooks-emblematic-blue-icon-in-messages-for-2024/"><u>[New] The Hidden Layers Behind Facebook's Emblematic Blue Icon in Messages for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-hold-whole-page-snapshot-image/"><u>[Updated] In 2024, Hold Whole Page Snapshot Image</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-samsung-galaxy-xcover-6-pro-tactical-edition-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Samsung Galaxy XCover 6 Pro Tactical Edition Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguafutura-embracing-language-learning-at-expo-dubai-2020/"><u>LinguaFutura: Embracing Language Learning at Expo Dubai 2020</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pumpkin-lore-from-around-the-world/"><u>Pumpkin Lore From Around the World</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/renowned-crafters-exquisite-instagram-hlv-designers-online-for-2024/"><u>Renowned Crafters Exquisite Instagram HLV Designers Online for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/smartphone-photographers-guide-to-top-5-android-editors-for-2024/"><u>Smartphone Photographers' Guide to Top 5 Android Editors for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solve-pacific-drive-not-working-problems-expert-tips-and-advice/"><u>Solve Pacific Drive Not Working Problems - Expert Tips & Advice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-to-the-soul-africas-multilingual-identity/"><u>Speaking to the Soul: Africa’s Multilingual Identity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/steady-your-screen-the-key-to-slowdown-in-youtube-videos-48-chars-for-2024/"><u>Steady Your Screen The Key to Slowdown in YouTube Videos (48 Chars) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/surpassing-corporate-communication-barriers-with-skills/"><u>Surpassing Corporate Communication Barriers with Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-years-of-connectivity-and-growth-at-mondly/"><u>Ten Years of Connectivity and Growth at Mondly</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210412544-9780578311111-the-wisdom-is-yours/"><u>The Wisdom Is Yours | Free Book</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-and-fixing-errors-when-gsdll32dll-is-not-detected/"><u>Troubleshooting and Fixing Errors When gsdll32.dll Is Not Detected</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-vernacular-key-skills-in-global-communication/"><u>Universal Vernacular: Key Skills in Global Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-victory-why-learning-languages-at-40plus-boosts-your-brainpower/"><u>Vocabulary Victory: Why Learning Languages at 40+ Boosts Your Brainpower</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-take-up-the-challenge-of-learning-a-new-language-at-40-and-beyond-four-compelling-points/"><u>Why Take Up the Challenge of Learning a New Language at 40 and Beyond? Four Compelling Points</u></a></li>
 </ul></div>
 

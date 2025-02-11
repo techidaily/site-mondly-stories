@@ -1,7 +1,7 @@
 ---
 title: Express Appreciation Like a Native Speaker in Chinese
-date: 2024-07-12T08:14:16.042Z
-updated: 2024-07-13T08:14:16.042Z
+date: 2025-02-06T04:36:47.650Z
+updated: 2025-02-11T00:32:31.950Z
 tags:
   - speak
   - english
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/a1952e1112a322c48709e825dbee9897ba132a48d
 
  “Xiangxi, China” by Theodor Lundqvist©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Thank you very much in Chinese
 
  Just like in any other language, the way you say “thank you” in Chinese can alter its meaning. If you say it harshly and keep a straight face, Chinese speakers may perceive your attitude as sarcastic. So smile, act as you would in your native country and nod respectfully (don’t bow as you would do in Japan). Even if your pronunciation is not perfect, your message will certainly be conveyed correctly.
@@ -57,6 +61,10 @@ Other variations include:
 * (I’m) really grateful! – 非常感谢你!_Fēi cháng gǎn xiè nǐ!_ (slightly more formal than the previous)
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Thank you for… in Chinese
 
  Just as important as the simple, plain “thank you” is the “thank you for something” thank you. Because sometimes you need to be more specific. What are you thanking them for? So here’s how to thank someone in Chinese for the gift they gave you and some more [Chinese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that might come in handy next time you visit China.
@@ -72,7 +80,15 @@ Other variations include:
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Jiaxing, China” by Jay©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Other ways to express your gratitude in Chinese
 
@@ -93,6 +109,10 @@ Other variations include:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Here’s how to speak Chinese in just 10 minutes a day
 
  It can be really tricky to master Chinese pronunciation if you don’t actively live in China. But with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3462&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh) , the award-winning language learning app, **you can learn Chinese naturally with practical topics and authentic Chinese conversations** recorded by fluent voice artists so you can tackle day-to-day situations.
@@ -111,8 +131,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,6 +138,24 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-fresh-vlog-discussion-ideas-each-day/"><u>[New] 2024 Approved Fresh Vlog Discussion Ideas Each Day</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-navigating-the-world-of-tweets-starting-fresh/"><u>[New] In 2024, Navigating the World of Tweets Starting Fresh</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-ensuring-smooth-streaming-how-to-avoid-fb-live-glitches-for-2024/"><u>[Updated] Ensuring Smooth Streaming How to Avoid Fb Live Glitches for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-ultimate-list-recording-digital-tv-programming/"><u>[Updated] In 2024, The Ultimate List Recording Digital TV Programming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-perfecting-your-content-time-stamping-in-online-vids/"><u>[Updated] Perfecting Your Content Time Stamping in Online Vids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advantagize-life-learn-more-languages/"><u>Advantagize Life: Learn More Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/affectionate-artistry-romeo-rhetoric/"><u>Affectionate Artistry: Romeo Rhetoric</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-el-calendario-semanal-espanol/"><u>Aprende El Calendario Semanal Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendendo-gritos-de-alegria-em-portugues-conhecimento-essencial/"><u>Aprendendo Gritos De Alegria Em Português - Conhecimento Essencial</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/comprehensive-guide-how-to-change-your-mkv-videos-to-compatible-quicktime-movmp4-formats-for-both-windows-and-macos-users/"><u>Comprehensive Guide: How To Change Your MKV Videos to Compatible QuickTime Mov/MP4 Formats for Both Windows & macOS Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-language-assessments-key-certifications-unveiled/"><u>Conquering Language Assessments: Key Certifications Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-similarities-in-uk-and-rus-linguistics/"><u>Deciphering Similarities in Uk & Rus Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easy-steps-to-speak-like-a-swede/"><u>Easy Steps to Speak Like a Swede</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578582227-hello-in-german-10plus-german-greetings-beyond-hallo/"><u>Hello In German: 10+ German Greetings Beyond Hallo</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-high-quality-sound-adjustment-apps-for-content-casters/"><u>In 2024, High-Quality Sound Adjustment Apps for Content Casters</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-samsung-galaxy-a23-5g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Samsung Galaxy A23 5G</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/step-by-step-process-youtube-vids-converted-to-mp3-for-2024/"><u>Step-by-Step Process YouTube Vids, Converted to MP3 for 2024</u></a></li>
+</ul></div>
 

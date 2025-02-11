@@ -1,7 +1,7 @@
 ---
 title: Mastering Japanese On-Calls & Bows
-date: 2024-09-14T16:20:49.472Z
-updated: 2024-09-21T18:25:15.047Z
+date: 2025-02-06T02:59:22.310Z
+updated: 2025-02-11T00:59:10.799Z
 tags:
   - speak
   - english
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/3098d762b6d8dcd72acd0532421367ade2e95fba7
 
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Kyoto, Japan” by Sorasak©
 
  If you have to write**“hello” in Japanese,** there are two ways to do it (three if you also count in Romaji – the romanization of the [Japanese writing](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) system):
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/3098d762b6d8dcd72acd0532421367ade2e95fba7
  – using**Hiragana symbols:** こんにちは
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
@@ -68,10 +76,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
@@ -92,25 +97,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -206,5 +199,26 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-asmr-mastery-in-action-strategies-for-dynamic-and-effective-videos/"><u>[New] 2024 Approved ASMR Mastery in Action Strategies for Dynamic and Effective Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-boundless-adventures-exploring-vr-in-games/"><u>[Updated] Boundless Adventures Exploring VR in Games</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-eye-catcher-gaming-creating-striking-template-designs-for-2024/"><u>[Updated] Eye Catcher Gaming Creating Striking Template Designs for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-effortless-zooming-on-snapchat/"><u>[Updated] The Ultimate Guide to Effortless Zooming on Snapchat</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/1728479290090-aomei-backupper/"><u>AOMEI Backupperバックアップオプション設定:初心者から上級者まで対応した完全マニュアル</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-eloquence-in-japanese-language/"><u>Cultivating Eloquence in Japanese Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-synergy-uniting-diverse-minds-and-ideas/"><u>Cultural Synergy: Uniting Diverse Minds and Ideas</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-your-contents-impact-smart-utilization-of-igtv-hashtags/"><u>Enhancing Your Content's Impact Smart Utilization of IGTV Hashtags</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/exploring-the-depths-top-10-unknown-features-in-vlc-player/"><u>Exploring the Depths Top 10 Unknown Features in VLC Player</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/fb-video-downloader-seamless-mp4-conversion-for-2024/"><u>FB Video Downloader Seamless MP4 Conversion for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gentlemans-guide-to-glib-guesswork-with-spanish/"><u>Gentleman's Guide to Glib Guesswork with Spanish</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-guiding-steps-for-obtaining-professional-grade-images/"><u>In 2024, Guiding Steps for Obtaining Professional-Grade Images</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574686204-language-leap-to-mastery-learn-slovak-quickly-one-session-at-a-time/"><u>Language Leap to Mastery: Learn Slovak Quickly, One Session at a Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-where-quality-efficiency-and-fun-meet/"><u>Mondly: Where Quality, Efficiency, and Fun Meet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multitask-language-mastery/"><u>Multitask Language Mastery</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-speaker-noise-issues-on-pc-tips-for-windows-11-and-7-users/"><u>Solving Speaker Noise Issues on PC: Tips for Windows 11 and 7 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-korean/"><u>The Days of the Week in Korean</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triumph-over-tribal-speeches-mastering-the-worlds-toughest-languages/"><u>Triumph Over Tribal Speeches: Mastering the World's Toughest Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-for-beginners-core-vocabulary-selection/"><u>Urdu for Beginners: Core Vocabulary Selection</u></a></li>
+</ul></div>
 

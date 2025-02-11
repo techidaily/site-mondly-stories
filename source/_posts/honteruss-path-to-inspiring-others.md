@@ -1,7 +1,7 @@
 ---
 title: Honterus’s Path to Inspiring Others
-date: 2025-01-28T01:21:00.808Z
-updated: 2025-01-29T22:53:35.246Z
+date: 2025-02-04T00:27:30.473Z
+updated: 2025-02-10T23:15:58.893Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  We at [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187) are beyond proud to be able to pave the way to innovation and help millions of people worldwide learn languages from the very heart of Romania, in idyllic Transylvania. Although miles away from important high technology and innovation centers such as Berlin, London or Silicon Valley, we find inspiration everywhere around us – in people, places, art or even history. For example, one of the local historical figures who inspires us to be better every day is [Johannes Honterus](https://en.wikipedia.org/wiki/Johannes%5FHonter) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The first humanist gymnasium in Southeast Europe
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Rudimenta Cosmographica, the first European-wide manual
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The map of the world by Johannes Honterus
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Draw inspiration from the best
@@ -78,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -96,19 +96,16 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-engage-audiences-writing-magical-youtube-description-templates-for-higher-views/"><u>[Updated] 2024 Approved Engage Audiences Writing Magical YouTube Description Templates for Higher Views</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-premier-screen-captures-no-cost-pubg-sets/"><u>[Updated] 2024 Approved Premier Screen Captures No-Cost PUBG Sets</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/1-step-by-step-guide-changing-your-printers-inktoner-cartridges-tech-tips-by-yl/"><u>1. Step-by-Step Guide: Changing Your Printer's Ink/Toner Cartridges | Tech Tips by YL</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-tecno-pova-6-pro-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Tecno Pova 6 Pro 5G Device SIM</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-italys-charm-key-italian-greetings-to-learn/"><u>Embrace Italy's Charm: Key Italian Greetings to Learn</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-a-complete-guide-to-recording-live-tv-on-your-windows-pc/"><u>In 2024, A Complete Guide to Recording Live TV on Your Windows PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/keyboard-shortcuts-in-different-english-forms/"><u>Keyboard Shortcuts in Different English Forms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-resolution-2024/"><u>Language Resolution - 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-launches-a-virtual-reality-app-for-learning-languages-mondly-vr/"><u>Mondly Launches A Virtual Reality App For Learning Languages: Mondly VR</u></a></li>
-<li><a href="https://win-answers.techidaily.com/optimizing-pc-performance-to-prevent-spellbreak-from-crashing-a-comprehensive-guide/"><u>Optimizing PC Performance to Prevent Spellbreak From Crashing - A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-worldwide-top-3-linguistic-mastery-technology-aids/"><u>Speak Worldwide: Top 3 Linguistic Mastery Technology Aids</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-durable-laptop-picks-a-guide/"><u>Top Durable Laptop Picks : A Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transcultural-dialogues-and-their-impact-on-english/"><u>Transcultural Dialogues and Their Impact on English</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/windows-10-displays-re-enable-advanced-settings/"><u>Windows 10 Displays: Re-Enable Advanced Settings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-tailoring-teammate-backgrounds-on-teams-chat/"><u>[Updated] In 2024, Tailoring Teammate Backgrounds on Teams Chat</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-stepwise-blueprint-converting-everyday-gifs-to-sticker-status-in-discord-and-other-chat-apps/"><u>2024 Approved Stepwise Blueprint Converting Everyday GIFs to Sticker Status in Discord & Other Chat Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-language-skills-through-mondlys-practical-10-strategies/"><u>Enhancing Language Skills Through Mondly's Practical 10 Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-language-tools-for-international-engagement/"><u>Essential Language Tools for International Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-skills-in-handling-spanish-accented-characters-and-letters/"><u>Essential Skills in Handling Spanish Accented Characters & Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/featured-by-apple-mondly-is-app-of-the-day-in-157-countries/"><u>Featured by Apple: Mondly Is App of the Day in 157 Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gearing-up-for-an-ai-colleague-in-communication/"><u>Gearing Up for an AI Colleague in Communication</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-honor-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Honor Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-raspberry-pi/"><u>In-Depth Review of Raspberry Pi</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/meme-marchers-the-path-to-viral-twitcinema/"><u>Meme Marchers The Path to Viral TwitCinema</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/1723199750909-zero-downtrouble-with-windows-0x00000116-bsod-easy-fixes-inside/"><u>Zero Downtrouble with Windows 0X00000116 BSOD - Easy Fixes Inside</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Global Vernacular Infusion: English' Written and Spoken Forms"
-date: 2025-01-23T18:40:32.856Z
-updated: 2025-01-29T22:04:41.658Z
+date: 2025-02-09T17:01:30.697Z
+updated: 2025-02-11T04:28:59.577Z
 tags:
   - speak
   - english
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## English Words from Foreign Languages
 
 1. Guru (Sanskrit)
@@ -73,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -90,11 +90,11 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -126,7 +126,7 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
@@ -150,10 +150,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -206,6 +202,10 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -265,14 +265,17 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-detailed-slomo-app-review-future-predictions/"><u>[New] 2024 Approved Detailed SloMo App Review - Future Predictions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/anticipating-cyber-risks-apples-enhanced-protections-for-imessage-as-featured/"><u>Anticipating Cyber Risks: Apple's Enhanced Protections for iMessage as Featured</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-zhuyin/"><u>Getting Acquainted with Zhuyin</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Lava Blaze 2? | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/linksys-wusb6300-driver-download-and-installation-manual-easy-guide/"><u>Linksys WUSB6300 Driver Download & Installation Manual - Easy Guide</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/losungen-fur-den-wiederherstellungsvorgang-von-windows-der-bei-97-hangen-bleibt/"><u>Lösungen Für Den Wiederherstellungsvorgang Von Windows, Der Bei 97 % Hängen Bleibt</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-tongue-proven-strategies-for-eloquence/"><u>Master the Tongue: Proven Strategies for Eloquence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/second-language-skills-as-a-vital-fifties-endeavor/"><u>Second Language Skills as a Vital Fifties Endeavor</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprachstarter-zahlen-bis-100-in-deutscher-sprache/"><u>Sprachstarter: Zählen Bis 100 in Deutscher Sprache</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-spectral-control-enhancing-image-aesthetics/"><u>[New] Spectral Control Enhancing Image Aesthetics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725289762372-dvd/"><u>DVDコピー時に遭遇する一般的なエラーとその解決策</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-magyar-loving-words/"><u>Expressing Affection in Magyar: Loving Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-thanks-universal-language-lessons-156/"><u>Expressing Thanks: Universal Language Lessons (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fastest-ways-to-learn-a-language-quick-language-learning-techniques/"><u>Fastest Ways To Learn A Language - Quick Language Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-ways-to-profess-love-in-hungarian/"><u>Finding Ways to Profess Love in Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fluency-to-mastery-overcoming-the-top-9-hardest-languages/"><u>From Fluency to Mastery: Overcoming the Top 9 Hardest Languages</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-vivo-y200e-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-quiet-quality-of-comfort-asmr-expert-choices/"><u>In 2024, The Quiet Quality of Comfort ASMR Expert Choices</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/splitcam-review-for-2024/"><u>SplitCam Review for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/tips-to-optimize-and-lower-cpu-load-in-new-software-updates/"><u>Tips to Optimize and Lower CPU Load in New Software Updates</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-lava-blaze-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Lava Blaze Pro 5G without Them Knowing | Dr.fone</u></a></li>
 </ul></div>
 

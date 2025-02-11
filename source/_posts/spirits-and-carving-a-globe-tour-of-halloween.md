@@ -1,7 +1,7 @@
 ---
 title: "Spirits and Carving: A Globe Tour of Halloween"
-date: 2025-01-27T22:38:29.169Z
-updated: 2025-01-30T04:23:07.847Z
+date: 2025-02-06T18:07:14.401Z
+updated: 2025-02-10T23:12:32.773Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
@@ -27,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 ## Halloween-like Traditions Worldwide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
@@ -42,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### China: The Hungry Ghost Festival
 
  The Ghost Festival, also known as the Hungry Ghost Festival, Zhongyuan Jie (中元節), or Gui Jie (鬼節) is a traditional Buddhist and Taoist celebration during which the deceased are believed to visit the living.
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
@@ -80,13 +80,13 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
@@ -136,22 +136,18 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-accessing-shared-media-in-facebook-messenger-how/"><u>[New] 2024 Approved Accessing Shared Media in Facebook Messenger How?</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-comprehensive-guide-to-injecting-vimeo-videos-into-decks/"><u>[New] 2024 Approved Comprehensive Guide to Injecting Vimeo Videos Into Decks</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-action-packed-snapshots-of-x-snow-2022-for-2024/"><u>[New] Action-Packed Snapshots of X-Snow 2022 for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-6-high-definition-21-hdmi-models-analyzed-for-2024/"><u>[Updated] 6 High-Definition 2.1 HDMI Models Analyzed for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevate-your-tiktok-presence-with-exquisite-video-templates/"><u>[Updated] Elevate Your TikTok Presence with Exquisite Video Templates</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cinematic-journey-for-enhanced-communication-abilities/"><u>Cinematic Journey for Enhanced Communication Abilities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-french-novels-best-list-for-beginning-readers/"><u>Dive Into French Novels: Best List for Beginning Readers</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-zte-nubia-flip-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From ZTE Nubia Flip 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-securely-shutting-down-your-instagram-presence-forever/"><u>In 2024, Securely Shutting Down Your Instagram Presence Forever</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/incrementa-tu-espanol-dias-por-dia/"><u>Incrementa Tu Español, Días Por Día</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-renaissance-the-21st-centurys-approach-to-language-mastery/"><u>Linguistic Renaissance: The 21St Century's Approach to Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-brings-immersive-language-learning-to-your-living-room-with-vr/"><u>Mondly Brings Immersive Language Learning to Your Living Room with VR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-up-your-game-6-proven-tips-for-mastering-portuguese/"><u>Step Up Your Game - 6 Proven Tips for Mastering Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-svenska-forsalar/"><u>Tänk Om Sverige: Svenska Försalar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-voices-of-the-continent-asias-buzzwords/"><u>The Voices of the Continent: Asia's Buzzwords</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-vivo-y100-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Vivo Y100 5G Location | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/unlocking-recmasters-potential-in-screen-capture/"><u>Unlocking Recmaster's Potential in Screen Capture</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-navigating-the-best-online-pixel-ringtones-hubs/"><u>[New] In 2024, Navigating the Best Online Pixel Ringtones Hubs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-the-best-hashtags-for-youtube-gaming-videos/"><u>[New] The Best Hashtags for YouTube Gaming Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-cinematic-masterpiece-dialogues/"><u>2024 Approved Cinematic Masterpiece Dialogues</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-windows-11-audio-issues-a-step-by-step-guide-to-restoring-volume-functionality/"><u>Fix Windows 11 Audio Issues: A Step-by-Step Guide to Restoring Volume Functionality</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-motorola-edge-40-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Motorola Edge 40 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-nokia-g42-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Nokia G42 5G?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-bridge-between-nations/"><u>Linguistic Bridge Between Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-with-excellence-at-2021-gala/"><u>Mondly Leads with Excellence at 2021 Gala</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oracles-output-ancient-greek-influence-and-modern-context/"><u>Oracle’s Output: Ancient Greek Influence & Modern Context</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/streamlined-approach-for-customizing-snapchat-video-rate/"><u>Streamlined Approach for Customizing Snapchat Video Rate</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-nubia-red-magic-8s-proplus-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Nubia Red Magic 8S Pro+ Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unmasking-the-mysteries-of-squid-game-with-korean-lessons/"><u>Unmasking The Mysteries of Squid Game with Korean Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-countries-are-emphasized-in-us-education/"><u>What Countries Are Emphasized in U.S. Education?</u></a></li>
 </ul></div>
 

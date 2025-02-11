@@ -1,7 +1,7 @@
 ---
 title: Navigating Through Spanish Verb Forms
-date: 2024-09-15T19:38:38.679Z
-updated: 2024-09-21T19:11:36.498Z
+date: 2025-02-06T01:00:02.681Z
+updated: 2025-02-11T01:45:05.080Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/8010c35385b1d4db309ae5aab39ce0f7ad55b6a28
 ## Navigating Through Spanish Verb Forms
 
  ¡Hola, Spanish language aficionado! Welcome to another essential Spanish lesson you’ll have to learn if you want to boost your Spanish conversation skills. Today, we are talking about**Spanish verbs** , their conjugations, and some [**Spanish grammar rules**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will naturally join the party. Are you ready? Let’s start with the basics.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish verbs: rules for regular Spanish verbs
 
@@ -60,9 +64,17 @@ Spanish verbs conjugations make sense now, don’t they?
 
 ![Mondly app screenshot verb conjugation](https://edge.mondly.com/blog/wp-content/uploads/2019/06/verb-conjugation-353x600.png "Spanish Verb Conjugation: Regular And Irregular Verbs 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In Mondly, you can quickly see a verb’s conjugation by simply tapping on it
 
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
 
@@ -107,6 +119,10 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -146,10 +162,7 @@ And the conjugation of comer will look like this:
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
@@ -205,19 +218,6 @@ And the conjugation of comer will look like this:
  Then there’s the verb_jugar_ (to play): the one and only example of a verb whose stem changes from “u” to a “ue”.
 
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Spanish verbs with an irregular “yo” form
 
@@ -332,5 +332,19 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-from-simple-starts-proving-talent-with-tiktok-edits-for-2024/"><u>[New] From Simple Starts Proving Talent with TikTok Edits for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-harnessing-your-creative-potential-an-exhaustive-tutorial-for-youtube-video-submission/"><u>[New] In 2024, Harnessing Your Creative Potential An Exhaustive Tutorial for YouTube Video Submission</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-shadowed-reader-of-facebook-flashes/"><u>[New] Shadowed Reader of Facebook Flashes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-blue-band-promise-made-easy-snapping-strategies/"><u>2024 Approved The Blue Band Promise Made Easy Snapping Strategies</u></a></li>
+<li><a href="https://win-hot.techidaily.com/aomei-partition-assistant-lite-edition-download-gratuitamente/"><u>AOMEI Partition Assistant Lite Edition - Download Gratuitamente!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/configuring-hyper-v-in-windows-11-the-ultimate-enablement-guide/"><u>Configuring Hyper-V in Windows 11: The Ultimate Enablement Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-bulbarian-short-10-min-lessons/"><u>Efficient Bulbarian: Short 10-Min Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-fluency-best-methods-for-online-finnish-study/"><u>Enhance Fluency: Best Methods for Online Finnish Study</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-apple-iphone-xr-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix My Apple iPhone XR Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-acclaimed-pioneering-online-linguistic-education/"><u>Mondly Acclaimed: Pioneering Online Linguistic Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-an-aussie-essential-slang-and-idioms-guide/"><u>Speak Like an Aussie: Essential Slang & Idioms Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncover-hidden-meanings-learn-korean-for-squid-games-intrica-written-by-user/"><u>Uncover Hidden Meanings: Learn Korean for Squid Game's Intrica Written by User:</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2025-01-26T20:01:40.387Z
-updated: 2025-01-30T05:03:30.653Z
+date: 2025-02-08T19:05:59.812Z
+updated: 2025-02-10T23:44:48.488Z
 tags:
   - speak
   - english
@@ -22,9 +22,17 @@ Different people in the world have different trends to celebrate birthdays, but 
 
 Have you ever thought about how people from other cultures sing birthday songs? Do they do it the same way we do it in English? What about gifts and cakes? How do they express emotions on a birthday? Do they use specific words? Let’s learn how other cultures say and commemorate birthdays!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Happy Birthday in Spanish: Feliz Cumpleaños**
 
 **Feliz Cumpleaños** are the [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for **“Happy Completed Years”** or simply **“Happy Birthday”** since birthdays are considered a big day of celebration in most Spanish countries. “Feliz Cumpleaños amigo” is a commonly used phrase for wishing a happy birthday to your friends. The same as in Mexico, their popular unique birthday song is “Las Mañanitas“ meaning “Little Mornings“. The best and funniest part is that the birthday boy or girl must eat the first bite of the cake without using any utensils or hands. They have no custom of blowing out candles or making a wish. Yet, the party cannot ever finish without the famous piñata!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Happy Birthday in French: Bon Anniversaire**
 
@@ -34,10 +42,6 @@ Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
 Chinese culture has an interesting concept of birthday celebrations. Depending on a person’s gender, certain birthdays pass without acknowledgment or require special handling. Women, for example, do not celebrate turning 30, 33 or 66\. Another interesting custom are the longevity noodles that are considered a sign of good fortune and long life. So these noodles are a must eat without breaking (it’s a sign of good luck).
@@ -45,16 +49,12 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image source: <https://tops.ua>
 
@@ -69,7 +69,7 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 ![happy birthday in swedish](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-swedish.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: <https://trivselkort.com>
@@ -77,7 +77,7 @@ Image source: <https://trivselkort.com>
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
@@ -121,15 +121,20 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-embedding-youtube-videos-tips-for-a-smooth-ppt-transition/"><u>[New] 2024 Approved Embedding YouTube Videos Tips for a Smooth PPT Transition</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-expert-strategies-for-vocal-identity-on-instagram/"><u>[New] 2024 Approved Expert Strategies for Vocal Identity on Instagram</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-avoid-risks-secure-paths-to-get-gratis-vlc-for-mac-os-x/"><u>[Updated] Avoid Risks Secure Paths to Get Gratis VLC for Mac OS X</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-do-live-streaming-with-periscope/"><u>2024 Approved How to Do Live Streaming with Periscope</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-unique-thumbnails-for-youtube-content-for-2024/"><u>Crafting Unique Thumbnails for YouTube Content for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expanding-cultural-horizons-through-language-past-fifty/"><u>Expanding Cultural Horizons Through Language Past Fifty</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-secrets-to-fluent-afrikaans-in-just-7-strategic-steps/"><u>Mondly's Secrets to Fluent Afrikaans in Just 7 Strategic Steps</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>New In 2024, Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578566177-revolutionary-3-language-schools-speak-new-words-effortlessly/"><u>Revolutionary 3 Language Schools: Speak New Words, Effortlessly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-neurological-ease-of-kids-learning-new-linguistics/"><u>The Neurological Ease of Kids Learning New Linguistics</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-advanced-screen-recording-suite-for-windows-and-macos/"><u>[New] In 2024, Advanced Screen Recording Suite for Windows & macOS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-effortless-note-management-on-mematic-platform/"><u>[New] In 2024, Effortless Note Management on Mematic Platform</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-premier-pro-essentials-accessible-for-all-editors/"><u>[Updated] 2024 Approved The Premier Pro Essentials - Accessible for All Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-secrets-to-flawless-verbal-presentations-and-debates/"><u>9 Secrets to Flawless Verbal Presentations & Debates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/africas-whispering-winds-language-diversity/"><u>Africa's Whispering Winds: Language Diversity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-a-pronunciation-pro-engage-with-english-twisters-100/"><u>Becoming a Pronunciation Pro: Engage With English Twisters (100)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/din-valkommen-svensk-forsal/"><u>Din Välkommen: Svensk Försal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575407428-elite-online-agencies-speak-any-new-language-with-confidence/"><u>Elite Online Agencies: Speak Any New Language with Confidence</u></a></li>
+<li><a href="https://windows11.techidaily.com/illuminating-windows-11-tray-and-secret-icons/"><u>Illuminating Windows 11 Tray & Secret Icons</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-13-mini-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 13 mini Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/seamless-steps-mastering-hevc-video-import-and-editing-with-adobe-premiere-pro/"><u>Seamless Steps: Mastering HEVC Video Import & Editing with Adobe Premiere Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581253400-supercharge-your-second-language-skills-fast/"><u>Supercharge Your Second Language Skills, Fast</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-solution-for-normalizdll-missing-error-on-windows/"><u>The Ultimate Solution for 'Normaliz.dll Missing Error' On Windows</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-tecno-pova-6-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Tecno Pova 6 Pro 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-xiaomi-redmi-a2plus-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Xiaomi Redmi A2+? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Linguistic Echoes: 36 Words Birthed by the Globe"
-date: 2024-07-12T08:16:13.034Z
-updated: 2024-07-13T08:16:13.034Z
+date: 2025-02-05T03:48:39.555Z
+updated: 2025-02-10T23:38:22.907Z
 tags:
   - speak
   - english
@@ -57,9 +57,21 @@ thumbnail: https://thmb.techidaily.com/4eb72915c915cf8500790273e3fd63ebe88ce7c63
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **1\. Addiction**
 
@@ -68,6 +80,10 @@ _Henry V_ , Act I, Scene II
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **3\. Bandit**
 
@@ -101,17 +117,33 @@ _Othello_ , Act I, Scene III
 
 _The Merchant of Venice_ , Act I, Scene I
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **13.** Mimic
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **14.** Monumental
 
@@ -125,6 +157,10 @@ _Love’s Labour’s Lost_ , Act I, Scene I
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
@@ -136,6 +172,10 @@ _Hamlet_ , Act II, Scene I
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **20\. Radiance**
 
@@ -190,8 +230,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -199,6 +237,21 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-cutting-edge-strategies-for-igtv-backgrounds/"><u>[New] 2024 Approved Cutting-Edge Strategies for IGTV Backgrounds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-strategies-for-perfecting-igtv-video-titles/"><u>[Updated] 2024 Approved Strategies for Perfecting IGTV Video Titles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-powerhouse-educational-apps-boost-your-multilingualism/"><u>3 Powerhouse Educational Apps Boost Your Multilingualism</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-vivo-y77t-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Vivo Y77t PC | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-your-company-dialogue-leadership-and-influence/"><u>Advance Your Company Dialogue, Leadership & Influence</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/breathe-life-back-into-stuck-windows-applications/"><u>Breathe Life Back Into Stuck Windows Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-europe-day-a-decade-of-dialectal-diversity/"><u>Celebrating Europe Day - A Decade of Dialectal Diversity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-as-a-unique-time-for-language-learning-leap/"><u>Childhood as a Unique Time for Language Learning Leap</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-french-politeness-essential-salutations-and-greetings/"><u>Dive Into French Politeness: Essential Salutations & Greetings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/get-the-full-experience-official-macxdvd-suite-available-for-purchase-and-immediate-full-access/"><u>Get the Full Experience: Official MacXDVD Suite Available for Purchase and Immediate Full Access!</u></a></li>
+<li><a href="https://games-able.techidaily.com/melody-match-up-leading-audio-trivia-apps/"><u>Melody Match-Up: Leading Audio Trivia Apps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/seamlessly-running-llama-2-on-your-local-device/"><u>Seamlessly Running Llama 2 on Your Local Device</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-oppo-a1-5g-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Oppo A1 5G Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/be-hub-for-newbies-in-cinematic-craftsmanship/"><u>YouTube Hub for Newbies in Cinematic Craftsmanship</u></a></li>
+</ul></div>
 

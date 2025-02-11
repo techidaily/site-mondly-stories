@@ -1,7 +1,7 @@
 ---
 title: Teaching English As A Second Language
-date: 2024-07-12T08:15:35.285Z
-updated: 2024-07-13T08:15:35.285Z
+date: 2025-02-09T00:31:47.540Z
+updated: 2025-02-10T18:37:41.366Z
 tags:
   - speak
   - english
@@ -39,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 
  And I did. Honestly, it’s not entirely my merit because my tactics are mostly inspired by my experience as a student. What I did was make a list of all the strategies that worked for me and my colleagues. Next, I adapted this list to today’s trends, applied it in my classroom, and conquered two new lands called “interest” and “attention”. If you want to conquer the same lands in your classroom, stick around with me. I summed up my strategies in a list that I like to call**“The Decalogue of the Modern Teacher”** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Teaching English as a second language using videos
 
  I have a lot of friends that learned the basic English vocabulary by watching English cartoons. You might have some too. And I’m actually pretty sure that this is not a government secret: people (regardless of their age) learn faster and better when adding something they really enjoy doing to the learning process.
@@ -58,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 
  I know what you think and no, I don’t advise you to choose a Nicki Minaj song. Put “quality” and “modernity” in a balance before making your choice. Good luck!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Teaching English to adults: organize debates
 
 **Teaching English to adults** is tougher than**teaching English to kids** (if you ask me). But if Frodo managed to destroy the ring, you can teach adults some English too.
@@ -70,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 
 ![how-to-teach-english-abroad](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-abroad-960x640.jpg "How To Teach English As A Second Language 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. How to teach English in a fun way: create
 
  Creation is catharsis. Give your students time and some keywords and you will be amazed.
@@ -77,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 * **Create stories.** In high school, I had quite a big list of words I could not ever remember and my English teacher advised me to create a story using these words. Her technique worked like magic. To this day, I still create stories with words that I tend to forget.
 * **Create poems.** Your students might be reluctant to this strategy, but the creation process will rock their world making them proud of themselves.
 * Or**rap battles.** This is a bonus. You don’t have to be Nostradamus to foresee that students will love it!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Use fun language learning apps to break the routine
 
@@ -95,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 
  Food makes us happy. Good food makes us eager to learn more (food) words in a new language. Why shouldn’t we, as teachers, use this info in our own best interest? You can organize intercultural nights and discuss a lot of interesting things about the USA and UK’s cultures, but my guess is that traditional food will still be the star of the night.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. English as a second language for kids: celebrate English holidays
 
  Kids from all over the [world simply love Halloween](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . For them, it makes no difference that this is an American holiday. And trust me: your students are no different. As long as they have fun, it doesn’t matter what holiday you are celebrating.
@@ -106,6 +126,10 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 ## teaching-english-to-foreign-students
 
 ![teaching-english-to-foreign-students](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-to-foreign-students-960x640.jpg "How To Teach English As A Second Language 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Read and analyze fiction stories together
 
@@ -129,6 +153,10 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
 ![how-to-teach-english](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-scaled-960x905.jpg "How To Teach English As A Second Language 7")
  That is why you should advise them to get their English certification before graduating high school. Not only this will be a good exercise, but it will also help them in their careers. English as a second language in your CV isn’t just a plus anymore. It has become a must. Cross this one off their lists before life does it for them. Good luck!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhow-teach-english-second-language-10-valuable-tips-student%2F&t=How+to+Teach+English+as+a+Second+Language "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
@@ -144,8 +172,6 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -153,6 +179,20 @@ thumbnail: https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-whats-new-in-photography-an-updated-look-at-lg-360-cameras/"><u>[New] 2024 Approved What's New in Photography An Updated Look at LG 360 Cameras</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-techniques-downloading-and-crafting-instagram-stories/"><u>[New] Step-by-Step Techniques Downloading & Crafting Instagram Stories</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-harnessing-powerful-tools-for-effective-youtubers-seo/"><u>2024 Approved Harnessing Powerful Tools for Effective YouTubers' SEO</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-francophones-guide-to-essential-local-language/"><u>A Francophone's Guide to Essential Local Language</u></a></li>
+<li><a href="https://techtrends.techidaily.com/a-guide-to-unpacking-the-term-tag-implications-and-usage/"><u>A Guide to Unpacking the Term 'Tag': Implications and Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anthems-of-acquisition-melodic-methods-for-mastery-in-languages/"><u>Anthems of Acquisition: Melodic Methods for Mastery in Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charming-conversations-german-love-lines/"><u>Charming Conversations: German Love Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-continental-hit-apples-premier-app/"><u>Cross-Continental Hit: Apple's Premier App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-gaming-with-latin-language/"><u>Educational Gaming with Latin Language</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-oppo-a38-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-display-apple-iphone-se-screen-on-pc-easily-drfone-by-drfone-ios/"><u>In 2024, How to Display Apple iPhone SE Screen on PC Easily? | Dr.fone</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/top-clonezsoft-pour-ameliorer-lefficacite-du-raid-guide-complet/"><u>Top ClonezSoft Pour Améliorer L'Efficacité Du RAID : Guide Complet</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unleashing-the-power-of-free-high-end-3d-video-players/"><u>Unleashing the Power of Free, High-End 3D Video Players</u></a></li>
+</ul></div>
 

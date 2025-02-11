@@ -1,7 +1,7 @@
 ---
 title: "Introduction to Spanish Salutations: Top 10 Ways To Say Hello"
-date: 2024-07-12T08:15:12.167Z
-updated: 2024-07-13T08:15:12.167Z
+date: 2025-02-10T01:10:04.393Z
+updated: 2025-02-11T00:00:17.984Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/afda68c97ad8ab431f217d1a649d9d5c1081b7b5e
  Learning the basics of Spanish – like**“hello” in Spanish** or any other greetings or introductions – is the best preparation you can do for a future trip to a Spanish-speaking country. Either that or maybe you need to get your basic Spanish on point for a first date (wink wink) or a business meeting where you want to make a good first impression. No matter the situation, you came to the right place!
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## “Hello” in Spanish: ¡Hola
 
@@ -48,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/afda68c97ad8ab431f217d1a649d9d5c1081b7b5e
 
  ¡Hola, señor! by Bruce Jastrow©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “How are you?” in Spanish
 
  In many places around the world, you can also greet people by asking, “how are you?” or “what’s up?”. Particularly in informal situations.  
@@ -59,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/afda68c97ad8ab431f217d1a649d9d5c1081b7b5e
 **¿Qué tal?** – it translates to “how are you?” in English and if you add “todo” at the end – ¿qué tal todo? – it expands its meaning to “how is it all going?”  
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
 
@@ -72,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/afda68c97ad8ab431f217d1a649d9d5c1081b7b5e
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -89,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/afda68c97ad8ab431f217d1a649d9d5c1081b7b5e
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -113,8 +133,6 @@ thumbnail: https://thmb.techidaily.com/afda68c97ad8ab431f217d1a649d9d5c1081b7b5e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -122,6 +140,20 @@ thumbnail: https://thmb.techidaily.com/afda68c97ad8ab431f217d1a649d9d5c1081b7b5e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-essential-tips-direct-camera-roll-upload-to-snapchat/"><u>[New] 2024 Approved Essential Tips Direct Camera Roll Upload to Snapchat</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-youtube-inversion-creative-tactics-to-watch-videos-backwards/"><u>[New] In 2024, The Youtube Inversion Creative Tactics to Watch Videos Backwards</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-navigating-quick-skips-learn-tiktoks-speed-control/"><u>[Updated] Navigating Quick Skips Learn TikTok's Speed Control</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveil-windows-xps-essential-movie-making-features/"><u>2024 Approved Unveil Windows XP’s Essential Movie Making Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-turko-hanguk-intercultural-enigma/"><u>Deciphering the Turko-Hanguk Intercultural Enigma</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/durch-das-deutsche-wochenjahr-lernen/"><u>Durch Das Deutsche Wochenjahr Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-speech-with-these-iconic-latin-quotations/"><u>Elevate Your Speech with These Iconic Latin Quotations</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/how-to-use-video-titles-and-youtube-tags-for-more-views-in-2024/"><u>How to Use Video Titles and YouTube Tags for More Views, In 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-a-beginners-guide-to-use-snapseed-photo-editing-features/"><u>In 2024, A Beginner's Guide to Use Snapseed Photo Editing Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576550079-mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available On Huawei AppGallery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581601937-rapid-norwegian-understanding-10-daily-moments/"><u>Rapid Norwegian Understanding, 10 Daily Moments!</u></a></li>
+<li><a href="https://windows11.techidaily.com/solving-common-issues-with-windows-shared-printers/"><u>Solving Common Issues with Windows Shared Printers</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-filmforge-for-mac/"><u>Updated 2024 Approved FilmForge for Mac</u></a></li>
+</ul></div>
 

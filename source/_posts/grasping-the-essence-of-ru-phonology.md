@@ -1,7 +1,7 @@
 ---
 title: Grasping the Essence of RU Phonology
-date: 2024-07-12T08:15:06.818Z
-updated: 2024-07-13T08:15:06.818Z
+date: 2025-02-04T02:18:15.473Z
+updated: 2025-02-11T03:52:52.313Z
 tags:
   - speak
   - english
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/c54c6148123e508341809a9f8c11fb6ca2958cb78
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -56,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/c54c6148123e508341809a9f8c11fb6ca2958cb78
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -75,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/c54c6148123e508341809a9f8c11fb6ca2958cb78
 * **Э э** sounds like “e” in “met” or “edit”,
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letters that look the same as in English (but sound different)
 
@@ -99,7 +111,15 @@ thumbnail: https://thmb.techidaily.com/c54c6148123e508341809a9f8c11fb6ca2958cb78
 
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian alphabet pronunciation
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Russian lesson no. 1: rules
 
@@ -137,8 +157,6 @@ thumbnail: https://thmb.techidaily.com/c54c6148123e508341809a9f8c11fb6ca2958cb78
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -146,6 +164,24 @@ thumbnail: https://thmb.techidaily.com/c54c6148123e508341809a9f8c11fb6ca2958cb78
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-leading-green-filmmaking-software-for-2024/"><u>[New] Leading Green Filmmaking Software for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamline-your-vlc-experience-best-practices-for-macos/"><u>[New] Streamline Your VLC Experience Best Practices for MacOS</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-5-podcast-apps-for-listening-to-podcasts-on-an-iphone/"><u>[Updated] Top 5 Podcast Apps for Listening to Podcasts on an iPhone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-video-reconfiguration-audio-version/"><u>[Updated] Twitter Video Reconfiguration Audio Version</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning-you-should-definitely-learn-about/"><u>5 Myths About Language Learning You Should Definitely Learn About</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acontece-em-portugues-as-palavras-mais-usadas-para-se-encontrar/"><u>Acontece Em Português: As Palavras Mais Usadas Para Se Encontrar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aggregate-of-best-danish-productions-for-language-acquisition/"><u>Aggregate of Best Danish Productions for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-mondlys-ar-for-multilingual-education/"><u>Bridging Cultures: Mondly's AR for Multilingual Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-through-effective-business-communication/"><u>Building Bridges Through Effective Business Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/countries-observing-the-thanksgiving-tradition/"><u>Countries Observing the Thanksgiving Tradition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-finnish-language-lessons-for-maximum-retention/"><u>Digital Finnish Language Lessons for Maximum Retention</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-top-16-ways-to-demonstrate-gratitude-in-german/"><u>Discover the Top 16 Ways to Demonstrate Gratitude in German</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-smart-7-hd-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Infinix Smart 7 HD Phone with Broken Screen</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-smart-picks-user-friendly-bd-software-for-pc-and-mac/"><u>In 2024, Smart Picks User-Friendly BD Software for PC and Mac</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Xiaomi 14 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ised-content-ease-youtube-loop-integration-guide/"><u>Televised Content Ease YouTube Loop Integration Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-fixes-for-windows-11-and-10s-troublesome-error-code-0x80amooragef/"><u>Ultimate Fixes for Windows 11 and 10'S Troublesome Error Code 0X80amooragef</u></a></li>
+</ul></div>
 

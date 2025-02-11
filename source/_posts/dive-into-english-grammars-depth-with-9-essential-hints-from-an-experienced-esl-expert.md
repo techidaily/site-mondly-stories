@@ -1,7 +1,7 @@
 ---
 title: Dive Into English Grammar's Depth with 9 Essential Hints From an Experienced ESL Expert
-date: 2024-07-12T08:15:01.561Z
-updated: 2024-07-13T08:15:01.561Z
+date: 2025-02-04T22:12:47.576Z
+updated: 2025-02-11T01:20:51.644Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/7b383aed23b1ada69f4ef595191e5a033238c1b3d
  You always hear about how [English grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is easy compared to German, Finnish, or Icelandic grammar (there are even memes on the matter). And that’s true. English grammar can be super fun and easy to learn if you want it to be. Think about it: most probably, English wouldn’t be a_lingua franca_ if it were very difficult to learn. However almost 900 million people mastered it as a second language. And you can, too.
 
  I for one successfully learned [English as a second language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as a young child living in Eastern Europe. All it took was a dedicated teacher, daily grammar lessons (for some time), and a lot of passion. Now, I want to share my tips and tricks with you. Yes, English grammar is all about verbs, verb tenses, nouns, and adverbs. But it is also about feeling. I believe in [learning the English language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but I‌ also believe in feeling it. So here’s exactly what you could do to learn English grammar easily.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Start with basic grammar rules
 
@@ -81,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/7b383aed23b1ada69f4ef595191e5a033238c1b3d
 
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
@@ -95,13 +103,25 @@ thumbnail: https://thmb.techidaily.com/7b383aed23b1ada69f4ef595191e5a033238c1b3d
 
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Read your favorite books in English
 
@@ -136,8 +156,6 @@ thumbnail: https://thmb.techidaily.com/7b383aed23b1ada69f4ef595191e5a033238c1b3d
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,6 +163,26 @@ thumbnail: https://thmb.techidaily.com/7b383aed23b1ada69f4ef595191e5a033238c1b3d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-info.techidaily.com/s55-awaits-your-click-scan-through-our-detailed-review-of-this-affordable-high-definition-radar-detector/"><u>'S55' Awaits Your Click: Scan Through Our Detailed Review of This Affordable, High Definition Radar Detector</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tailor-made-youtube-closings-how-to-get-them-right/"><u>[Updated] In 2024, Tailor-Made YouTube Closings How to Get Them Right</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580959940-17-spanish-sayings-that-will-make-you-sound-like-a-native/"><u>17 Spanish Sayings That Will Make You Sound Like A Native</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-day-to-honor-teachers-with-a-linguistic-kaleidoscope/"><u>A Day to Honor Teachers with a Linguistic Kaleidoscope</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-hitchhikers-guide-to-galactic-dialogues/"><u>A Hitchhiker's Guide to Galactic Dialogues</u></a></li>
+<li><a href="https://some-tips.techidaily.com/ai-revolution-at-apple-embracing-the-future-of-technology-by-following-in-microsofts-bing-footsteps-zdnet-exclusive/"><u>AI Revolution at Apple: Embracing the Future of Technology by Following in Microsoft's Bing Footsteps | ZDNET Exclusive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babelhub-dubai-the-new-frontier-for-language-enthusiasts/"><u>BabelHub Dubai: The New Frontier for Language Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-bengali-skills-fastly/"><u>Boost Your Bengali Skills Fastly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/calendrier-francais-du-lunard/"><u>Calendrier Français Du Lunard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-linguistics-mental-gains/"><u>Cross-Cultural Linguistics, Mental Gains</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-ergonomic-keyboards-for-a-healthier-workspace/"><u>Discover the Leading Ergonomic Keyboards for a Healthier Workspace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquent-echoes-world-languages-quintessence/"><u>Eloquent Echoes: World Languages' Quintessence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576725998-from-beginner-to-fluent-learn-afrikaans-efficiently-on-mondly-heres-why/"><u>From Beginner to Fluent: Learn Afrikaans Efficiently on Mondly - Here’s Why!</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-vivo-x-fold-2-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Vivo X Fold 2 in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-the-apple-iphone-14-sim-lock-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock The Apple iPhone 14 SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-lg-27uhd68-screen-a-detailed-freesync-analysis/"><u>In 2024, LG 27UHD68 Screen A Detailed FreeSync Analysis</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-vivo-y55s-5g-2023-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Vivo Y55s 5G (2023) to Gmail | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/secure-and-recover-your-disappearing-iphone-unlocking-the-potential-of-apples-find-my-services/"><u>Secure and Recover Your Disappearing iPhone: Unlocking the Potential of Apple's Find My Services</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-anticipated-arrival-of-google-pixel-tablet-schedule-performance-specs-and-expert-analysis/"><u>The Anticipated Arrival of Google Pixel Tablet - Schedule, Performance Specs, and Expert Analysis</u></a></li>
+</ul></div>
 

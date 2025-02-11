@@ -1,7 +1,7 @@
 ---
 title: Becoming Fluent in Italy's Body Talk Lingo
-date: 2024-07-12T08:14:00.557Z
-updated: 2024-07-13T08:14:00.557Z
+date: 2025-02-09T23:01:55.811Z
+updated: 2025-02-11T01:19:28.063Z
 tags:
   - speak
   - english
@@ -20,7 +20,9 @@ thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b
 
  For example, did you know that Italians use about 250 hand gestures on a daily basis? And no, that’s not a typo. Italians’ hands don’t like to keep still. However, only a handful_(wink)_ of these are [essential to most Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) conversations. And even though it’s not entirely correct, many online charts combine together both popular and obscure gestures. For this reason, I took it upon myself to make**the real top 10 most popular Italian gestures** – a top that includes only signs or gestures that Italians use regularly.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Italian hand gestures meaning and usage
 
@@ -42,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b
 
 **Origin:** funnily enough, the most common theory could be considered inappropriate and I shall not disclose it here. Google is a big place, though. I’m sure you’ll manage 🤭.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. The “stealing” gesture
 
 **How to do it:** lower the palm and move all your fingers towards the palm, starting with the little finger and finishing with the index while also slowly moving the wrist.
@@ -55,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b
 **What to say:** actually nothing. You don’t want to get caught! This is probably the only Italian hand gesture that doesn’t need to be accompanied by an [expression](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 **Origin:** this gesture symbolizes something ‘magically’ disappearing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. The “I can’t stand you” gesture
 
@@ -77,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b
 **How to do it:** join hands. If your hands and arms are still, it means that you hope something good is going to happen or you’re asking something of someone (begging). If you move your arms while keeping your hands joined in this position, the meaning is still “please” but in the ironic sense of “oh, please/come on/stop it”. This expresses disagreement or disappointment in the situation.
 
 ![prayer clasp](https://edge.mondly.com/blog/wp-content/uploads/2022/01/prayer-clasp-960x729.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 15")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘prayer clasp’
 
@@ -106,6 +120,10 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![outstretched arm](https://edge.mondly.com/blog/wp-content/uploads/2022/01/outstretched-arm-960x867.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 17")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The ‘angry football player’ gesture
 
 **When to do it:** this gesture basically means “get lost!” or “get bent!”. Although it can also be used in a rude way depending on what you are saying, it’s not necessarily an offensive gesture. If used to joke around between friends, it means something like “come on, I don’t believe you!”.
@@ -121,6 +139,10 @@ This is a pretty common gesture among angry drivers and football players.
 **How to do it:** flatten all your fingers with the palm facing your body and flick them out from under your chin with indifference.
 
 ![chin flick](https://edge.mondly.com/blog/wp-content/uploads/2022/01/chin-flick-960x942.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 18")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘chin flick’
 
@@ -165,6 +187,10 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** it symbolizes the movement from one place to another.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. The “finger purse/pinched fingers” gesture
 
  Undoubtedly, the most famous around the world and probably the most used in Italy as well. It became a meme and also an emoji to basically symbolize the whole country.
@@ -180,6 +206,10 @@ This is a pretty common gesture among angry drivers and football players.
 **What to say:** _Ma cosa stai dicendo?_ (“What are you talking about?”),_Ma cosa vuoi \[da me\]?_ (“What do you want \[from me\]?”),_Dici sul serio?_ (“Are you serious?”) and actually many more.
 
 **Origin:** no one knows, but the most common theory is that the hand is trying to grab something but fails to do so. This symbolizes a person who tries to grasp a meaning but can’t.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why do Italians talk with their hands?
 
@@ -215,8 +245,6 @@ The rest is history.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -224,6 +252,22 @@ The rest is history.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-ttml-xml-and-beyond-creating-flawless-srts-for-audio-files/"><u>[New] TTML, XML & Beyond Creating Flawless SRTs for Audio Files</u></a></li>
+<li><a href="https://win11.techidaily.com/a-comprehensive-guide-to-clearing-defender-history-on-windows-pcs/"><u>A Comprehensive Guide to Clearing Defender History on Windows PCs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advanced-management-systems-for-linguistic-success/"><u>Advanced Management Systems for Linguistic Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-el-ciclo-lunar-en-espanol-del-lunes-al-domingo/"><u>Aprender El Ciclo Lunar en Español: Del Lunes Al Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-breakthroughs-in-brief-sessions/"><u>Bengali Breakthroughs in Brief Sessions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-asus-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Asus Fingerprint Lock</u></a></li>
+<li><a href="https://solve-help.techidaily.com/decouvrez-les-differences-entre-sauvegarde-et-synchronisation-guide-de-selection/"><u>Découvrez Les Différences Entre Sauvegarde Et Synchronisation - Guide De Sélection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-a-new-world-of-language-learning-mondlys-virtual-reality-app/"><u>Dive Into a New World of Language Learning - Mondly's Virtual Reality App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elders-advantage-multilingualisms-hidden-gifts/"><u>Elders' Advantage: Multilingualism's Hidden Gifts</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Motorola G54 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-official-method-to-unlock-your-iphone-7-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 7 Official Method to Unlock Your iPhone 7</u></a></li>
+<li><a href="https://driver-install.techidaily.com/installing-updated-hp-officejet-8620-drivers-on-windows/"><u>Installing Updated HP OfficeJet 8620 Drivers on Windows</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/professional-video-editor-for-mac-os-avs-for-2024/"><u>Professional Video Editor for Mac OS AVS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577979806-speak-anywhere-everytime-meet-mondlyar/"><u>Speak Anywhere, Everytime - Meet MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577789463-speak-slovak-swiftly-master-basics-within-quick-online-moments/"><u>Speak Slovak Swiftly - Master Basics Within Quick Online Moments</u></a></li>
+</ul></div>
 

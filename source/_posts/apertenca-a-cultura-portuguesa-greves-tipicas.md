@@ -1,7 +1,7 @@
 ---
 title: "Apertença À Cultura Portuguesa: Greves Tipicas"
-date: 2024-07-12T08:14:53.918Z
-updated: 2024-07-13T08:14:53.918Z
+date: 2025-02-06T03:00:18.826Z
+updated: 2025-02-11T02:57:25.846Z
 tags:
   - speak
   - english
@@ -20,9 +20,17 @@ thumbnail: https://thmb.techidaily.com/f780668281f43de469309d641324f16afda3a68eb
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
 
@@ -52,6 +60,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Beleza?_ – What’s up?** – universally informal and perfect for greeting close friends. It literally translates to “what’s going on with your life?”
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
@@ -107,12 +119,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -136,8 +156,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,6 +163,22 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-roadmap-for-effective-advertising-on-facebook/"><u>[Updated] 2024 Approved The Roadmap for Effective Advertising on Facebook</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-newest-compatible-cameras-to-match-samsung-gear-360/"><u>[Updated] Newest Compatible Cameras to Match Samsung Gear 360</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-direct-youtube-stream-of-google-meet-step-by-step-instructions/"><u>2024 Approved Direct YouTube Stream of Google Meet - Step-by-Step Instructions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-integrated-story-spread-4-simple-steps-on-fb/"><u>2024 Approved Integrated Story Spread 4 Simple Steps on FB</u></a></li>
+<li><a href="https://some-tips.techidaily.com/aws-elevates-cloud-competition-with-new-innovations-at-reinvent-2021-zdnet-insights/"><u>AWS Elevates Cloud Competition with New Innovations at Re:Invent 2021 - ZDNet Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/britlish-english-mastering-the-local-language/"><u>Britlish English: Mastering the Local Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-brazilian-and-european-portugueseback-buttonfilter-button/"><u>Comparing Brazilian And European PortugueseBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-mondlys-innovative-phrase-compendium/"><u>Discover Mondly's Innovative Phrase Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-romanian-through-our-app/"><u>Discover Romanian Through Our App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-down-under-slang-a-comprehensible-guide/"><u>Dive Into Down Under Slang: A Comprehensible Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-honor-90-pro-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Honor 90 Pro Phone Hassle-Free</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-asus-rog-phone-8-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Asus ROG Phone 8 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581019140-the-body-parts-in-spanish-from-head-to-toe/"><u>The Body Parts In Spanish – From Head To Toe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580200266-top-10-italian-hand-gestures-italians-use-all-the-time/"><u>Top 10 Italian Hand Gestures Italians Use All the Time</u></a></li>
+</ul></div>
 

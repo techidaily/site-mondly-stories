@@ -1,7 +1,7 @@
 ---
 title: "Chat Like the Locals: The Best 17 Immediate Spanish Phrases"
-date: 2024-07-12T08:14:04.848Z
-updated: 2024-07-13T08:14:04.848Z
+date: 2025-02-07T02:14:07.098Z
+updated: 2025-02-11T04:38:31.084Z
 tags:
   - speak
   - english
@@ -58,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/b53e4c331196053afd389dad87c586f0b9c8a334f
 
  Did you know this one? It means that if there are unpleasant rumors about someone or something, there is probably a good reason for it. Meaning that the rumors are almost always partly true.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Del tal palo, tal astilla
 
 **Literal translation:** Such is the stick, such is the chip.
@@ -90,6 +94,10 @@ Who wouldn’t prefer cakes over bread though?
 
  But it’s not entirely absurd though. Think about the moment you break in a nutshell. If it’s empty, it made a loud noise for literally nothing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. El que no arriesga, no gana
 
 **Literal translation:** The person who does not risk cannot win.
@@ -109,6 +117,10 @@ Who wouldn’t prefer cakes over bread though?
 **English equivalent:** “The shoemaker’s son always goes barefoot.”
 
  This saying illustrates the ironic absence of an object or virtue in a place where it should not be lacking.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## General Spanish sayings with no direct English equivalent
 
@@ -142,6 +154,10 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 ![spanish phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-phrases-1-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
 
 ### 3\. A quien madruga, Dios le ayuda
@@ -157,6 +173,10 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
  _– Estoy un poco nervioso para mañana, pero espero que todo salga bien con el nuevo proyecto._ (“I’m a little nervous for tomorrow, but I hope all will be well with the new project.”)
 
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Como Pedro por su casa
 
@@ -174,9 +194,17 @@ _– Tu suegra lleva aquí un tiempo. Supongo que se siente cómoda aquí._ (“
 
 _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish sayings about animals
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. A caballo regalado no se le mira el diente
 
@@ -189,6 +217,10 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 ![spanish idioms](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-idioms-960x720.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 5")
 
  “A man and his dog in San Sebastián, Spain” by Lucian Alexe©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Más vale pájaro en mano que ciento volando
 
@@ -215,6 +247,10 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to see the Spanish sayings in action in real conversations? Get Mondly, the award-winning language learning app that will help you [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were born in Madrid.
@@ -231,8 +267,6 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -240,6 +274,18 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-androids-ultimate-fix-for-frustratingly-slow-vids/"><u>[New] 2024 Approved Android's Ultimate Fix for Frustratingly Slow Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-tos-selecting-the-very-best-free-iphoneipad-editors/"><u>[New] How-To's Selecting the Very Best Free iPhone/iPad Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-games-that-build-bilingual-brilliance/"><u>Brain Games That Build Bilingual Brilliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-english-mondlys-pathway-for-proficiency/"><u>Conquer English: Mondly's Pathway for Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-your-personalized-language-learning-plan/"><u>Crafting Your Personalized Language Learning Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-culture-through-language-learn-hangul-understand-squid-game/"><u>Decoding Culture Through Language: Learn Hangul, Understand Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577017353-enjoy-the-best-of-both-worlds-get-free-mondly-plus-for-life/"><u>Enjoy the Best of Both Worlds - Get Free Mondly Plus for Life!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-apple-iphone-14-pro-max-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-oppo-find-n3-flip-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Oppo Find N3 Flip FRP Without Computer</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-fixing-constant-lag-and-crashes-in-warframe/"><u>Resolved: Fixing Constant Lag and Crashes in Warframe</u></a></li>
+<li><a href="https://games-able.techidaily.com/subtlety-a-game-changer-for-players/"><u>Subtlety: A Game Changer for Players</u></a></li>
+</ul></div>
 

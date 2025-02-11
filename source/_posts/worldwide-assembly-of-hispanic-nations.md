@@ -1,7 +1,7 @@
 ---
 title: Worldwide Assembly of Hispanic Nations
-date: 2024-09-14T16:02:49.538Z
-updated: 2024-09-21T19:34:00.913Z
+date: 2025-02-06T02:05:55.192Z
+updated: 2025-02-10T22:18:36.081Z
 tags:
   - speak
   - english
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
 
  Now just imagine how many new friends you could make if you started [learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) now!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## List of Spanish-speaking countries
 
  **Formally, Spanish is the official language of 20 countries and one dependent territory: Argentina, Bolivia, Chile, Colombia, Costa Rica, Cuba, Dominican Republic, Ecuador, El Salvador, Equatorial Guinea, Guatemala, Honduras, Mexico, Nicaragua, Panama, Paraguay, Peru, Spain, Uruguay, Venezuela and Puerto Rico.**
@@ -55,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in South America
 
@@ -85,24 +93,15 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
 
  \* the number represents the percentage of the population who speak Spanish.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
 
@@ -127,10 +126,7 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
@@ -140,6 +136,10 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
  One reason is that Spain was once a very powerful empire and its influence can still be seen in many parts of the world. Another reason is that many people from Spanish-speaking countries have migrated and brought their language with them. Probably the best example is **the United States where more than 41 million people speak Spanish as a native language.**
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A brief history of the Spanish language
 
@@ -159,19 +159,6 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Speak Spanish like a local fast
 
@@ -202,5 +189,23 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-adventures-with-the-foremost-6-gopro-mounts-revealed/"><u>[New] 2024 Approved Mastering Adventures with the Foremost 6 GoPro Mounts Revealed</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-crafting-a-scintillating-trailer-tale/"><u>[New] In 2024, Crafting A Scintillating Trailer Tale</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-unlock-your-editing-potential-the-ultimate-guide-to-background-erasure-in-ps/"><u>[New] Unlock Your Editing Potential The Ultimate Guide to Background Erasure in PS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-action-shooting-basics-buying-guide-for-new-film-enthusiasts/"><u>[Updated] Action Shooting Basics – Buying Guide for New Film Enthusiasts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-background-excision-tool-affinity-photo/"><u>[Updated] Background Excision Tool Affinity Photo</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/warning-spooler-error-affects-print-output/"><u>[WARNING] Spooler Error Affects Print Output</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-ways-mondly-has-improved-my-language-learning/"><u>10 Ways Mondly Has Improved My Language Learning</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unlock-fast-video-trimming-in-windows-11-apps/"><u>2024 Approved Unlock Fast Video Trimming in Windows 11 Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginning-french-novels-selection-the-ultimate-starter-list/"><u>Beginning French Novels Selection: The Ultimate Starter List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/complete-list-of-top-100-commonly-misspelled-words-in-english/"><u>Complete List Of Top 100 Commonly Misspelled Words In English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581493296-explore-the-benefits-of-learning-croatian-here-are-the-top-7-for-you/"><u>Explore the Benefits of Learning Croatian – Here Are The Top 7 For You</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/free-video-embedding-techniques-for-online-articles-for-2024/"><u>Free Video Embedding Techniques for Online Articles for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-communication-top-ten-ways-learning-another-language-helps/"><u>The Art of Communication: Top Ten Ways Learning Another Language Helps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-seamless-replay-on-youtube-with-our-pro-tips/"><u>Unlock Seamless Replay on YouTube with Our Pro Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-first-ar-chat-app/"><u>Unveiling the First AR Chat App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-verbal-legacy-the-echoes-of-old-norse-speech/"><u>Viking Verbal Legacy: The Echoes of Old Norse Speech</u></a></li>
+</ul></div>
 

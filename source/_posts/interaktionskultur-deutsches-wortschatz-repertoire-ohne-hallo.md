@@ -1,7 +1,7 @@
 ---
 title: "Interaktionskultur: Deutsches Wortschatz-Repertoire Ohne 'Hallo'"
-date: 2024-07-12T08:15:11.067Z
-updated: 2024-07-13T08:15:11.067Z
+date: 2025-02-05T22:31:49.924Z
+updated: 2025-02-10T22:41:09.602Z
 tags:
   - speak
   - english
@@ -74,9 +74,21 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -103,11 +115,19 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Grüß Gott – “God bless you”
 
@@ -156,8 +176,6 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -165,6 +183,23 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-expertise-in-action-gopro-for-dynamic-time-lapses/"><u>[Updated] Expertise in Action GoPro for Dynamic Time-Lapses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anatomie-essentielle-decoder-le-corps-humain-en-francais/"><u>Anatomie Essentielle: Décoder Le Corps Humain en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astonish-abruzzese-with-essential-slang-terms/"><u>Astonish Abruzzese with Essential Slang Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-russian-vocabulary-and-phrases-mastery-101/"><u>Basic Russian Vocabulary & Phrases Mastery 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-bilingual-today-learn-german-from-popular-show-dark/"><u>Be Bilingual Today! Learn German From Popular Show, Dark</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-cinematic-classics-enhancing-language-skills/"><u>Danish Cinematic Classics Enhancing Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-sistema-muscular-completo-un-viaje-interactivo-desde-la-cabeza-a-los-toes-en-espanol/"><u>Descubre El Sistema Muscular Completo: Un Viaje Interactivo Desde La Cabeza A Los Toes En Español</u></a></li>
+<li><a href="https://win-hot.techidaily.com/fixar-errores-inicializadores-em-windows-10-e-11-passos-detalhados-e-provenientes/"><u>Fixar Errores Inicializadores Em Windows 10 E 11 - Passos Detalhados E Provenientes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-buy-youtube-views-everything-you-need-to-know/"><u>How to Buy YouTube Views - Everything You Need To Know</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 To Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/human-resources-transformed-by-chatai/"><u>Human Resources Transformed by ChatAI</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-ultimate-guide-a-detailed-walkthrough-of-internet-radio-logging/"><u>In 2024, The Ultimate Guide A Detailed Walkthrough of Internet Radio Logging</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/latest-insights-on-facebook-whats-new/"><u>Latest Insights on Facebook - What's New?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579992783-new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon!</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723010623597-pc-gamers-rejoice-playing-god-of-war-in-an-exciting-new-fps-mode/"><u>PC Gamers Rejoice: Playing God of War in an Exciting New FPS Mode</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-5-free-language-learning-apps/"><u>Top 5 Free Language Learning Apps</u></a></li>
+</ul></div>
 

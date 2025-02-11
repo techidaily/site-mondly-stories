@@ -1,7 +1,7 @@
 ---
 title: "Mastering Punctuation, Part 2: A Guide to Understanding and Using English Contractions"
-date: 2024-09-14T16:38:27.163Z
-updated: 2024-09-21T17:13:23.807Z
+date: 2025-02-05T23:22:07.469Z
+updated: 2025-02-10T20:40:23.893Z
 tags:
   - speak
   - english
@@ -38,9 +38,17 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
 
  Careful, though! It’s**best to avoid contractions in highly formal contexts,** like academic papers, grant proposals, formal speeches, or any materials requiring a professional appearance.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Understanding English contractions
 
  Contractions are an essential part of the English language. For this reason, it’s important to understand and use them correctly. Let’s look at a couple of examples so you can better understand what we’re talking about.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Types of English contractions
 
@@ -72,10 +80,7 @@ Coming Soon
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Grammar rules for English contractions
@@ -89,16 +94,7 @@ Coming Soon
 5. **Negative contractions and tag questions go together like English speakers and [misspelled words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :** A tag question is a short question added at the end of a sentence to turn it into a question. They are used to confirm information or engage the listener in the conversation. For example: “You’re coming to the party, aren’t you?”. When the declarative part of the sentence is affirmative, the question part is formulated as negative and conversely. If the tag question is negative, it’s your cue to use a contraction.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Common contractions in English
@@ -276,6 +272,10 @@ Coming Soon
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Improve your English fast
 
  Do you want to get better at speaking English? Try Mondly, the award-winning language app that is serious about making learning English fun.
@@ -305,5 +305,17 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-secrets-unlocked-banishing-instagram-video-fails/"><u>[New] 2024 Approved Secrets Unlocked Banishing Instagram Video Fails</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unlocking-the-potential-of-screen-sharing-on-google-meet/"><u>[New] Unlocking the Potential of Screen Sharing on Google Meet</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-calculating-earnings-ad-revenues-in-the-world-of-youtube/"><u>[Updated] 2024 Approved Calculating Earnings Ad Revenues in the World of YouTube?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-safeguarding-your-listening-pleasure-with-3-steps-for-2024/"><u>[Updated] Safeguarding Your Listening Pleasure with 3 Steps for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pro-iphone-tips-for-capturing-the-perfect-landscape-moments/"><u>2024 Approved Pro iPhone Tips for Capturing the Perfect Landscape Moments</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/advanced-tips-for-efficient-voice-access-on-windows/"><u>Advanced Tips for Efficient Voice Access on Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/el-arte-de-comprender-el-corazon-humano-en-espanol-desde-el-ojo-a-las-unas/"><u>El Arte De Comprender El Corazón Humano en Español: Desde El Ojo A Las Uñas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lectura-de-relojes-en-espanol-un-camino-inicial/"><u>Lectura De Relojes en Español: Un Camino Inicial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-common-german-expressions-curated-list-top-25/"><u>Mastering Common German Expressions - Curated List (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-profits-invest-in-business-linguistics-training/"><u>Skyrocket Profits: Invest in Business Linguistics Training</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Global Halloween Festivities & Customs
-date: 2025-01-26T17:40:00.722Z
-updated: 2025-01-29T18:42:33.590Z
+date: 2025-02-05T01:24:25.669Z
+updated: 2025-02-10T16:37:51.521Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Origins of Halloween
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 ## Halloween-like Traditions Worldwide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
@@ -42,13 +42,13 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -68,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
  Moving to Europe, we discover that although American Halloween is even more notorious here than in other parts of the world, people still have their own traditional ways of celebrating the afterlife. For example, Italy has_Tutti i Morti,_ a public day celebrated on the 1st and 2nd of November by remembering and praying for the deceased.
@@ -77,16 +81,12 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
@@ -136,18 +136,20 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-proven-remedies-to-enhance-your-instagram-videography/"><u>[New] In 2024, Proven Remedies to Enhance Your Instagram Videography</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-top-ten-viewers-favorites-in-a-single-day-on-youtube/"><u>[New] In 2024, Top Ten Viewers' Favorites in a Single Day on YouTube</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-user-friendly-routines-preserving-google-voice-communications-for-2024/"><u>[New] User-Friendly Routines Preserving Google Voice Communications for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-maximize-your-media-influence-with-10-effortless-steps/"><u>[Updated] In 2024, Maximize Your Media Influence with 10 Effortless Steps</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-pixelmaster-360-multiplatform-resolution-booster/"><u>[Updated] In 2024, PixelMaster 360 – Multiplatform Resolution Booster</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-premiere-add-ons-for-firefox-recording/"><u>[Updated] In 2024, Premiere Add-Ons for Firefox Recording</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-ultimate-facetune-guide-elevating-your-image-quality-for-2024/"><u>[Updated] Ultimate Facetune Guide Elevating Your Image Quality for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/beat-the-buffer-strategies-to-resolve-lag-issues-in-forza-horizon-5/"><u>Beat the Buffer: Strategies to Resolve Lag Issues in Forza Horizon 5</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-language-limitations-oculus-quest-adds-multilingual-capabilities/"><u>Break Language Limitations: Oculus Quest Adds Multilingual Capabilities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-language-tips-birthday-compliments/"><u>Global Language Tips: Birthday Compliments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-languages-a-cultural-overview/"><u>Romance Languages: A Cultural Overview</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-german-lingua-online-platform-mondly-wins/"><u>Top German Lingua Online Platform - Mondly Wins</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/transforma-mkv-en-m4v-gratuitamente-en-una-cualquiera-guia-paso-a-paso-con-movavi/"><u>Transforma MKV en M4V Gratuitamente en Una Cualquiera: Guía Paso a Paso Con Movavi</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-seamless-youtube-to-file-conversion-techniques/"><u>[Updated] Seamless YouTube to File Conversion Techniques</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/decoding-mathematical-conundrums/"><u>Decoding Mathematical Conundrums</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-handbook-for-j-alphabets-and-symbols/"><u>Essential Handbook for J-Alphabets and Symbols</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-dive-into-urdu-for-10-minsday/"><u>Fast Track to Fluency: Dive Into Urdu for 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluent-ukrainian-with-10-minute-daily-stretches-93-chars/"><u>Fast Track to Fluent Ukrainian with 10-Minute Daily Stretches (93 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/francais-des-accueil-une-douceur-exprimee/"><u>Français Des Accueil: Une Douceur Exprimée</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-flirt-the-language-of-seduction/"><u>French Flirt: The Language of Seduction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-basic-to-breakthrough-mondlys-english-journey/"><u>From Basic to Breakthrough: Mondly's English Journey</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/hide-location-on-apple-iphone-15-plus-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>Hide location on Apple iPhone 15 Plus and Android without others knowing | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-tecno-camon-20-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Tecno Camon 20 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-infinix-zero-30-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Infinix Zero 30 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/in-depth-review-why-the-logitech-g-pro-x-2-lightspeed-is-essential-for-hardcore-gamers/"><u>In-Depth Review: Why the Logitech G Pro X 2 Lightspeed Is Essential for Hardcore Gamers</u></a></li>
 </ul></div>
 

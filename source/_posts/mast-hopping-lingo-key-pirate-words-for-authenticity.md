@@ -1,7 +1,7 @@
 ---
 title: "Mast-Hopping Lingo: Key Pirate Words for Authenticity"
-date: 2024-07-12T08:15:22.357Z
-updated: 2024-07-13T08:15:22.357Z
+date: 2025-02-09T03:29:39.630Z
+updated: 2025-02-11T03:32:18.808Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/bd9bfd190306deb90b91d858667c2c41b78982227
 
 ![talk like a pirate day](https://media.giphy.com/media/5oVt3GSJuXKP6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The origins of Talk Like a Pirate Day
 
  It was June 6, 1995, when John Baur and Mark Summers – later known by their pirate names Ol’ Chumbucket and Cap’n Slappy – played racquetball. The story says one of them got injured during the game and reacted with an outburst of “Arrr!”. Thus the Talk Like a Pirate Day was born. Out of respect for the observance of World War II’s D-Day on the 6th of June, the soon-to-be world-renowned pirates decided to choose Summers’ now ex-wife’s birthday – September 19 – to celebrate pirate lingo.
@@ -34,11 +38,19 @@ thumbnail: https://thmb.techidaily.com/bd9bfd190306deb90b91d858667c2c41b78982227
 
 ![ahoy matey](https://edge.mondly.com/blog/wp-content/uploads/2019/09/ahoy-matey-1024x575.jpg "How To Talk Like A Pirate: 20 Pirate Words 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Ahoy, matey!” by Austin Neill©
 
  All you have to do is talk in a deep, gravelly voice, grunt and growl a lot, use insults abundantly, yell “arr!” every now and then, mumble incoherently from all the rum you’ve drunk, slur your words, give up g’s and v’s in most words, and replace “you” and your“ with “ye” and “yer”.
 
 Easy peasy, ain’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pirate lingo: useful pirate words and phrases
 
@@ -73,10 +85,18 @@ Easy peasy, ain’t it?
 
 ![jack sparrow](https://media.giphy.com/media/LrIA0CryFKvN6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fahoy-its-talk-like-a-pirate-day-arr%2F&t=How+to+Talk+Like+a+Pirate%3A+20+Pirate+Words "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Ahoy! Get your language skills to the next level
 
@@ -90,8 +110,6 @@ Easy peasy, ain’t it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -99,6 +117,24 @@ Easy peasy, ain’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ultimate-low-cost-gaming-setups-keyboard-picks/"><u>[New] Ultimate Low-Cost Gaming Setups Keyboard Picks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-copyright-free-online-collections-for-games/"><u>[Updated] Copyright-Free Online Collections for Games</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-magnifymaster-x7-resizing-photos-to-perfection/"><u>2024 Approved MagnifyMaster X7 Resizing Photos to Perfection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-fortiesback-buttonfilter-button/"><u>4 Reasons Why You Should Learn A Language In Your FortiesBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-your-corporate-language-training-goals-a-comprehensive-guide/"><u>Achieve Your Corporate Language Training Goals - A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aufsteigende-abfahrtsprachen-im-deutschen/"><u>Aufsteigende Abfahrtsprachen Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-boosts-for-bilingualism-the-ultimate-three-workouts/"><u>Brain Boosts for Bilingualism: The Ultimate Three Workouts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognados-entre-ingles-y-espanol-50-expresiones-simples/"><u>Cognados Entre Inglés Y Español: 50 Expresiones Simples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-continental-talk-brazilian-vs-european-portuguese/"><u>Cross-Continental Talk: Brazilian Vs. European Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-wochentage-einfache-lerneinheit/"><u>Deutsche Wochentage: Einfache Lerneinheit</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-apple-iphone-15-pro-by-drfone-ios/"><u>How to Fix Locked Apple ID on Apple iPhone 15 Pro</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expertly-easy-timekeepers-without-a-price-tag/"><u>In 2024, Expertly Easy Timekeepers Without a Price Tag</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/infuse-photos-with-realism-facial-motion-blur-via-picsart/"><u>Infuse Photos with Realism Facial Motion Blur via Picsart</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-the-art-of-podcast-name-creation-and-50plus-dynamic-example-titles/"><u>Mastering the Art of Podcast Name Creation & 50+ Dynamic Example Titles</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/solving-your-windows-pcs-sound-card-problems-expert-advice-from-yl-computing/"><u>Solving Your Windows PC's Sound Card Problems: Expert Advice From YL Computing</u></a></li>
+<li><a href="https://win-answers.techidaily.com/star-wars-battlefront-2-black-screen-bug-top-tips-for-a-clear-display/"><u>Star Wars Battlefront 2 Black Screen Bug – Top Tips for a Clear Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578407692-swiftlearnbangla-master-language-with-minutes/"><u>SwiftLearnBangla: Master Language with Minutes</u></a></li>
+</ul></div>
 

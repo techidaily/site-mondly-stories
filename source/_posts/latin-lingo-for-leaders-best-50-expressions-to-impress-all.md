@@ -1,7 +1,7 @@
 ---
 title: "Latin Lingo for Leaders: Best 50 Expressions to Impress All"
-date: 2025-01-26T20:33:36.218Z
-updated: 2025-01-29T20:41:37.784Z
+date: 2025-02-09T19:39:23.829Z
+updated: 2025-02-10T16:09:33.573Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/56c9727e1647faa9df05a7ff87a2cebb670ed94ea
 ## Latin Lingo for Leaders: Best 50 Expressions to Impress All
 
  Far from being a dead language, Latin is very much alive in our day-to-day conversations._Carpe diem, et cetera, cum laude, curriculum vitae_ and_mea culpa_ are just a few of the Latin phrases still widely used today. It’s unclear whether Latin made a comeback or it has been this cool for hundreds of years. But one thing is sure: **Latin phrases are nowadays the cooler siblings of slang words.** And Julius Caesar approves this message. So, let’s see the most famous Latin phrases you can use to impress your friends.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Famous Latin Phrases you need to know
 
@@ -34,23 +38,19 @@ These are nearly as famous as Julius Caesar himself.
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
  A_dictum_ (‘a short statement that expresses a general truth’) coined by French philosopher René Descartes in Latin.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Et tu, Brute? —** _“And you, Brutus?”_
 
@@ -58,23 +58,19 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Using some Latin phrases here and there will automatically make you look smarter.
 
@@ -145,7 +141,7 @@ Every student’s favorite. We all know what this one means, don’t we?
  “In vino veritas” by Daniel Vogel©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cool Latin that are still used today
@@ -177,7 +173,7 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
@@ -280,10 +276,6 @@ Different phrase, same story. You’re welcome.
 
  “Roman statue” by engin akyurt©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -308,6 +300,10 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -315,6 +311,10 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
  Besides, Latin can prepare you for many professions or simply discussions with scholarly people. These fields include law, medicine, science, music, theology, philosophy, art, and literature. Many scholars believe that learning Latin also sharpens the mind and cultivates analysis and attention.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why are Latin words used in law?
 
@@ -356,14 +356,21 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-15-online-audio-haven-sites-for-video-content-makers/"><u>[New] 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unleash-creativity-learning-snapseeds-power-tools-for-2024/"><u>[New] Unleash Creativity Learning Snapseed's Power Tools for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/best-samsung-galaxy-a05s-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Samsung Galaxy A05s Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-motorola-defy-2-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Motorola Defy 2 to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-diacritics-and-accented-typography/"><u>Mastering Spanish Diacritics & Accented Typography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unlocks-ukrainians-global-communication-with-no-cost/"><u>Mondly Unlocks Ukrainians' Global Communication with No Cost</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swiftly-master-colorful-french-expressions/"><u>Swiftly Master Colorful French Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-respectful-addresses-in-japan/"><u>The Art of Respectful Addresses in Japan</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/twitch-reversion-made-simple-top-ten-instructions-at-hand-for-2024/"><u>Twitch Reversion Made Simple Top Ten Instructions at Hand for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aster-adding-youtube-videos-to-gslides-a-step-by-step-guide/"><u>[New] Master Adding YouTube Videos to GSlides A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/1728462367591-onedrive/"><u>重新同步OneDrive文件：完全指南</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/a-curated-selection-of-11-amazing-sites-for-free-movie-downloads-no-payments-required/"><u>A Curated Selection of 11 Amazing Sites for Free Movie Downloads – No Payments Required</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-a-contar-el-tiempo-y-las-horas-en-espanol/"><u>Aprender a Contar El Tiempo Y Las Horas en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-boost-learn-efficiently-live-linguistically/"><u>Bengali Boost: Learn Efficiently, Live Linguistically</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580131323-conquer-communication-with-unbeatable-linguistic-savings-this-year/"><u>Conquer Communication with Unbeatable Linguistic Savings This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-bilingual-advocates-through-esl-programs/"><u>Cultivating Bilingual Advocates Through ESL Programs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-dialogues-the-turkish-korean-connection/"><u>Cultural Dialogues: The Turkish-Korean Connection</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-solutions-for-halo-infinite-visual-disruptions/"><u>Effective Solutions for Halo Infinite Visual Disruptions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/einfaches-deutsch-von-1-bis-100-zahlen-lernen/"><u>Einfaches Deutsch: Von 1 Bis 100 Zählen Lernen</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/error-224003-repairing-file-playback/"><u>Error 224003: Repairing File Playback</u></a></li>
+<li><a href="https://some-skills.techidaily.com/guide-to-boost-your-telegram-marketing-efforts-for-2024/"><u>Guide to Boost Your Telegram Marketing Efforts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581331881-mondly-by-pearson/"><u>Mondly by Pearson</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ronized-screenscape-tv-loops-of-online-media/"><u>Synchronized Screenscape TV Loops of Online Media</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/unmatched-video-downloads-top-8-for-2024/"><u>Unmatched Video Downloads Top 8 for 2024</u></a></li>
 </ul></div>
 

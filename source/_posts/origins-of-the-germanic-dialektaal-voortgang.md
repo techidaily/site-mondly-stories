@@ -1,7 +1,7 @@
 ---
 title: Origins of the Germanic Dialektaal Voortgang
-date: 2025-01-26T01:34:37.617Z
-updated: 2025-01-29T17:49:56.464Z
+date: 2025-02-08T01:08:50.901Z
+updated: 2025-02-11T00:33:30.933Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
 
  It’s true that Dutch and_Deutsch_ look and sound somehow similar and there \*was\* a connection there. But not anymore. So let’s settle this out once and for all.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Where are Dutch people from?
 
  It’s pretty obvious why this confusion still exists. There’s no surprise that even the reverse of this question (“what are people from the Netherlands called?”) is also a very popular Google inquiry. So what is the answer after all?
@@ -27,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
  First, you should know that a demonym is a name used for the people who live in a particular country or state. Naturally, French people are from France,[Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) people are from Poland, and Italian people are from Italy. So where are Dutch people from?
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Why are Dutch people called Dutch?
 
@@ -55,7 +55,7 @@ Okay, bare with me. There’s more.
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Netherlands vs Holland
@@ -65,7 +65,7 @@ Okay, bare with me. There’s more.
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language do they speak in the Netherlands?
@@ -82,15 +82,7 @@ Okay, bare with me. There’s more.
 
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  ‘Tulip fields in the Netherlands’ by redcharlie©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
 
@@ -99,6 +91,10 @@ Okay, bare with me. There’s more.
  The Dutch language is also spoken in a small part of France and on the islands of Curaçao, Sint Maarten, Aruba (all three part of the Kingdom of the Netherlands), Bonaire, Saba, and Sint Eustatius.
 
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is German Dutch?
 
@@ -112,6 +108,10 @@ Okay, bare with me. There’s more.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Start learning Dutch today
 
@@ -142,19 +142,18 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-money-making-masters-youtubes-financial-kings/"><u>[New] In 2024, Money-Making Masters YouTube's Financial Kings</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-transcription-mastery-for-office-productivity-using-microsoft-words-voice-recognition-features-for-2024/"><u>[New] Transcription Mastery for Office Productivity Using Microsoft Word's Voice Recognition Features for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-mastering-tiktokenas-a-game-changer-top-30-unique-username-suggestions/"><u>[Updated] In 2024, Mastering TikTok'enas a Game Changer Top 30 Unique Username Suggestions</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/2024-approved-enhancing-m4a-listening-pleasure-advanced-tips-for-android-users/"><u>2024 Approved Enhancing M4A Listening Pleasure Advanced Tips for Android Users</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-fastest-to-learn-global-languages/"><u>Language Leap Forward: Fastest-to-Learn Global Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/le-monde-interne-explique-anatomie-et-physiologie-des-parties-corporelles-en-francais/"><u>Le Monde Interne Expliqué: Anatomie Et Physiologie Des Parties Corporelles en Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-meets-with-the-global-community-of-educators-at-bett-2022/"><u>Mondly Meets With the Global Community of Educators At BETT 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/teachers-united-the-bett-2022-edition/"><u>Teachers United: The BETT 2022 Edition</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-realme-v30-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-mystery-behind-snapchat-messenger-and-instagram-outages/"><u>The Mystery Behind Snapchat, Messenger & Instagram Outages</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-oneplus-nord-n30-se-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace OnePlus Nord N30 SE Location | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turbocharge-your-turkish-learning-with-this-phonetic-and-orthographic-guide/"><u>Turbocharge Your Turkish Learning With This Phonetic & Orthographic Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-laugh-ledger-the-ultimate-list-of-hilarious-tweets/"><u>[Updated] In 2024, Laugh Ledger The Ultimate List of Hilarious Tweets</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/effortless-cleanup-with-stellar-file-eraser-5-pro-customized-scheduling-on-macos/"><u>Effortless Cleanup with Stellar File Eraser 5 Pro: Customized Scheduling on macOS</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-leverage-openais-shap-e-for-insightful-feature-attribution-in-ai-models/"><u>How to Leverage OpenAI’s Shap-E for Insightful Feature Attribution in AI Models</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-funimate-video-maker-login-to-sign-up-guide/"><u>In 2024, Funimate Video Maker Login to Sign up Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-mastering-close-up-cinematography-techniques-with-kinemaster-pro/"><u>In 2024, Mastering Close-Up Cinematography Techniques with Kinemaster Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-new-phrasebook/"><u>Introducing Mondly’s New Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-variations-america-vs-britain/"><u>Language Variations: America vs Britain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-guide-boosting-your-origin-download-velocity/"><u>Quick Guide: Boosting Your Origin Download Velocity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semanas-completas-conoce-todos-los-dias-del-mes/"><u>Semanas Completas: Conoce Todos Los Dias Del Mes</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/the-ultimate-discord-spoiler-tag-reference-for-2024/"><u>The Ultimate Discord Spoiler Tag Reference for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/trouble-with-treys-heres-how-to-thaw-out-call-of-duty-black-ops-cold-war/"><u>Trouble with Treys? Here's How to Thaw Out Call of Duty Black Ops Cold War!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-countries-celebrate-thanksgiving/"><u>What Countries Celebrate Thanksgiving?</u></a></li>
 </ul></div>
 

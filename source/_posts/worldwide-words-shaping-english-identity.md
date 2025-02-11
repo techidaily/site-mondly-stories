@@ -1,7 +1,7 @@
 ---
 title: Worldwide Words Shaping English Identity
-date: 2025-01-25T02:11:06.296Z
-updated: 2025-01-30T05:37:03.438Z
+date: 2025-02-08T03:48:59.961Z
+updated: 2025-02-11T01:25:28.893Z
 tags:
   - speak
   - english
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -81,13 +85,13 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -117,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -144,7 +144,7 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
@@ -176,7 +176,7 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
@@ -204,7 +204,7 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
@@ -265,16 +265,19 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-maximizing-roi-with-snapchat-for-biz-leaders/"><u>[Updated] 2024 Approved Maximizing ROI with Snapchat for Biz Leaders</u></a></li>
-<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-samsung-galaxy-f54-5g-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Samsung Galaxy F54 5G | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-solutions-for-msvcr80dll-not-found-or-missing-issues/"><u>Comprehensive Solutions for MSVCR80.DLL Not Found or Missing Issues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-ru-language-sound-structure/"><u>Decoding RU Language Sound Structure</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortless-norsk-acquisition-short-sessions/"><u>Effortless Norsk Acquisition - Short Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580459475-lechange-bienveillant-en-francais-merci/"><u>L'Echange Bienveillant en Français: Merci!</u></a></li>
-<li><a href="https://win-great.techidaily.com/schritt-fur-schritt-anleitung-zum-einrichten-einer-windows-11-bootbaren-festplatte-oder-herstellen-eines-bootfahigen-usb-fur-den-pc/"><u>Schritt-Für-Schritt-Anleitung Zum Einrichten Einer Windows 11 Bootbaren Festplatte Oder Herstellen Eines Bootfähigen USB Für Den PC</u></a></li>
-<li><a href="https://program-issues.techidaily.com/step-by-step-fix-when-extraordinary-characters-cause-computer-malfunctions/"><u>Step-by-Step Fix: When Extraordinary Characters Cause Computer Malfunctions</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-sanctuaries-of-steams-visual-data/"><u>The Sanctuaries of Steam's Visual Data</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language/"><u>This Innovative Virtual Reality App Helps You Learn A Foreign Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/timeless-voices-earths-most-venerable-languages/"><u>Timeless Voices: Earth’s Most Venerable Languages</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-elite-road-warriors-game-list/"><u>[Updated] 2024 Approved Elite Road Warriors' Game List</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-to-create-square-videos-to-gain-more-likes-on-facebook-for-2024/"><u>[Updated] How to Create Square Videos to Gain More Likes on Facebook for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-ensuring-every-detail-is-visible-during-google-meets/"><u>[Updated] In 2024, Ensuring Every Detail Is Visible During Google Meets</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/complete-guide-to-converting-your-favorite-twitch-content-into-high-quality-mp3-files/"><u>Complete Guide to Converting Your Favorite Twitch Content Into High-Quality MP3 Files</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/european-and-brazilian-portuguese-key-features-showdown/"><u>European & Brazilian Portuguese: Key Features Showdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-online-avenues-for-flawless-lithuanian-learning/"><u>Explore Online Avenues for Flawless Lithuanian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-impressions-count-indonesian-greeting-basics/"><u>First Impressions Count: Indonesian Greeting Basics</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-no-speakers-or-headphones-are-plugged-in-issue-in-windows-1187/"><u>Fix No Speakers or Headphones Are Plugged in Issue in Windows 11/8/7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-expression-excellence-mastering-the-enchante-salute/"><u>French Expression Excellence: Mastering the 'Enchanté' Salute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-aufrichtige-bedauernsatze-sprechen/"><u>German: Aufrichtige Bedauernsätze Sprechen</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-vivo-v30-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Vivo V30 Pro Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/21366938-in-2024-tripping-up-heres-how-to-avoid-it/"><u>In 2024, Tripping Up? Here's How to Avoid It!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-missing-self-editing-feature-in-gpt/"><u>The Missing Self-Editing Feature in GPT</u></a></li>
 </ul></div>
 

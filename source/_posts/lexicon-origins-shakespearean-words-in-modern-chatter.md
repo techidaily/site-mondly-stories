@@ -1,7 +1,7 @@
 ---
 title: "Lexicon Origins: Shakespearean Words in Modern Chatter"
-date: 2025-01-27T00:39:42.032Z
-updated: 2025-01-30T00:20:33.492Z
+date: 2025-02-07T21:37:35.567Z
+updated: 2025-02-11T03:51:43.643Z
 tags:
   - speak
   - english
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
 
  And these are just a few of the words Shakespeare introduced to the world during his life in the Elizabethan England. Whether you’re a fan of Shakespeare or simply enjoy learning about the evolution of the English language, this article is sure to captivate and entertain you. So stick around and read on to discover some more of the words Shakespeare invented.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How many words did Shakespeare invent?
 
 **Most sources agree that Shakespeare invented around 1700 words.** However, it seems there’s more to this story. While the playwright was indeed very productive in this field, some say that not all these words were created by him. Instead, he was just the first one to document these words in writing. And that’s entirely possible.
@@ -57,17 +61,9 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **1\. Addiction**
 
@@ -76,10 +72,6 @@ _Henry V_ , Act I, Scene II
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **3\. Bandit**
 
@@ -93,13 +85,13 @@ _King John_ , Act III, Scene I
 
 _King Henry VI_ , Part III, Act III, Scene III
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **7\. (to) Friend**
 
@@ -110,24 +102,40 @@ _Hamlet_ , Act I, Scene V
 _The Comedy of Errors_ , Act V, Scene I
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **9\. Hint**
 
 _Othello_ , Act I, Scene III
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **10.** Laughable
 
 _The Merchant of Venice_ , Act I, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **13.** Mimic
 
@@ -141,10 +149,6 @@ _Troilus and Cressida_ , Act III, Scene III
 
 _Love’s Labour’s Lost_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **16\. Ode**
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
@@ -153,37 +157,25 @@ _Love’s Labour’s Lost_ , Act IV, Scene III
 
 _King Henry VI_ , Part III, Act II, Scene III
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **20\. Radiance**
 
 _All’s Well That Ends Well_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **21\. (to) Rant**
 
 _Hamlet_ , Act V, Scene I
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **22\. (to) Swagger**
 
@@ -192,6 +184,10 @@ _A Midsummer Night’s Dream_ , Act III, Scene I
 ### **23.** Tranquil
 
 _Othello_ , Act III, Scene III
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **24.** Unreal
 
@@ -207,6 +203,10 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Improve thy English with speed
 
@@ -239,17 +239,24 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-decoding-the-mysteries-of-windows-10-mastery/"><u>[Updated] 2024 Approved Decoding the Mysteries of Windows 10 Mastery</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-essential-knowledge-for-instagram-success-a-guide-to-behind-the-scenes-metrics/"><u>[Updated] Essential Knowledge for Instagram Success A Guide to Behind-the-Scenes Metrics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-essential-recording-advice-macbooks-camera-insights/"><u>[Updated] In 2024, Essential Recording Advice MacBook's Camera Insights</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-boost-engagement-crafting-the-perfect-instagram-unboxing/"><u>2024 Approved Boost Engagement Crafting the Perfect Instagram Unboxing</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211367292--el-diario-de-la-chica-con-suerte/"><u>El diario de la chica con suerte | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-japanese-anywhere-10-no-cost-online-platforms-revealed/"><u>Learn Japanese Anywhere: 10 No-Cost Online Platforms Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/no-more-payments-mondly-unlocked-forever/"><u>No More Payments: Mondly Unlocked Forever</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oxford-3000-mondly-style-for-quick-learning/"><u>Oxford 3000, Mondly Style for Quick Learning</u></a></li>
-<li><a href="https://windows11.techidaily.com/removing-limitation-message-from-your-windows-admin-account/"><u>Removing Limitation Message From Your Windows Admin Account</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-tech-reviews-in-depth-analysis-of-the-latest-gadgets-and-components-t17239718719945/"><u>Tom's Tech Reviews: In-Depth Analysis of the Latest Gadgets and Components</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-dev-error-6634-in-call-of-duty-warzone-expert-fixes/"><u>Troubleshooting Dev Error 6634 in Call of Duty Warzone - Expert Fixes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/varfor-sweden-svensk-forsalar/"><u>Varför Sweden? - Svensk Försalar</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-the-art-of-saving-twitter-jokes-gifs/"><u>[Updated] 2024 Approved Mastering the Art of Saving Twitter Jokes (GIFs)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-active-recorder-assessment-industry-standards-met-for-2024/"><u>[Updated] Active Recorder Assessment Industry Standards Met for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-giggle-garage-gratuitous-tools-to-tickle-your-brain/"><u>[Updated] Giggle Garage Gratuitous Tools to Tickle Your Brain</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-key-to-earning-on-youtube-in-depth-ad-revenue-guidebook/"><u>[Updated] The Key to Earning on YouTube In-Depth Ad Revenue Guidebook</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/address-ineffective-fb-video-sharing-for-2024/"><u>Address Ineffective FB Video Sharing for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevate-search-precision-opt-for-perplexity-ai/"><u>Elevate Search Precision – Opt for Perplexity AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-social-connections-by-learning-a-second-language-in-fifties/"><u>Enhanced Social Connections by Learning a Second Language in Fifties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-australian-sayings-for-newcomers/"><u>Essential Australian Sayings for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-grammar-strategies-top-9-lessons-by-veteran-esl-educator/"><u>Essential Grammar Strategies: Top 9 Lessons by Veteran ESL Educator</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-number-one-lessons/"><u>Essential Spanish Number One Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-the-world-through-voice-with-oculus-quests-mondly-addition/"><u>Experience the World Through Voice with Oculus Quest's Mondly Addition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-tongues-of-yules-keeper/"><u>Explore the Tongues of Yule's Keeper</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-amigaveis-em-portugues-compreender-perfeitamente/"><u>Expressões Amigáveis Em Português - Compreender Perfeitamente</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-speech-and-phonetics-for-germans/"><u>First Steps in Speech and Phonetics for Germans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foundations-of-urdu-for-language-enthusiasts/"><u>Foundations of Urdu for Language Enthusiasts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-a05s-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy A05s Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-realme-v30-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Realme V30 Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-lens-leaders-battle-sj6-clashes-with-xiaomis-four-k-kickstarter/"><u>In 2024, Lens Leaders Battle SJ6 Clashes with Xiaomi’s Four-K Kickstarter</u></a></li>
 </ul></div>
 

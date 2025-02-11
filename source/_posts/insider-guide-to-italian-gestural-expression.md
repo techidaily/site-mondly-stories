@@ -1,7 +1,7 @@
 ---
 title: Insider Guide to Italian Gestural Expression
-date: 2024-07-12T08:16:09.830Z
-updated: 2024-07-13T08:16:09.830Z
+date: 2025-02-07T03:48:57.312Z
+updated: 2025-02-11T03:31:19.669Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/0e3580ccebe105ec59bd0096cd99a066bfc6309ad
  The Italian hand gestures are considered the essence of the Italian language. You don’t really speak Italian if you don’t use your hands too. That’s why anyone who wishes to [speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like_un italiano vero_ needs to go beyond the famous ‘finger purse’ sign. Italians and gestures go together like mozzarella and pizza and you should too.
 
  For example, did you know that Italians use about 250 hand gestures on a daily basis? And no, that’s not a typo. Italians’ hands don’t like to keep still. However, only a handful_(wink)_ of these are [essential to most Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) conversations. And even though it’s not entirely correct, many online charts combine together both popular and obscure gestures. For this reason, I took it upon myself to make**the real top 10 most popular Italian gestures** – a top that includes only signs or gestures that Italians use regularly.
-
-
 
 ## Italian hand gestures meaning and usage
 
@@ -42,11 +40,19 @@ thumbnail: https://thmb.techidaily.com/0e3580ccebe105ec59bd0096cd99a066bfc6309ad
 
 **Origin:** funnily enough, the most common theory could be considered inappropriate and I shall not disclose it here. Google is a big place, though. I’m sure you’ll manage 🤭.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. The “stealing” gesture
 
 **How to do it:** lower the palm and move all your fingers towards the palm, starting with the little finger and finishing with the index while also slowly moving the wrist.
 
 ![stealing sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/stealing-sign-960x831.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 13")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘stealing’ gesture
 
@@ -84,11 +90,19 @@ thumbnail: https://thmb.techidaily.com/0e3580ccebe105ec59bd0096cd99a066bfc6309ad
 
 **Origin:** you are basically praying or hoping for something to happen or someone to stop doing something. It’s a very common gesture. The word ‘please’ in Italian is translated with_(ti) prego_ which literally means “I pray”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. The “I don’t know” hands
 
 **How to do it:** open your arms and show both palms usually while also raising your shoulders.
 
 ![i don't know italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/i-dont-know-italian-gesture-960x785.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 16")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘I don’t know’ gesture
 
@@ -97,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/0e3580ccebe105ec59bd0096cd99a066bfc6309ad
 **What to say:** _Io non c’entro (niente), boh!_ (“I got nothing to do with it!”),_Io non ne so niente!_ (“I know nothing!”),_Non lo so_ (“I know nothing”),_E che ne so io?_ (“what do I know?”)
 
 **Origin:** showing the palms of both hands symbolizes a person who has nothing to hide.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. The outstretched arm
 
@@ -141,6 +159,10 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![italian horns sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/italian-horns-sign-960x840.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 19")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The ‘horns’
 
 **When to do it:** when someone is being a jinx or when you believe something bad might happen.
@@ -156,6 +178,10 @@ This is a pretty common gesture among angry drivers and football players.
  Additionally, you can also use the other hand to tap the one with the four flattened fingers, or you can raise the entire arm while keeping the four fingers flattened. These variants emphasize the gesture even further, but they could be considered offensive.
 
 ![get out sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/get-out-sign-960x738.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 20")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘let’s get out of here’ gesture
 
@@ -180,6 +206,10 @@ This is a pretty common gesture among angry drivers and football players.
 **What to say:** _Ma cosa stai dicendo?_ (“What are you talking about?”),_Ma cosa vuoi \[da me\]?_ (“What do you want \[from me\]?”),_Dici sul serio?_ (“Are you serious?”) and actually many more.
 
 **Origin:** no one knows, but the most common theory is that the hand is trying to grab something but fails to do so. This symbolizes a person who tries to grasp a meaning but can’t.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why do Italians talk with their hands?
 
@@ -215,8 +245,6 @@ The rest is history.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -224,6 +252,18 @@ The rest is history.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-clear-path-for-your-instagram-videos-now/"><u>[New] 2024 Approved Clear Path for Your Instagram Videos Now</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-easy-guide-to-rectify-ios-and-android-videos-not-sent-by-messenger/"><u>[New] In 2024, Easy Guide to Rectify iOS and Android Videos Not Sent by Messenger</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-sync-up-success-sharing-youtube-on-ig-stories/"><u>2024 Approved Sync Up Success Sharing YouTube on IG Stories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-norwegian-proficiency-minutes-only/"><u>Accelerated Norwegian Proficiency, Minutes Only</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-online-strategies-for-mastering-korean-language-skills/"><u>Best Online Strategies for Mastering Korean Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-boosting-techniques-transforming-language-learning-experience/"><u>Brain Boosting Techniques Transforming Language Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-wisdom-without-paying-lesson-by-lesson/"><u>Embrace Wisdom Without Paying Lesson by Lesson</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-all-about-apple-iphone-11-pro-max-unlock-chip-you-need-to-know-by-drfone-ios/"><u>In 2024, All About Apple iPhone 11 Pro Max Unlock Chip You Need to Know</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oneplus-12-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock OnePlus 12 Phone with Broken Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577897213-learn-catalan-quickly-just-minutes-a-day/"><u>Learn Catalan Quickly, Just Minutes a Day</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-configuring-two-screens-with-your-mac/"><u>Ultimate Guide: Configuring Two Screens with Your Mac</u></a></li>
+</ul></div>
 

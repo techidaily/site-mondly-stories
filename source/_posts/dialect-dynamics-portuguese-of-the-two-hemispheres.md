@@ -1,7 +1,7 @@
 ---
 title: "Dialect Dynamics: Portuguese of the Two Hemispheres"
-date: 2024-09-14T18:50:25.343Z
-updated: 2024-09-21T16:33:12.294Z
+date: 2025-02-08T17:35:53.971Z
+updated: 2025-02-11T02:08:46.064Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
 
  In general, those who speak either language can understand the other, but it may be difficult in some situations. That’s because there are so many nuances between the two. American linguist Albert Marckwardt coined the term “Colonial Lag” as a hypothesis that original varieties of a language (i.e., Brazilian Portuguese) change less than the variety spoken in the mother country (Portugal).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## History
 
  Countries tend to follow the linguistic developments of the mother country with a bit of delay due to the geographical distance. Portuguese was not deemed the official language in Brazil until 1758, whereas the colonization really began in the 16th century. Over time, changes occurred in the language because of increasing contact with European and [Asian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) immigrants.
@@ -32,16 +36,13 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
 
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Grammar and Spelling
 
@@ -51,10 +52,18 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
 
  Sometimes, Brazilian Portuguese takes words from American English, ignoring its Latin roots. European Portuguese usually adopts words from Latin roots, keeping the original spelling. Overall, European Portuguese is more resistant to change and assimilation of foreign words.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Formal and Informal Speech
 
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Should You Learn Brazilian or European Portuguese?
 
@@ -95,10 +104,7 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Speak Portuguese fluently in just 10 minutes a day
@@ -124,5 +130,26 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-7-top-free-instagram-video-clips-tools-for-daily-entertainment-for-2024/"><u>[New] 7 Top Free Instagram Video Clips Tools for Daily Entertainment for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unlocking-asmrs-wellness-boost-for-you/"><u>[New] Unlocking ASMR's Wellness Boost for You</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-comprehensive-guide-to-superior-recordings-in-audacity-for-2024/"><u>[Updated] The Comprehensive Guide to Superior Recordings in Audacity for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-revolutionize-your-photo-taking-experience-a-guide-to-snapchats-editing-tools/"><u>2024 Approved Revolutionize Your Photo-Taking Experience A Guide to Snapchat's Editing Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-learn-german-from-a-hit-show-on-screen/"><u>Breaking Barriers: Learn German From a Hit Show on Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-the-globe-theatre-words-that-live-on/"><u>Echoes From the Globe Theatre: Words That Live On</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-milestones-mondlys-last-10-years/"><u>Exploring Milestones: Mondly’s Last 10 Years</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/gratuit-konverteren-van-flv-bestandjes-in-zeelijn-beste-online-tools/"><u>Gratuit Konverteren Van FLV-Bestandjes in Zeelijn: Beste Online Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-infinix-hot-40-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Infinix Hot 40 using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-a-decade-mondlybacks-filter-mastery/"><u>Reflecting On A Decade: MondlyBack’s Filter Mastery</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-instructions-on-disinfecting-your-tv-remote-control/"><u>Step-by-Step Instructions on Disinfecting Your TV Remote Control</u></a></li>
+<li><a href="https://article-tips.techidaily.com/swift-image-polishing-the-best-ios-tools-for-removing-obstructions/"><u>Swift Image Polishing The Best iOS Tools for Removing Obstructions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-compelling-case-10-reasons-to-learn-german-now/"><u>The Compelling Case: 10 Reasons to Learn German Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyphonic-nation-belgiums-language-composition/"><u>The Polyphonic Nation: Belgium's Language Composition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-50-iconic-latin-quotes-for-charisma/"><u>Top 50 Iconic Latin Quotes for Charisma</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-your-potential-a-guide-to-excellent-mondly-use/"><u>Unleash Your Potential: A Guide to Excellent Mondly Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-vs-uk-english-key-language-divergences/"><u>US vs UK English: Key Language Divergences</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1726027651056-powerdirector/"><u>ビデオ編集のプロフェッショナルなコツ：PowerDirectorでのトリミング方法</u></a></li>
+</ul></div>
 
