@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2025-02-07T02:38:38.320Z
-updated: 2025-02-11T02:46:57.893Z
+date: 2025-02-26T20:38:18.667Z
+updated: 2025-03-01T00:58:35.011Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -60,15 +56,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Thanks” by Hanny Naibaho©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -92,10 +80,6 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -127,24 +111,22 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unparalleled-capturing-the-best-camcorders/"><u>[New] 2024 Approved Unparalleled Capturing The Best Camcorders</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-how-to-keep-your-videos-quiet-and-clear/"><u>[New] In 2024, How to Keep Your Videos Quiet and Clear</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-xiaomi-redmi-k70e-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Xiaomi Redmi K70E to iPhone | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-learning-new-languages-after-fifty/"><u>Age Is Just a Number: Learning New Languages After Fifty</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/best-free-apple-iphone-15-pro-imei-checker-by-drfone-ios/"><u>Best Free Apple iPhone 15 Pro IMEI Checker</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/charting-the-course-to-fluency-a-comparative-analysis/"><u>Charting the Course to Fluency: A Comparative Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquering-vietnamese-a-beginners-phrasebook/"><u>Conquering Vietnamese: A Beginner's Phrasebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/creating-a-strong-brand-voice-with-social-media-videos-for-2024/"><u>Creating a Strong Brand Voice with Social Media Videos for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deconstructing-jargon-a-slang-dictionary-for-the-informal-age/"><u>Deconstructing Jargon: A Slang Dictionary for the Informal Age</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-language-learning-in-virtual-reality-mondly-unveils-vr-edition/"><u>Dive Into Language Learning in Virtual Reality - Mondly Unveils VR Edition</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-strategies-to-overcome-in-game-lag-in-world-of-warcraft/"><u>Effective Strategies to Overcome In-Game Lag in World of Warcraft</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-german-a-list-of-convincing-reasons/"><u>Embrace German: A List of Convincing Reasons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/emotive-epics-celebrating-french-romance/"><u>Emotive Epics: Celebrating French Romance</u></a></li>
-<li><a href="https://article-files.techidaily.com/harnessing-the-power-of-photography-and-videography-a-pixiz-approach-for-2024/"><u>Harnessing the Power of Photography & Videography A Pixiz Approach for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580711523-hello-in-japanese-all-the-japanese-greetings-you-need-to-know/"><u>Hello In Japanese - All The Japanese Greetings You Need To Know</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1662598-9780861717538-real-meditation-in-minutes-a-day/"><u>Real Meditation in Minutes a Day | Free Book</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/the-sibolan-szbox-s6nce-an-affordable-mini-pc-in-classic-colors-powered-by-legacy-ryzen-chips/"><u>The Sibolan SZBox S6nce: An Affordable Mini PC in Classic Colors, Powered by Legacy Ryzen Chips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577021074-top-ranked-non-native-language-classes-us/"><u>Top Ranked Non-Native Language Classes U.S.</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unveiling-the-secrets-to-blurring-iphone-photos-a-comprehensive-guide-for-2024/"><u>Unveiling the Secrets to Blurring iPhone Photos A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-rgbs-role-in-modern-color-standards-compared-to-srgb/"><u>[New] 2024 Approved Rgb's Role in Modern Color Standards Compared to Srgb</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-record-desktop-on-windows-3-simple-cost-free-methods-for-2024/"><u>[New] Record Desktop on Windows 3 Simple, Cost-Free Methods for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploiting-slow-motion-magic-in-phantom/"><u>[Updated] Exploiting Slow-Motion Magic in Phantom</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-streamlabs-vs-obs-assessing-the-leading-livestream-tools/"><u>[Updated] Streamlabs Vs. OBS Assessing the Leading Livestream Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-film-learned-vernaculars/"><u>Bridging Cultures with Film-Learned Vernaculars</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/email-verification-essentials-with-massmail-a-step-by-step-guide-on-basis-points/"><u>Email Verification Essentials with MassMail: A Step-by-Step Guide on Basis Points</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-itel-p40plus-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Itel P40+ Face Lock?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonious-hearing-using-tunes-to-learn-new-languages/"><u>Harmonious Hearing: Using Tunes to Learn New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-romanian-with-the-award-winning-app-made-by-romanians/"><u>Learn Romanian With the Award-Winning App Made by Romanians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-online-in-just-10-minutes-a-dayback-buttonfilter-button/"><u>Learn Urdu Online In Just 10 Minutes A DayBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/national-dialects-belgiums-language-map/"><u>National Dialects: Belgium's Language Map</u></a></li>
+<li><a href="https://win-lab.techidaily.com/professional-text-editing-with-emeditor-v10-release-candidate-powerful-unicode-support/"><u>Professional Text Editing with EmEditor v10 Release Candidate - Powerful Unicode Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-conquering-french-chromatic-speech/"><u>Swiftly Conquering French Chromatic Speech</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-elite-set-selecting-the-best-gaming-streamers-webcams/"><u>The Elite Set Selecting the Best Gaming Streamers Webcams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-patience-in-polyglot-relationships/"><u>The Power of Patience in Polyglot Relationships</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-5-premium-usb-c-notebook-power-adapters-recommended-by-zdnet/"><u>Top 5 Premium USB-C Notebook Power Adapters - Recommended by ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valentines-day-vocabulary-worldwide-loving-terms/"><u>Valentine's Day Vocabulary: Worldwide Loving Terms</u></a></li>
 </ul></div>
 

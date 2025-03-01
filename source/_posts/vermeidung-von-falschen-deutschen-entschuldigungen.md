@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2025-02-03T23:48:40.647Z
-updated: 2025-02-10T18:58:39.502Z
+date: 2025-02-23T02:55:46.501Z
+updated: 2025-02-28T22:36:35.956Z
 tags:
   - speak
   - english
@@ -20,19 +20,11 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
 
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## When should you say you’re sorry?
 
  What you need to remember is that learning how to say “sorry” in German also has a cultural component. It’s not enough to learn how to say you’re sorry; you also have to learn_when_ to say you’re sorry. Unlike Americans and even Brits who apologize quite a lot,**Germans tend to keep their sorrys to a minimum.** In fact, they say sorry so rarely that they can come off as rude to people of other nationalities.
 
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to apologize in German
 
@@ -46,10 +38,6 @@ Here are some practical examples of apologies in German:
 * _Sie haben Recht, das tut mir leid._  – You are right, I am sorry.
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say sorry in German – the “Excuse me” sorry
 
  If you bump into someone on the street or cause a mishap, the most common way to say “sorry” in German is_**Entschuldigung**_ which literally means “apology!”. This is basically the “sorry” or the “excuse me” you say for a minor inconvenience. In other words, we’re talking about a slight bump or barely touching that person. If you knock them over, a cool_Entschuldigung_ won’t do, so you should probably apologize sincerely.
@@ -57,10 +45,6 @@ Here are some practical examples of apologies in German:
  In case you need a more**formal sorry** for someone you don’t know or someone older, you should say**_Entschuldigen Sie._** For **informal situations,_Entschuldige_ works best** or you can use the abbreviated_**‘Tschuldigung**_ .
 
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
 
@@ -104,10 +88,6 @@ Here are some practical examples of apologies in German:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -139,17 +119,15 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-audiences-favorites-top-10-mobility-friendly-players-for-2024/"><u>[Updated] Audience's Favorites Top 10 Mobility-Friendly Players for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-elite-cloud-saving-solutions-compilation-for-2024/"><u>[Updated] Elite Cloud Saving Solutions Compilation for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-master-your-path-to-success-with-youtubes-keywords-guide/"><u>[Updated] Master Your Path to Success with YouTube's Keywords Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-complex-word-sounds/"><u>Breaking Language Barriers: Mastering Complex Word Sounds</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/comment-obtenir-les-videos-twitter-pour-mobile-et-ordinateur-sans-payer/"><u>Comment Obtenir Les Vidéos Twitter Pour Mobile Et Ordinateur Sans Payer?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/comment-transformer-un-fichier-en-ligne-vers-le-format-wmv-gratuitement-grace-a-movavi-une-methode-facile-et-simple/"><u>Comment Transformer Un Fichier en Ligne Vers Le Format WMV Gratuitement Grâce À Movavi: Une Méthode Facile Et Simple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-bengali-fast-learn-each-day-achieve-tomorrow/"><u>Conquer Bengali Fast: Learn Each Day, Achieve Tomorrow</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-lithuanian-language-digital-mastery-steps/"><u>Conquer Lithuanian Language: Digital Mastery Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-10-minute-commitment-to-latvian-mastery/"><u>Daily 10-Minute Commitment to Latvian Mastery</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/pioneering-a-new-world-in-visual-storytelling-spotlighting-the-top-10-budget-friendly-youtube-sites/"><u>Pioneering a New World in Visual Storytelling Spotlighting the Top 10 Budget-Friendly YouTube Sites</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-xiaomi-14-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Xiaomi 14 Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-all-platform-guide-to-best-value-zero-cost-live-broadcast-technology/"><u>2024 Approved All Platform Guide to Best Value, Zero-Cost Live Broadcast Technology</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-vivo-s18-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Vivo S18 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/das-deutsche-verabschiedungsworterbuch-prasentiert-sich/"><u>Das Deutsche Verabschiedungswörterbuch Präsentiert Sich</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/easy-steps-to-switch-between-wav-and-pcm-audio-formats/"><u>Easy Steps to Switch Between WAV & PCM Audio Formats</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-most-effective-alternatives-to-chatgpt-today/"><u>Exploring the Most Effective Alternatives to ChatGPT Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oration-ovations-for-worlds-pedagogues/"><u>Oration Ovations for World's Pedagogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orchestrate-your-own-interpretation-harmonized-language-learning/"><u>Orchestrate Your Own Interpretation: Harmonized Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-precision-innovation-integrating-gsl-and-mondly/"><u>Pearson's Precision Innovation: Integrating GSL & Mondly</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-oneplus-12-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your OnePlus 12 Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-huawei-p60-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Huawei P60 Phone Network-Ready</u></a></li>
 </ul></div>
 

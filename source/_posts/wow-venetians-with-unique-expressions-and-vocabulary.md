@@ -1,7 +1,7 @@
 ---
 title: Wow Venetians with Unique Expressions and Vocabulary
-date: 2025-02-07T20:01:57.721Z
-updated: 2025-02-11T00:34:33.710Z
+date: 2025-02-25T01:50:33.585Z
+updated: 2025-03-01T02:33:18.655Z
 tags:
   - speak
   - english
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
 ## Wow Venetians with Unique Expressions and Vocabulary
 
  When in Rome, do as Romans do, and use Italian slang words and expressions. No, really. If you’re learning the language and want the full Italian experience, Italian slang is a great way to get it. Slang and even expressions are like the “secret code” of a language, so they can make you feel right at home when you use them. Moreover, if you aim to learn Italian – and truly master it – you should embrace it all: slang words, expressions, idioms, and proverbs. So, let’s dive in!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Most Common Italian Expressions
 
@@ -55,19 +51,7 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
 
 ![Italian expressions](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-expressions-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Funny Italian Slang Words & Phrases
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Cavoli amari
 
@@ -85,17 +69,9 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 * _Dai! Passa la palla a Luigi!_ – Come on! Pass the ball to Luigi! (encouragement)
 * _Dai! Basta! Smettila!_ – Come on! That’s enough! Stop that! (frustration or annoyance)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Pantofolaio
 
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Tirare il pacco
 
@@ -112,10 +88,6 @@ _Scialla_ is an Italian slang word that has become very popular lately, thanks t
  Mostly used by younger people, this Italian slang word is the equivalent of “cool”. If you want to say that something is extraordinary, fantastic, or cool, in Italian you would say_figo_ or_che figata_ .
 
  Additionally,_figo_ (or_figa_ for women) can also be used to say that someone is very attractive. For example,_Brad Pitt è un gran figo_ translates to “Brad Pitt is very attractive”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Sbronza
 
@@ -198,10 +170,6 @@ Before you go, make sure you check out these FAQs.
 
  Yes, using slang is okay when speaking Italian, as it can make your conversations more natural and show familiarity with the culture. Just make sure you’re mindful of the context and the company you’re in.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Where can I learn more Italian slang?
 
  You can learn more Italian slang on the Mondly blog, from Italian movies and TV shows, social media, and online forums frequented by fluent speakers.
@@ -246,24 +214,22 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-maximum-clarity-video-transformer-windowsmac/"><u>[New] In 2024, Maximum Clarity Video Transformer (Windows/Mac)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-snappy-satire-iphone-memes-for-2024/"><u>[New] Snappy Satire IPhone Memes for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-8-android-fixes-for-time-lags-in-videos/"><u>[New] Top 8 Android Fixes for Time-Lags in Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-24-hour-heavyweights-top-10-most-watched-on-yt/"><u>[Updated] In 2024, 24 Hour Heavyweights Top 10 Most Watched on YT</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-pioneering-playgrounds-of-action-adventure-classics-top-10/"><u>[Updated] Pioneering Playgrounds of Action-Adventure Classics (Top 10)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-guide-to-cheap-subtitles-and-downloaders/"><u>[Updated] Ultimate Guide to Cheap Subtitles & Downloaders</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-connecting-with-the-world-how-to-use-roku-for-fb-live/"><u>2024 Approved Connecting With The World How to Use Roku for FB Live</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-examining-dji-phantom-3s-advanced-video-capture-tech/"><u>2024 Approved Examining DJI Phantom 3’S Advanced Video Capture Tech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-play-rewards-mondly-kids-stands-out-in-2017/"><u>Google Play Rewards - Mondly Kids Stands Out in 2017</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-hevc-h-265-files-on-redmi-note-12r-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How do you play HEVC/H.265 files on Redmi Note 12R?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/huaweis-appgallery-unveils-new-player-mondly/"><u>Huawei's AppGallery Unveils New Player, Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jumpstarting-conversations-in-indonesia-phrases/"><u>Jumpstarting Conversations in Indonesia: Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingualism-in-middle-age-the-cognitive-and-social-benefits-that-make-it-worthwhile/"><u>Multilingualism in Middle Age: The Cognitive and Social Benefits That Make It Worthwhile</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/premium-video-devices-direct-headset-screens/"><u>Premium Video Devices Direct Headset Screens</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seafaring-slang-survival-kit-mastering-piratical-vernacular/"><u>Seafaring Slang Survival Kit: Mastering Piratical Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seven-years-of-mondly-empowerment-across-globe/"><u>Seven Years of Mondly Empowerment Across Globe</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-tongue-of-truth-learning-hangul-for-ks/"><u>The Tongue of Truth: Learning Hangul for KS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-speech-hegemony-quintessential-languages/"><u>Worldwide Speech Hegemony: Quintessential Languages</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-customize-your-scroll-delete-instagram-suggestions/"><u>[New] In 2024, Customize Your Scroll Delete Instagram Suggestions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-conquer-profits-on-the-go-youtube-studio-monetization-explained/"><u>[Updated] In 2024, Conquer Profits On-the-Go YouTube Studio Monetization Explained</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimizing-video-content-with-powerful-hashtags-on-youtube/"><u>[Updated] Optimizing Video Content with Powerful Hashtags on YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-photoshop-guide-realistic-3d-text-creation-steps/"><u>2024 Approved Photoshop Guide Realistic 3D Text Creation Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-basics-advanced-steps-for-total-tongue-tying/"><u>Beyond Basics: Advanced Steps for Total Tongue-Tying</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-language-learning-10-minute-routines/"><u>Efficient Language Learning, 10-Minute Routines</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722974784178-effortless-installation-get-your-hp-officejet-5740-drivers-now/"><u>Effortless Installation - Get Your HP OfficeJet ˈ5740 Drivers Now</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-mobile-media-3-key-steps-to-stabilize-iphone-videos/"><u>In 2024, Mastering Mobile Media 3 Key Steps to Stabilize iPhone Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-polish-in-minutes/"><u>Mastering Polish in Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-triumph-in-apples-educational-apps-top-ten-countdown/"><u>Mondly’s Triumph in Apple's Educational Apps Top Ten Countdown</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-windows-11s-error-code-resolution-guide/"><u>Navigating Windows 11'S Error Code Resolution Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parisian-chatterbox-103plus-phrases-for-easy-france-traveling/"><u>Parisian Chatterbox: 103+ Phrases for Easy France Traveling</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/revolutionizing-corporate-strategy-the-impact-of-digital-intellect-through-abbyy-expertise/"><u>Revolutionizing Corporate Strategy: The Impact of Digital Intellect Through ABBYY Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-with-ease-breaking-down-tough-language-patterns/"><u>Speaking with Ease: Breaking Down Tough Language Patterns</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-7-unspoken-problems-of-generative-ai-in-text-communication/"><u>The 7 Unspoken Problems of Generative AI in Text Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unpacking-the-most-prevalent-speaker-numbers-for-french-language/"><u>Unpacking the Most Prevalent Speaker Numbers for French Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-is-the-longest-word-in-the-world/"><u>What Is the Longest Word in the World?</u></a></li>
 </ul></div>
 

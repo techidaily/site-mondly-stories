@@ -1,7 +1,7 @@
 ---
 title: Get Down Under With Aussie Slang Definitions
-date: 2025-02-09T18:43:09.684Z
-updated: 2025-02-10T16:24:50.734Z
+date: 2025-02-27T02:38:17.237Z
+updated: 2025-02-28T21:16:29.621Z
 tags:
   - speak
   - english
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/f26a59464f8e574e044648e6cdc81caf2b237e34a
 
  You don’t really know a language until you’ve learned its [slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . And when it comes to English, many people agree that Australian slang is the richest, liveliest and funniest slang you could learn. Sure, there’s always British English, but the Brits don’t call their barbecue “barbie”. And that’s a missed opportunity. Wouldn’t you agree? How can you have just a plain, dull barbecue when you could have a “barbie”? The Aussie slang is the best slang.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Top 10 Popular Australian Slang Terms & Words
 
  Let’s start with the basics: core Australian slang vocabulary. Here’s a list of popular Australian slang terms you probably heard before but didn’t know what they meant.
@@ -44,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/f26a59464f8e574e044648e6cdc81caf2b237e34a
 
 _“So… what did you have for brekkie today?”_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3._Barbie_ – Barbecue
 
 Well, I don’t mind if you call me a “barbie girl” now.
@@ -56,10 +48,6 @@ Well, I don’t mind if you call me a “barbie girl” now.
 
  Famously used by Steve Irwin. It’s similar to the [British English slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) “blimey!”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5._Cake Hole_ – Mouth
 
  There’s no better replacement for the word “mouth”. Why isn’t everybody using this?
@@ -67,10 +55,6 @@ Well, I don’t mind if you call me a “barbie girl” now.
 ### 6._Ankle-Biter_ – A Small or Young Child
 
 It can also refer to a small, aggressive dog like a chihuahua.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7._Bogan_ – An Uncultured or Unsophisticated Person
 
@@ -85,10 +69,6 @@ It can also refer to a small, aggressive dog like a chihuahua.
 You’ll ask for a “bikkie” just to hear yourself say it.
 
  There’s also the very cute expression “to cost big bikkies”, meaning that something is very expensive.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10._Mate_ – Friend
 
@@ -105,10 +85,6 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
  Oi, this language learnin’ app is fair dinkum! Give it a try.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Australian Slang Phrases Only Local Aussies Know
 
@@ -225,10 +201,6 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  If you ever took a day off work pretending to be sick, you’re guilty of chucking a sickie._“I’m chucking a sickie to go to the beach. Wanna join?”_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Fair dinkum
 
 **Honest, true or genuine.**
@@ -240,10 +212,6 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 **Eat that.**
 
  What’s your laughing gear? Your mouth, of course. So, when you wrap your laughing gear ‘round something, you… eat it. It can be used in either a friendly or threatening way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Carrying on like a pork chop
 
@@ -258,10 +226,6 @@ It seems that this phrase has had a lot of variations:
 * Carrying on like a pork chop in a synagogue.
 
  While the original message referred to an object that is out of place, the modern meaning has slightly shifted. So, when you hear someone using this Australian slang phrase, know that they are referring to someone who behaves foolishly, makes a fuss, complains, or rants.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. Dog’s breakfast
 
@@ -300,10 +264,6 @@ Coming Soon
 ![sheila bloke](https://edge.mondly.com/blog/wp-content/uploads/2020/05/sheila-bloke-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 9")
 
  Australian slang
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What You Need to Know About Aussie Slang
 
@@ -352,18 +312,24 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/verage-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback-for-2024/"><u>[New] Average Earnings Per View What's the Income for YouTubers per Ad Playback for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-hidden-horizons-in-hand-drawn-harmony/"><u>[Updated] 2024 Approved Hidden Horizons in Hand-Drawn Harmony</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-precision-viewing-top-5-gaming-displays-with-hdmi-21-support-ps5/"><u>[Updated] In 2024, Precision Viewing Top 5 Gaming Displays with HDMI 2.1 Support [PS5]</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-the-workings-of-youtube-after-a-video-is-published/"><u>2024 Approved The Workings of YouTube After a Video Is Published</u></a></li>
-<li><a href="https://win-blog.techidaily.com/avoid-arma-3-shutdown-drama-essential-tips-and-fixes-for-a-smooth-gaming-experience/"><u>Avoid Arma 3 Shutdown Drama: Essential Tips and Fixes for a Smooth Gaming Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-multilingualism-in-europe-a-celebration-journey/"><u>Exploring Multilingualism in Europe - A Celebration Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forties-fluency-the-joy-and-wisdom-found-in-multilingualism/"><u>Forties Fluency: The Joy and Wisdom Found in Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forty-plus-fluency-unleashing-the-power-of-multilingualism-today/"><u>Forty-Plus Fluency: Unleashing the Power of Multilingualism Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fundamentos-de-la-hora-en-espanol-para-iniciados/"><u>Fundamentos De La Hora en Español Para Iniciados</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-the-lock-screen-on-my-lava-blaze-2-by-drfone-android-unlock-android-unlock/"><u>How to Unlock the Lock Screen on my Lava Blaze 2</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-best-eight-high-res-cinematography-systems/"><u>In 2024, Best Eight High-Res Cinematography Systems</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-instantaneously-track-lost-discussions-on-reddit-forums/"><u>In 2024, Instantaneously Track Lost Discussions on Reddit Forums</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/troubleshooting-obs-blackout-problems-while-streaming-games-and-browsers-effective-fixes-unveiled/"><u>Troubleshooting OBS Blackout Problems While Streaming Games and Browsers - Effective Fixes Unveiled</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-streamline-webcam-use-on-modern-devices/"><u>[New] In 2024, Streamline Webcam Use on Modern Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-peek-at-sonys-high-end-smartphone-the-xperia-xz-4k-reveal-for-2024/"><u>[Updated] Peek at Sony's High-End Smartphone - The Xperia XZ 4K Reveal for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/17-must-know-spanish-expressions-for-fluency/"><u>17 Must-Know Spanish Expressions for Fluency</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-premium-fb-video-tools-optimized-for-firefox-users/"><u>2024 Approved Premium FB Video Tools - Optimized For FireFox Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-filter-prowess-by-mondlyback/"><u>A Decade of Filter Prowess by MondlyBack</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/avoid-using-third-party-software-like-itunes-alternatives-as-they-may-not-be-optimized-for-ios-device-management-and-could-contribute-to-device-not-found-er23/"><u>Avoid Using Third-Party Software Like iTunes Alternatives, as They May Not Be Optimized for iOS Device Management and Could Contribute to 'Device Not Found' Errors when Connecting Your iPhone/iPad via USB</u></a></li>
+<li><a href="https://win-updates.techidaily.com/beginners-blueprint-for-successful-cryptocurrency-exchange-transactions-powered-by-yl-software-technologies/"><u>Beginner's Blueprint for Successful Cryptocurrency Exchange Transactions Powered by YL Software Technologies</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/beware-six-risks-with-unrestricted-ai-use/"><u>Beware! Six Risks With Unrestricted AI Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-easy-access-to-wisdom-sessions/"><u>Celebrating Easy Access to Wisdom Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsch-ein-uberblick-uber-verabschiedungsformeln/"><u>Deutsch: Ein Überblick Über Verabschiedungsformeln</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-norge-language-skills-10-minute-routine/"><u>Efficient Norge Language Skills, 10-Minute Routine!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-russian-greetings-mastery-must-know-phrases-and-vocabulary/"><u>Essential Russian Greetings Mastery: Must-Know Phrases & Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-charm-conversations-that-captivate/"><u>French Charm: Conversations That Captivate</u></a></li>
+<li><a href="https://win-forum.techidaily.com/gratuitos-conversion-en-linea-de-video-mp4-a-webm-con-movavi/"><u>Gratuitos: Conversión en Línea De Video MP4 a WebM Con Movavi</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-apowersoft-free-a-closer-look-at-screenshot-capabilities/"><u>In 2024, Apowersoft Free A Closer Look at Screenshot Capabilities</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-demystifying-camera-technology-in-auto-and-ai-enhanced-hdr/"><u>In 2024, Demystifying Camera Technology in Auto and AI-Enhanced HDR</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-honor-magic-6-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Honor Magic 6 Pro FRP Without Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingo-uncovered-exploring-english-slang-and-its-origins/"><u>Lingo Uncovered: Exploring English Slang and Its Origins</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-first-step-understanding-counting-in-the-russian-language/"><u>The First Step: Understanding Counting in the Russian Language</u></a></li>
 </ul></div>
 

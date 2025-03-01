@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2025-02-08T20:32:17.700Z
-updated: 2025-02-10T16:41:14.143Z
+date: 2025-02-23T01:21:25.352Z
+updated: 2025-02-28T21:23:04.230Z
 tags:
   - speak
   - english
@@ -26,19 +26,11 @@ But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## ¿Que hora es? – how to ask for the time in Spanish
 
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The basics of Spanish time
 
@@ -65,10 +57,6 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -85,15 +73,7 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Telling time in Spanish – a visual guide
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
 
@@ -190,15 +170,24 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-cognitive-conclave-selective-general-knowledge-channels/"><u>[New] Cognitive Conclave Selective General Knowledge Channels</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-superior-vistas-for-digital-viewership/"><u>[New] Superior Vistas for Digital Viewership</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unlock-the-magic-of-stories-in-fb-free-cross-platform-tools/"><u>[New] Unlock the Magic of Stories in FB – Free, Cross-Platform Tools</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-vlc-video-record-a-critique/"><u>[New] VLC Video Record A Critique</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-global-speech-functionality-in-oculus-quest-via-mondly/"><u>Introducing Global Speech Functionality in Oculus Quest via Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-into-a-multilingual-universe-with-mondlys-cutting-edge-vr-app/"><u>Step Into a Multilingual Universe with Mondly's Cutting-Edge VR App</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-go-anywhere-tp-link-travel-router-stylish-and-powerful-wi-fi-companion/"><u>The Go-Anywhere TP-Link Travel Router: Stylish and Powerful Wi-Fi Companion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-germanback-buttonfilter-button/"><u>Top 25 German Idioms To Speak Like A GermanBack ButtonFilter Button</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/vital-top-6-business-focused-social-networking-places/"><u>Vital Top 6 Business-Focused Social Networking Places</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vr-enabled-language-education-takes-off-with-mondlys-new-app/"><u>VR-Enabled Language Education Takes Off with Mondly's New App</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-exploring-zero-price-picture-frame-media-for-2024/"><u>[New] Exploring Zero-Price Picture Frame Media for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-innovation-in-action-youtube-split-screen-techniques/"><u>[New] In 2024, Innovation in Action YouTube Split-Screen Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-podcast-introduction-skills/"><u>[New] The Ultimate Guide to Podcast Introduction Skills</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-discover-top-cost-effective-dvd-player-apps/"><u>[Updated] In 2024, Discover Top Cost-Effective DVD Player Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-proven-methods-to-fully-integrate-with-languages/"><u>6 Proven Methods to Fully Integrate with Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-appreciation-learning-key-chinese-thank-you-phrases/"><u>Expressing Appreciation: Learning Key Chinese Thank You Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-hanzi-a-primer-for-beginners/"><u>Grasping Hanzi: A Primer for Beginners</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-joining-the-twitter-community-from-scratch/"><u>In 2024, Joining the Twitter Community From Scratch</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-mastering-the-art-of-laptop-video-capturing/"><u>In 2024, Mastering the Art of Laptop Video Capturing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-perfect-palette-pro/"><u>In 2024, Perfect Palette Pro</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/investing-in-google-drive-my-experience-with-paid-storage-and-the-worth-of-my-decision/"><u>Investing in Google Drive: My Experience with Paid Storage and the Worth of My Decision</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-limits-whats-the-ultimate-word/"><u>Linguistic Limits: What’s The Ultimate Word?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-your-ultimate-companion-for-learning-a-new-tongue/"><u>Mondly: Your Ultimate Companion for Learning a New Tongue</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/perfect-game-capture-in-minecraft-for-2024/"><u>Perfect Game Capture in Minecraft for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-sonnets-the-heartbeat-of-italian-love-speeches/"><u>Sweet Sonnets: The Heartbeat of Italian Love Speeches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-easiest-languages-to-learn/"><u>Top 10 Easiest Languages to Learn</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-millennia-old-linguistic-foundations/"><u>Unearthing Millennia-Old Linguistic Foundations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wisdom-unlocked-language-learning-for-seniors/"><u>Wisdom Unlocked: Language Learning for Seniors</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2025-02-05T23:13:00.588Z
-updated: 2025-02-10T16:41:56.730Z
+date: 2025-02-22T22:27:54.289Z
+updated: 2025-02-28T20:38:34.708Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -60,15 +56,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Thanks” by Hanny Naibaho©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -92,10 +80,6 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -127,21 +111,24 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/nleash-potential-quick-tips-for-establishing-a-business-and-personal-youtube-presence-for-2024/"><u>[New] Unleash Potential Quick Tips for Establishing a Business & Personal YouTube Presence for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solve-how-to-block-ads-in-firefox-quickly-and-easily/"><u>[Solve] How to Block Ads in Firefox | Quickly & Easily</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-crafting-a-youtube-video-essential-writing-guide/"><u>[Updated] 2024 Approved Crafting a YouTube Video Essential Writing Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-basics-of-aspect-ratio-compliance-on-twitter/"><u>[Updated] The Basics of Aspect Ratio Compliance on Twitter</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-guide-to-populating-powerpoint-decks-with-youtube-videos/"><u>[Updated] The Essential Guide to Populating PowerPoint Decks With YouTube Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-top-sandbox-games-for-aspiring-explorers/"><u>[Updated] Top Sandbox Games for Aspiring Explorers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/10-compatible/"><u>10 Compatible)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/60-years-reflection-europes-linguistic-unity-in-progress/"><u>60 Years Reflection – Europe's Linguistic Unity in Progress</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/awaken-your-inner-german-with-these-essential-expressions/"><u>Awaken Your Inner German with These Essential Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-words-and-hearts-overcoming-language-obstacles-in-romance/"><u>Bridging Words & Hearts: Overcoming Language Obstacles in Romance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bringing-spice-to-your-voyage-top-93-vital-spanish-commands/"><u>Bringing Spice to Your Voyage: Top 93 Vital Spanish Commands</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-analysis-of-american-spelling-versus-british/"><u>Comparative Analysis of American Spelling Versus British</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprension-y-pronunciacion-de-colores/"><u>Comprensión Y Pronunciación De Colores</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-frame-to-script-innovative-ways-of-integrating-text-in-images-for-2024/"><u>From Frame to Script Innovative Ways of Integrating Text in Images for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/high-definition-content-for-fb-messenger-a-guide/"><u>High-Definition Content for FB Messenger: A Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577215704-oculus-quest-launches-multilingual-support-with-mondly/"><u>Oculus Quest Launches Multilingual Support with 'Mondly'</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fb-call-video-logging-essential-steps-in-4-ways/"><u>2024 Approved FB Call Video Logging - Essential Steps in 4 Ways</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-step-by-step-perfecting-the-art-of-mi-11-screen-recording/"><u>2024 Approved Step-by-Step Perfecting the Art of Mi 11 Screen Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compreender-abrecos-e-saudacoes-em-diferentes-regioes/"><u>Compreender Abreços E Saudações Em Diferentes Regiões</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/crafting-facebook-videos-a-step-by-step-guide/"><u>Crafting Facebook Videos A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-dojo-learn-lithuanian-with-precision-and-flair/"><u>Digital Dojo: Learn Lithuanian with Precision and Flair</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580270594-eternal-access-to-mondly-premium-for-free/"><u>Eternal Access to Mondly Premium for Free!</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-judgment-properly-ban-trump-with-time-restriction/"><u>Facebook's Judgment: Properly Ban Trump, With Time Restriction</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-windows-11-managed-settings-failures-due-to-org-policies/"><u>Fixing Windows 11: Managed Settings Failures Due to Org Policies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/friendly-italy-discover-the-best-italian-ways-to-say-hello/"><u>Friendly Italy: Discover the Best Italian Ways to Say Hello</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-honor-80-pro-straight-screen-edition-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Honor 80 Pro Straight Screen Edition to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-urdu-easier-learn-for-10-minutes-daily/"><u>Make Urdu Easier: Learn for 10 Minutes Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-new-help-section-a-leap-forward-in-customer-service/"><u>Mondly's New Help Section: A Leap Forward in Customer Service</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-unique-language-learning-approach-my-experience-top-10-highlights/"><u>Mondly's Unique Language Learning Approach: My Experience (Top 10 Highlights)</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-your-iphone-without-using-physical-buttons-a-comprehensive-guide/"><u>Reviving Your iPhone Without Using Physical Buttons: A Comprehensive Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/simplified-guide-integrating-snapchat-with-your-mac/"><u>Simplified Guide Integrating Snapchat with Your Mac</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/streamline-your-memories-on-ios-organized-albums-and-efficient-icloud-synchronization/"><u>Streamline Your Memories on iOS Organized Albums & Efficient iCloud Synchronization</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lingua-love-connection-flirting-in-spanish/"><u>The Lingua-Love Connection: Flirting in Spanish</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-guide-to-faster-facebook-videos-for-2024/"><u>The Ultimate Guide to Faster Facebook Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-english-unveil-the-multifaceted-benefits/"><u>Why Learn English? Unveil the Multifaceted Benefits</u></a></li>
 </ul></div>
 

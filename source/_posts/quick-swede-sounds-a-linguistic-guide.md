@@ -1,7 +1,7 @@
 ---
 title: "Quick Swede Sounds: A Linguistic Guide"
-date: 2025-02-08T17:01:18.749Z
-updated: 2025-02-11T01:38:53.256Z
+date: 2025-02-27T23:27:18.730Z
+updated: 2025-03-01T01:25:56.808Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -40,23 +36,11 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
 ![swedish runes on stones](https://edge.mondly.com/blog/wp-content/uploads/2021/11/swedish-runic-alphabet-960x686.jpg "Quick Introduction To The Swedish Alphabet And Its Fascinating History 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Swedish runes” by petr sidorov©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mutual intelligibility with the other Scandinavian languages
 
@@ -73,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  In other words, the Swedish pronunciation should be a piece of cake for you. Here’s a short sample with the pronunciation of some useful prepositions:
 
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Uncommon letters
 
@@ -136,21 +116,17 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-exquisite-stardew-valley-enhancements-revealed-top-7/"><u>[New] 2024 Approved Exquisite Stardew Valley Enhancements Revealed (Top 7)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unveiling-the-best-premiere-plans-free-for-pros/"><u>[New] In 2024, Unveiling the Best Premiere Plans, FREE for Pros</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-leaders-in-affordable-web-based-photography-tools/"><u>[New] Leaders in Affordable Web-Based Photography Tools</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-10plus-top-free-youtube-image-extractors/"><u>[Updated] 2024 Approved 10+ Top FREE YouTube Image Extractors</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-final-thoughts-on-youtubing-best-makers-tips-and-templates/"><u>[Updated] 2024 Approved Final Thoughts on YouTubing - Best Makers, Tips, and Templates</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brazil-european-pt-comparison-filter-and-back-key-innovations/"><u>Brazil-European PT Comparison: Filter & Back Key Innovations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/complete-set-of-spanish-language-states/"><u>Complete Set of Spanish Language States</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprehensive-catalog-of-languages-spains-neighbors/"><u>Comprehensive Catalog of Languages: Spain's Neighbors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-polyglot-peaks-navigating-difficult-language-terrain/"><u>Conquer Polyglot Peaks: Navigating Difficult Language Terrain</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-10-minute-urdu-education-sessions/"><u>Daily 10-Minute Urdu Education Sessions</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/expert-insights-on-the-newly-released-201th-kindle-oasis-a-comprehensive-evaluation/"><u>Expert Insights on The Newly Released 201^Th Kindle Oasis - A Comprehensive Evaluation</u></a></li>
-<li><a href="https://win-popular.techidaily.com/facilite-a-lancienne-solutions-pour-debloquer-votre-disque-c-plein-en-6-etapes-simples/"><u>Facilité À L'Ancienne: Solutions Pour Débloquer Votre Disque C Plein en 6 Étapes Simples</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo S17e? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576807700-huaweis-appgallery-welcomes-mondly/"><u>Huawei's AppGallery Welcomes Mondly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581824178-this-is-the-best-way-to-learn-lithuanian-online/"><u>This Is The Best Way To Learn Lithuanian Online</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-monetary-potential-predictor-for-2024/"><u>YouTube Monetary Potential Predictor for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-virtual-vision-creation-shaping-a-humorous-self-portrait/"><u>[New] 2024 Approved Virtual Vision Creation Shaping a Humorous Self-Portrait</u></a></li>
+<li><a href="https://article-tips.techidaily.com/cartoony-conversion-chronicles-top-windowsmac-imaging-software-for-2024/"><u>Cartoony Conversion Chronicles Top Windows/Mac Imaging Software for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-frontiers-of-text-generation-via-openais-api/"><u>Exploring the Frontiers of Text Generation via OpenAI's API</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-apple-iphone-12-mini-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your Apple iPhone 12 mini without Security Questions?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-google-pixel-fold-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Google Pixel Fold to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/inside-the-lab-of-languages-googles-palm-2-and-gpt-4/"><u>Inside the Lab of Languages: Google's PaLM 2 & GPT-4</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-the-japonic-writing-system/"><u>Journey Through the Japonic Writing System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-arabic-anywhere-anytime-6-motivating-factors-for-mondly-enrollment/"><u>Learn Arabic Anywhere, Anytime: 6 Motivating Factors for Mondly Enrollment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-top-16-formal-and-informal-thank-yous-in-deutsch/"><u>Learn the Top 16 Formal and Informal Thank Yous in Deutsch</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/playlist-retrieval-made-straightforward-your-compreenaside-for-2024/"><u>Playlist Retrieval Made Straightforward - Your Compreenaside for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-learning-science-driven-methods-to-master-languages/"><u>Rhythmic Learning: Science-Driven Methods to Master Languages</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-starter-linux-distros-comprehensive-guide-and-expert-reviews/"><u>Top-Rated Starter Linux Distros: Comprehensive Guide & Expert Reviews</u></a></li>
 </ul></div>
 

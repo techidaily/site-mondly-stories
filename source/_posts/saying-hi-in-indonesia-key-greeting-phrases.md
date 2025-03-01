@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2025-02-06T22:50:56.506Z
-updated: 2025-02-10T23:03:35.058Z
+date: 2025-02-27T19:17:00.964Z
+updated: 2025-02-28T23:05:39.464Z
 tags:
   - speak
   - english
@@ -40,19 +40,11 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -66,19 +58,11 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -90,10 +74,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -126,15 +106,17 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-crafting-engaging-content-with-google-trends-analytics/"><u>[New] In 2024, Crafting Engaging Content with Google Trends Analytics</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-keeping-the-laughs-iosandroid-methods-for-tweets-as-gifs/"><u>2024 Approved Keeping the Laughs IOS/Android Methods for Tweets as GIFs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-reddits-crowned-champions-the-10-most-upvoted-posts/"><u>2024 Approved Reddit's Crowned Champions The 10 Most Upvoted Posts</u></a></li>
-<li><a href="https://fox-where.techidaily.com/nvme-ssdwindows-11/"><u>轻松安装NVMe SSD到Windows 지원 11 ——初始化无烦恼指南</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-12-pro-max-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 12 Pro Max to iPhone 8/X/11 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hurry-up-learn-french-chromatic-sounds/"><u>Hurry Up, Learn French Chromatic Sounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/love-transcends-find-more-ways-to-say-i-love-you/"><u>Love Transcends: Find More Ways to Say I Love You</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pedagogical-approaches-to-learning-mandarin-script/"><u>Pedagogical Approaches to Learning Mandarin Script</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-asia-dialects-fast-reorder-and-preserve-status/"><u>Top Asia Dialects: Fast Reorder & Preserve Status</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-guide-how-to-correct-msvcr71dll-error-on-windows-systems/"><u>Comprehensive Guide: How to Correct MSVCR71.DLL Error on Windows Systems</u></a></li>
+<li><a href="https://win-unique.techidaily.com/critical-hurdle-for-microsofts-windows-11-just-one-year-left-to-resolve-issues-tech-news-by-zdnet/"><u>Critical Hurdle for Microsoft's Windows 11: Just One Year Left to Resolve Issues | Tech News by ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-languages-with-mondly-recommended-by-google/"><u>Explore Languages with Mondly, Recommended by Google</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-identifying-instagrams-newly-disconnected/"><u>In 2024, Identifying Instagram's Newly Disconnected</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-secure-smooth-photo-viewing-w10-troubleshooting-tips-unveiled/"><u>In 2024, Secure Smooth Photo Viewing W10 Troubleshooting Tips Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-unleashed-commemorating-1500-daily-fee-free-education/"><u>Learning Unleashed: Commemorating 1500 Daily Fee-Free Education</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/stunning-truth-easy-communication-with-ai-gpt/"><u>Stunning Truth: Easy Communication With AI GPT</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-choice-next-language-to-master/"><u>The Ultimate Choice: Next-Language to Master</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577370155-transform-lives-with-arabic-and-mondly-top-6-benefits-await/"><u>Transform Lives with Arabic & Mondly: Top 6 Benefits Await</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-potential-mondlys-free-educational-platform/"><u>Unlocking Potential: Mondly's Free Educational Platform</u></a></li>
 </ul></div>
 

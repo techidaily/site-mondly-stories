@@ -1,7 +1,7 @@
 ---
 title: Unlock the Power of Polite Expressions in Japan
-date: 2025-02-07T18:48:24.088Z
-updated: 2025-02-10T16:17:03.738Z
+date: 2025-02-23T02:46:37.980Z
+updated: 2025-02-28T17:13:09.343Z
 tags:
   - speak
   - english
@@ -45,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/2ba6e093c71356d417ecac5da46572ca39801b84e
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -68,10 +64,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 **Bonus tip:** Morning and evening are more carefully delimited in the Japanese culture than in the West. So it’s important to know your**_Konnichiwa_** and never use it instead of**_Konbanwa_** or**_Oyasuminasai._**
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
@@ -93,10 +85,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
  “See you soon, human” by Alain Pham©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -121,10 +109,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
@@ -165,10 +149,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-japanese-japanese-greetings-you-need%2F&t=Hello+in+Japanese+%E2%80%93+All+the+Japanese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -201,24 +181,16 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-top-10-video-editors-rising-from-vimeos-shadow/"><u>[New] 2024 Approved Top 10 Video Editors Rising From Vimeo's Shadow</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-your-essential-list-of-the-finest-ios-ps2-emulators/"><u>[Updated] 2024 Approved Your Essential List of the Finest iOS PS2 Emulators</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-underwater-gopro-filter-setup/"><u>[Updated] Ultimate Underwater Gopro Filter Setup</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-turn-high-definition-fb-videos-into-mp4-720p-1080p-for-free-online/"><u>2024 Approved How To Turn High Definition FB Videos Into MP4 (720P, 1080P) for Free Online</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-the-leading-smart-tv-models-for-2e24-based-on-latest-zdnet-rankings/"><u>Discover the Leading Smart TV Models for 2E24 Based on Latest ZDNet Rankings</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-realtek-rtl8188cu-wifi-drivers-compatible-with-windows-10-and-7-free-download/"><u>Get the Latest Realtek RTL8188CU WiFi Drivers Compatible with Windows 10 & 7 – Free Download</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-samsung-galaxy-xcover-6-pro-tactical-edition-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Samsung Galaxy XCover 6 Pro Tactical Edition to New Phone | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-x-to-other-iphone-15-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone X to other iPhone 15 devices? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/huawei-appgallery-now-features-mondly-services/"><u>Huawei AppGallery Now Features Mondly Services</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-ultimate-shooting-top-10-high-definition-dslr-stands/"><u>In 2024, Ultimate Shooting Top 10 High-Definition DSLR Stands</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-portuguese-like-a-pro-in-just-six-simple-steps/"><u>Learn Portuguese Like a Pro in Just Six Simple Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-ru-cyrillic-sounds-and-speech/"><u>Mastering RU Cyrillic Sounds and Speech</u></a></li>
-<li><a href="https://win-updates.techidaily.com/overcoming-challenges-with-device-drivers-on-your-computer-a-comprehensive-guide-by-yl-software-experts/"><u>Overcoming Challenges with Device Drivers on Your Computer: A Comprehensive Guide by YL Software Experts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-learning-the-art-of-french-chromatic-expression/"><u>Quick Learning: The Art of French Chromatic Expression</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sounds-of-english-embracing-canadian-irish-and-new-zealand-vowels/"><u>Sounds of English: Embracing Canadian, Irish, and New Zealand Vowels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-speaking-croatian-now-here-are-the-top-7-reasons/"><u>Start Speaking Croatian Now - Here Are The Top 7 Reasons!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/where-else-does-thanksgiving-take-place/"><u>Where Else Does Thanksgiving Take Place?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/words-across-worlds-exploring-intergalactic-linguistics-in-star-wars/"><u>Words Across Worlds: Exploring Intergalactic Linguistics in Star Wars</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-words-whirlwind-search-for-longest-one/"><u>World Words Whirlwind Search for Longest One</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-streamlining-your-approach-to-youtube-community-dialogue/"><u>[New] 2024 Approved Streamlining Your Approach to YouTube Community Dialogue</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-soundscapes-from-social-media-videos/"><u>[Updated] In 2024, Soundscapes From Social Media Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-adobes-quick-guide-for-perfect-photo-colors/"><u>2024 Approved Adobe's Quick Guide for Perfect Photo Colors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-top-17-spanish-colloquialisms/"><u>Bridging Cultures: Top 17 Spanish Colloquialisms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/concert-care-selecting-high-fidelity-plug-ins/"><u>Concert Care: Selecting High Fidelity Plug Ins</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/down-under-dialect-100plus-australian-terms/"><u>Down Under Dialect: 100+ Australian Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-intricacies-of-nippons-alphabet/"><u>Exploring the Intricacies of Nippon's Alphabet</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/perfeziona-e-ripristina-i-tuoi-video-a-risoluzione-4k8k10k-grazie-a-winxvideo-ai/"><u>Perfeziona E Ripristina I Tuoi Video a Risoluzione 4K/8K/10K Grazie a Winxvideo AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/recent-amendment-to-tandcs/"><u>Recent Amendment to T&Cs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tracing-linguistic-concentration-french-speaking-populations/"><u>Tracing Linguistic Concentration: French Speaking Populations</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-motorola-razr-40-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Motorola Razr 40 Device</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Win Over Venetians: Master 20+ Italian Language Essentials"
-date: 2025-02-06T19:29:03.891Z
-updated: 2025-02-11T01:28:27.782Z
+date: 2025-02-27T00:34:34.684Z
+updated: 2025-02-28T17:26:15.843Z
 tags:
   - speak
   - english
@@ -35,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/259362f05442761cee2c53bd4a987280fdd7ced53
 
  Before we move on, you need to understand that expressions, sayings, phrases, and idioms is that they are the salt and pepper of any language, not just Italian. And the best ones are, of course, those unique to the language you are learning. Why? Because they are the shortcut to making you sound more fluent.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Old Italian Expressions
 
 * **_Avere le braccine corte._** To literally “have short arms”. This witty old Italian saying depicts stingy people, humorously suggesting their arms are too short to reach into their pockets!
@@ -57,17 +53,9 @@ thumbnail: https://thmb.techidaily.com/259362f05442761cee2c53bd4a987280fdd7ced53
 
 ## Funny Italian Slang Words & Phrases
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Cavoli amari
 
 _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refers to a tough situation or impending problems. Interestingly, Italians frequently mention cabbages! For instance,_cavoli miei_ (“my cabbages”) implies something is your personal business that others shouldn’t meddle with.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Boh
 
@@ -81,17 +69,9 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 * _Dai! Passa la palla a Luigi!_ – Come on! Pass the ball to Luigi! (encouragement)
 * _Dai! Basta! Smettila!_ – Come on! That’s enough! Stop that! (frustration or annoyance)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Pantofolaio
 
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Tirare il pacco
 
@@ -102,10 +82,6 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 _Scialla_ is an Italian slang word that has become very popular lately, thanks to Gen Z. It basically means “to relax”, “to chill out” or to “keep calm”. It is generally used as an encouragement to “don’t worry”.
 
  There’s a 2011 movie with the same name in case you’re looking to expand your Italian slang word repertoire further.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Figo
 
@@ -119,17 +95,9 @@ _Sbronza_ is for everything related to alcohol as it essentially describes the s
 
  If you have to convey the meaning of being drunk in a more formal setting, you would definitely not use_sbronza_ . Instead, you would use terms like_ubriachezza_ (“drunkness”) or_intossicazione alcolica_ (“alcohol intoxication”).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. Che casino
 
 _Casino_ in Italian has nothing to do with gambling because it is literally a “brothel”. So, this Italian expression actually means “what a mess!” and is used to describe a situation that’s a bit out of control, confusing, or crowded.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. Beccarsi
 
@@ -246,19 +214,20 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-examining-vivocuts-impact-on-the-video-editor-writes-of-2024/"><u>[New] Examining VivoCut's Impact on the Video Editor' Writes of 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-explaining-the-gopro-burst-mode-for-2024/"><u>[Updated] Explaining the GoPro Burst Mode for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-masterclass-in-drones-exploring-the-q500-typhoon/"><u>[Updated] Masterclass in Drones Exploring the Q500 Typhoon</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-polarr-photo-editor-demystified-in-depth-analysis/"><u>[Updated] Polarr Photo Editor Demystified In-Depth Analysis</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-hdr-photoshop-how-to-create-hdr-images-in-photoshop-like-a-pro/"><u>2024 Approved HDR Photoshop How to Create HDR Images in Photoshop Like a Pro</u></a></li>
-<li><a href="https://windows11.techidaily.com/5-essential-tweaks-for-your-windows-11-search-settings/"><u>5 Essential Tweaks for Your Windows 11 Search Settings</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-audio-jack-functionality-in-damaged-laptop-units-expert-fixes-uncovered/"><u>How to Restore Audio Jack Functionality in Damaged Laptop Units – Expert Fixes Uncovered</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/install-hp-deskjet-plus-wi-fi-direct-and-print-to-mobile-phones-and-tablets-win11-drivers/"><u>Install HP DeskJet Plus Wi-Fi Direct & Print to Mobile Phones and Tablets - Win11 Drivers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-and-entertaining-latin-classes/"><u>Interactive & Entertaining Latin Classes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/stimulating-experience-fun-in-linguistics/"><u>Stimulating Experience: Fun in Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-pathway-to-commanding-presence-9-speaking-tips/"><u>The Pathway to Commanding Presence: 9 Speaking Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-danish-films-as-gateways-to-flawless-speech/"><u>Top Danish Films as Gateways to Flawless Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wortgewandtheit-deutsches-greetings-vokabular-ohne-hallo/"><u>Wortgewandtheit: Deutsches Greetings-Vokabular Ohne 'Hallo'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/zusammenspiel-von-wortern-grusse-im-deutschen-neben-hallo/"><u>Zusammenspiel Von Wörtern: Grüße Im Deutschen Neben Hallo</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-stepwise-guide-to-optimal-zoom-audio-recording/"><u>[New] In 2024, Stepwise Guide to Optimal Zoom Audio Recording</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-ultimate-exploration-of-apeaksofts-screen-recorder/"><u>[New] The Ultimate Exploration of Apeaksoft's Screen Recorder</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-evolving-your-tiktok-conclusion-designs/"><u>[Updated] 2024 Approved Evolving Your TikTok Conclusion Designs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-compreehers-guide-to-srt-file-flexibility/"><u>[Updated] The Compreeher’s Guide to SRT File Flexibility</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580784291-experience-cultural-integration-through-hindi-discover-8-engaging-advantages-with-mondly/"><u>Experience Cultural Integration Through Hindi - Discover 8 Engaging Advantages with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-finesse-enchanting-the-heart-with-words/"><u>French Finesse: Enchanting the Heart with Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-proficiency-counting-in-spanish/"><u>From Novice to Proficiency: Counting in Spanish</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-best-tools-for-instant-time-lapse-videos/"><u>In 2024, Best Tools for Instant Time-Lapse Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-proven-strategies-for-inclusion-in-the-apple-catalog/"><u>In 2024, Proven Strategies for Inclusion in the Apple Catalog</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-unbiased-avs-video-editor-review-is-it-right-for-you/"><u>In 2024, Unbiased AVS Video Editor Review Is It Right for You?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proto-germanic-traces-in-dutch-dialects/"><u>Proto-Germanic Traces in Dutch Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-ukrainian-grasping-through-short-dailies-93-chars/"><u>Quick Ukrainian Grasping Through Short Dailies (93 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-languages-a-language-explorers-guide/"><u>Romance Languages: A Language Explorer's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hurdles-faced-while-studying-german/"><u>The Hurdles Faced While Studying German</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-guide-to-harnessing-the-potential-of-the-openai-api/"><u>The Ultimate Guide to Harnessing the Potential of the OpenAI API</u></a></li>
 </ul></div>
 

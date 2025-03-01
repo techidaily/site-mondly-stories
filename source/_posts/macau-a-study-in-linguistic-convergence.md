@@ -1,7 +1,7 @@
 ---
 title: "Macau: A Study in Linguistic Convergence"
-date: 2025-02-09T19:15:14.633Z
-updated: 2025-02-11T03:31:02.370Z
+date: 2025-02-26T19:54:16.568Z
+updated: 2025-02-28T19:13:17.551Z
 tags:
   - speak
   - english
@@ -50,14 +50,6 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Macanese: A Distinctive Creole Language of Macau
 
 **Macanese Patois or the Macanese creole language, known as Patuá** to its speakers, is a mixture of Cantonese, Malay, Sinhalese, and – most importantly – Portuguese. Developed as a lingua franca for communication among the multicultural community of traders, sailors, and settlers, Macanse emerged as a unique language reflecting the melting pot of cultures that Macau represented.
@@ -76,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
  The linguistic connection between Macau and Portugal also results in significant movement between the two regions. According to the [2021 Macau Census](https://www.dsec.gov.mo/Censos2021/en-US/) , individuals born in Portugal make up around 0.3% of Macau’s total population, indicating a notable presence of Portuguese-born residents in Macau.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Official Portuguese Usage in Macau
 
  Despite the relatively small number of Portuguese speakers in Macau, the local government remains committed to promoting the Portuguese language. In public schools, students are taught Chinese, English, and Portuguese, reflecting the importance of these languages in the education system. Additionally, the government offers free programs to facilitate the learning of Portuguese among the general population.
@@ -94,15 +82,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Future of Macau’s Languages
 
@@ -156,17 +136,22 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-step-by-step-guide-live-broadcast-of-recorded-videos-on-fb/"><u>[New] 2024 Approved Step-by-Step Guide Live Broadcast of Recorded Videos on FB</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-50plus-cool-discord-names-to-attract-attention-in-no-time/"><u>[Updated] 2024 Approved 50+ Cool Discord Names to Attract Attention in No Time</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-first-steps-in-the-youtubian-economy-building-a-brand-boosting-bank-balance-for-2024/"><u>[Updated] First Steps in the Youtubian Economy Building a Brand, Boosting Bank Balance for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-profound-impacts-of-multilingual-communication/"><u>5 Profound Impacts of Multilingual Communication</u></a></li>
-<li><a href="https://games-able.techidaily.com/astrocraft-builder-new-pc-brands-hidden-in-space/"><u>AstroCraft Builder: New PC Brands Hidden in Space?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aufforderungen-mit-bedauern-deutsche-formulierung-lernen/"><u>Aufforderungen Mit Bedauern – Deutsche Formulierung Lernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-pronunciation-succeeding-in-difficult-language-learning/"><u>Beyond Pronunciation: Succeeding in Difficult Language Learning</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/png-o-jpeg-un-confronto-dettagliato-per-la-qualita-superiore/"><u>PNG O JPEG: Un Confronto Dettagliato per La Qualità Superiore</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580355720-quick-language-learning-for-norge-proficiency/"><u>Quick Language Learning for Norge Proficiency</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477015-9781397665355-the-secret-of-the-saucers/"><u>The Secret of the Saucers | Free Book</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/updated-streamlining-silence-simplified-guide-to-extracting-background-noise-from-music-tracks-using-audacity/"><u>Updated Streamlining Silence Simplified Guide to Extracting Background Noise From Music Tracks Using Audacity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-digital-influencers-galore-leading-10-by-subs-for-2024/"><u>[New] Digital Influencers Galore Leading 10 by Subs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-become-an-audio-chameleon-learn-how-to-change-free-fire-voices/"><u>[New] In 2024, Become an Audio Chameleon! Learn How to Change Free Fire Voices</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-streamlining-screenshot-tasks-in-minutes/"><u>[New] Streamlining Screenshot Tasks in Minutes</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-a-thorough-guide-to-thriving-in-stardews-hidden-landmark-ginger-isle/"><u>[Updated] A Thorough Guide to Thriving in Stardew's Hidden Landmark Ginger Isle</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-audible-allure-choosing-background-beats-for-videos/"><u>[Updated] Audible Allure Choosing Background Beats for Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-tech-driven-pleasure-exploring-vr-in-media/"><u>[Updated] In 2024, Tech-Driven Pleasure Exploring VR in Media</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mirthful-stream-retriever-review/"><u>[Updated] Mirthful Stream Retriever Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-study-of-progressive-mastery-in-languages/"><u>A Study of Progressive Mastery in Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-bonanza-learn-any-language-zero-cost/"><u>Black Friday Bonanza: Learn Any Language, Zero Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-amazon-fire-hd-10-analysis-the-ultimate-all-in-one-entertainment-device-for-everyone/"><u>Comprehensive Amazon Fire HD 10 Analysis: The Ultimate All-in-One Entertainment Device for Everyone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dual-language-repertoire-boosts-6-beneficial-traits/"><u>Dual Language Repertoire Boosts: 6 Beneficial Traits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-best-to-greatest-mondlys-journey-in-german-learning/"><u>From Best to Greatest: Mondly’s Journey in German Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-brain-power-music-driven-language-acquisition-techniques/"><u>Harmonizing Brain Power: Music-Driven Language Acquisition Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-apple-iphone-11-pro-max-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, iSpoofer is not working On Apple iPhone 11 Pro Max? Fixed | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-russian-numerals-and-operations/"><u>Navigating Through Russian Numerals & Operations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581839152-norgeenas-skill-spurt-daily-ten-minutes/"><u>Norge'enas Skill Spurt - Daily Ten Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-skill-sharpen-back-button-focus/"><u>Speaking Skill Sharpen: Back Button Focus</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Shakespeare’s Sonnet Scribbled Into Today's Vernacular
-date: 2025-02-06T16:54:41.631Z
-updated: 2025-02-10T18:02:54.263Z
+date: 2025-02-26T02:22:10.929Z
+updated: 2025-02-28T21:34:53.492Z
 tags:
   - speak
   - english
@@ -57,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/62c8ecc88aff429d62093b18bad06f55833353ec7
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
@@ -77,17 +73,9 @@ _Timon of Athens_ , Act V, Scene I
 
 _King Henry VI_ , Part II, Act IV, Scene I
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **4.** Cold-blooded
 
 _King John_ , Act III, Scene I
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **5\. Dauntless**
 
@@ -96,10 +84,6 @@ _King Henry VI_ , Part III, Act III, Scene III
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **7\. (to) Friend**
 
@@ -121,25 +105,13 @@ _The Merchant of Venice_ , Act I, Scene I
 
 _Julius Caesar_ , Act I, Scene II
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **13.** Mimic
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **14.** Monumental
 
@@ -161,10 +133,6 @@ _King Henry VI_ , Part III, Act II, Scene III
 
 _Hamlet_ , Act II, Scene I
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
@@ -177,10 +145,6 @@ _All’s Well That Ends Well_ , Act I, Scene I
 
 _Hamlet_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **22\. (to) Swagger**
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
@@ -192,10 +156,6 @@ _Othello_ , Act III, Scene III
 ### **24.** Unreal
 
 _Macbeth_ , Act III, Scene IV
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **25\. Zany**
 
@@ -239,17 +199,24 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-thrills-that-dont-involve-los-angeles-lives/"><u>[Updated] In 2024, Thrills That Don't Involve Los Angeles Lives</u></a></li>
-<li><a href="https://blog-min.techidaily.com/44cm44or44k944kz44oz44gl44kj57ch5y2y44gq5oml6acg44gn6auy5zob6loq44gu6zplusz5qw944os44kz44o844oh44kj44oz44kw44oe44k544k44o85l2c44kk44cn/"><u>「パソコンから簡単な手順で高品質の音楽レコーディングマスター作り」</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-lifelong-guide-to-spanish-verbal-patterns/"><u>A Lifelong Guide to Spanish Verbal Patterns</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576342602-conquer-new-horizons-in-hindi-explore-7-inspiring-mondly-advantages/"><u>Conquer New Horizons in Hindi: Explore 7 Inspiring Mondly Advantages!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-your-israel-trip-must-know-language-skills-and-guideposts/"><u>Cultivating Your Israel Trip: Must-Know Language Skills & Guideposts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialogue-dynamics-superior-training-pathways/"><u>Dialogue Dynamics: Superior Training Pathways</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exporting-your-gpt-3-interactions-a-comprehensive-tutorial/"><u>Exporting Your GPT-3 Interactions - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580464712-get-ready-to-meet-your-new-ai-conversation-partner/"><u>Get Ready To Meet Your New AI Conversation Partner</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/harnessing-chatgpts-capabilities-for-poetic-expression/"><u>Harnessing ChatGPT's Capabilities for Poetic Expression</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-the-ethical-use-of-ai-chatbots-like-chatgpt-in-mental-health-counseling/"><u>Navigating the Ethical Use of AI Chatbots Like ChatGPT in Mental Health Counseling</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-gionee-f3-pro-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Gionee F3 Pro Black and White | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/the-comprehensive-guide-to-capturing-perfect-instagram-covers-for-2024/"><u>The Comprehensive Guide to Capturing Perfect Instagram Covers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-framework-developing-transformative-lifestyle-broadcasts/"><u>[New] 2024 Approved Framework Developing Transformative Lifestyle Broadcasts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-capturing-clarity-iphone-low-light-techniques-for-2024/"><u>[New] Capturing Clarity IPhone Low Light Techniques for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-no-money-no-problem-heres-your-list-of-vfx-pages/"><u>[Updated] 2024 Approved No Money, No Problem! Here's Your List of VFX Pages</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-excellence-in-social-media-video-playback-tools-2023-edition/"><u>[Updated] In 2024, Excellence in Social Media Video Playback Tools, 2023 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-la-secuencia-del-calendario-de-espana/"><u>Aprende La Secuencia Del Calendario De España</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catch-your-friends-attention-top-50-latin-idioms-and-quotations/"><u>Catch Your Friends' Attention: Top 50 Latin Idioms & Quotations</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/diagnosing-steps-for-your-systems-ghosted-gpu/"><u>Diagnosing: Steps for Your System's Ghosted GPU</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-from-your-apple-iphone-13-pro-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID from Your Apple iPhone 13 Pro?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Vivo G2? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-lost-love-found-relationship-resilience/"><u>Languages Lost, Love Found: Relationship Resilience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577875476-make-a-statement-in-croatia-speak-its-language-with-these-top-7-motivations/"><u>Make a Statement in Croatia: Speak Its Language with These Top 7 Motivations!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-investing-in-ukrainian-speakers-for-no-expense/"><u>Mondly's Mission: Investing in Ukrainian Speakers, for No Expense</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-adjusted-understanding-your-rights/"><u>Privacy Adjusted - Understanding Your Rights</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-the-whea-uncorrectable-error-a-comprehensive-guide/"><u>Solving the 'WHEA Uncorrectable Error': A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-polish-mastery-for-novices/"><u>Speedy Polish Mastery for Novices</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/step-by-step-guide-upgrading-from-iphone-56-to-iphone-x-7-or-8/"><u>Step-by-Step Guide: Upgrading From iPhone 5/6 to iPhone X, 7 or 8</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-mondly-endorses-ukraines-linguistic-renaissance/"><u>Unlock Your Potential: Mondly Endorses Ukraine's Linguistic Renaissance</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/when-travel-becomes-pricey-how-southwest-air-squeezed-extra-costs-during-high-stress-moments/"><u>When Travel Becomes Pricey: How Southwest Air Squeezed Extra Costs During High Stress Moments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worlds-lengthiest-term-and-its-tale/"><u>World's Lengthiest Term and Its Tale</u></a></li>
 </ul></div>
 

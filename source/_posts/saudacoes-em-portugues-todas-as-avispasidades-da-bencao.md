@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2025-02-06T19:20:13.889Z
-updated: 2025-02-11T03:30:39.189Z
+date: 2025-02-25T02:55:30.109Z
+updated: 2025-02-28T23:37:52.192Z
 tags:
   - speak
   - english
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -41,10 +37,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
  “Lisbon, Portugal” by Diego García©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -89,15 +81,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -130,10 +114,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -165,19 +145,18 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-journey-through-visual-innovation-navigating-to-the-top-10-inexpensive-platforms-for-digital-painters/"><u>[New] Journey Through Visual Innovation Navigating to the Top 10 Inexpensive Platforms for Digital Painters</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-building-a-better-movie-utilizing-windows-11s-movie-maker/"><u>[Updated] 2024 Approved Building a Better Movie Utilizing Windows 11'S Movie Maker</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-guide-for-iphone-13-lock-screen-by-drfone-ios/"><u>Complete Guide For iPhone 13 Lock Screen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enrich-perspectives-through-polyglotisms-triumph/"><u>Enrich Perspectives Through Polyglotism's Triumph</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-guide-to-10-distinctive-spanish-greeting-phrases/"><u>Essential Guide to 10 Distinctive Spanish Greeting Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exciting-news-mondly-joins-huaweis-platform/"><u>Exciting News! Mondly Joins Huawei's Platform</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-idioms-unveiled-defining-current-english-slang/"><u>Expressive Idioms Unveiled: Defining Current English Slang</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/flourish-in-social-settings-mastering-verbal-exchanges/"><u>Flourish in Social Settings: Mastering Verbal Exchanges</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gain-language-confidence-with-daily-10-minute-tagalog-sessions/"><u>Gain Language Confidence with Daily 10-Minute Tagalog Sessions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-elite-systems-unveiled-the-best-of-the-bunch/"><u>In 2024, Elite Systems Unveiled - The Best of the Bunch</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/income-on-instagram-comprehensive-step-by-step-guide-for-2024/"><u>Income on Instagram Comprehensive Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/modify-picture-summaries-for-windows-11/"><u>Modify Picture Summaries for Windows 11</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-fix-logildadll-missing-alert/"><u>Quick-Fix: LogiLDA.dll Missing Alert</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/step-by-step-techniques-for-clear-screen-captures-on-imac-for-2024/"><u>Step-by-Step Techniques for Clear Screen Captures on iMac for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-srgb-efficiency-against-basic-rgb/"><u>2024 Approved Srgb Efficiency Against Basic Rgb</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/p-by-step-guide-to-seeing-whos-watching-for-2024/"><u>A Step-by-Step Guide to Seeing Who's Watching for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-week-in-korea-one-hangul-at-a-time/"><u>A Week in Korea, One Hangul at a Time</u></a></li>
+<li><a href="https://games-able.techidaily.com/adapting-to-change-how-steams-ai-rules-transform-gaming/"><u>Adapting to Change: How Steam's AI Rules Transform Gaming</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/complete-instructions-for-downloading-and-installing-samsung-960-evo-m2-ssd-drivers-on-windows/"><u>Complete Instructions for Downloading & Installing Samsung 960 EVO M.2 SSD Drivers on Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-expressions-unveiled-a-curated-list-of-the-top-25/"><u>German Expressions Unveiled: A Curated List of the Top 25</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-many-languages-does-santa-fluent-in/"><u>How Many Languages Does Santa Fluent In?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-z-flip-5-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy Z Flip 5 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-partners-up-enhanced-buttonfiltration-with-pearson/"><u>Mondly Partners Up: Enhanced ButtonFiltration With Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-words-new-year-save-on-linguistic-adventures-with-our-deal/"><u>New Words, New Year: Save on Linguistic Adventures with Our Deal!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-nubia-z50-ultra-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Nubia Z50 Ultra</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-seniors-guide-embracing-multilingualism-and-its-incredible-benefits-post-forty/"><u>The Senior's Guide: Embracing Multilingualism and Its Incredible Benefits Post-Forty</u></a></li>
 </ul></div>
 

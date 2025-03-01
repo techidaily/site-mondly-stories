@@ -1,7 +1,7 @@
 ---
 title: "Say It Like an Aussie: Quick Lessons"
-date: 2024-07-12T08:09:47.317Z
-updated: 2024-07-13T08:09:47.317Z
+date: 2025-02-25T20:24:41.716Z
+updated: 2025-02-28T23:58:16.616Z
 tags:
   - speak
   - english
@@ -25,8 +25,6 @@ thumbnail: https://thmb.techidaily.com/23a59a3978673a4d0acc00d7490f94438fabe3807
 ``
 
  You don’t really know a language until you’ve learned its [slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . And when it comes to English, many people agree that Australian slang is the richest, liveliest and funniest slang you could learn. Sure, there’s always British English, but the Brits don’t call their barbecue “barbie”. And that’s a missed opportunity. Wouldn’t you agree? How can you have just a plain, dull barbecue when you could have a “barbie”? The Aussie slang is the best slang.
-
-
 
 ## Top 10 Popular Australian Slang Terms & Words
 
@@ -305,8 +303,6 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -314,6 +310,21 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-never-a-cap-on-saved-instagram-stories/"><u>[New] 2024 Approved Never a Cap on Saved Instagram Stories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-srt-file-playback-windows-and-mac-integration/"><u>[New] 2024 Approved SRT File Playback Windows & Mac Integration</u></a></li>
+<li><a href="https://win-info.techidaily.com/5ywo6z2i5a2457pluss6lev57ea5zyw77ya5aac5l2v6lplusf6ycf5zyo6kii566x5qmf5lit5omplus5yiw5qqu5qgi77yf/"><u>全面學習路線圖：如何迅速在計算機中找到檔案？</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-update-canon-printer-software-guide-for-windows-users/"><u>Download and Update Canon Printer Software: Guide for Windows Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-samsung-galaxy-s10-the-epitome-of-luxury-and-performance/"><u>Expert Analysis of the Samsung Galaxy S10: The Epitome of Luxury and Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-and-mondly-team-up-for-your-linguistic-endeavors/"><u>Google and Mondly Team Up for Your Linguistic Endeavors</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723204731127-how-to-fix-call-of-duty-ww2-error-code-4220-and-get-back-in-battle-asap/"><u>How to Fix Call of Duty WW2 Error Code 4220 & Get Back in Battle ASAP!</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-apple-iphone-8-plus-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From Apple iPhone 8 Plus Lock Screen</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/interpreting-the-functionality-behind-facebooks-blue-video-icon-for-2024/"><u>Interpreting the Functionality Behind Facebook's Blue Video Icon for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-journey-companion-phrases-for-a-seamless-visit/"><u>Italian Journey Companion: Phrases for a Seamless Visit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-american-versus-old-world-portuguese-buttons/"><u>Latin American Versus Old World Portuguese Buttons</u></a></li>
+<li><a href="https://windows11.techidaily.com/maximizing-efficiency-prioritizing-terminal-over-others/"><u>Maximizing Efficiency: Prioritizing Terminal Over Others</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-spelling-pitfalls-avoiding-the-most-frequent-mistakes/"><u>Top 100 Spelling Pitfalls: Avoiding the Most Frequent Mistakes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-multilingual-magic-of-saint-nick/"><u>Unveiling The Multilingual Magic of Saint Nick</u></a></li>
+</ul></div>
 

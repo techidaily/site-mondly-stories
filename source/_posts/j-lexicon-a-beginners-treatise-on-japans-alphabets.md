@@ -1,7 +1,7 @@
 ---
 title: "J-Lexicon: A Beginner's Treatise on Japan's Alphabets"
-date: 2025-02-09T04:23:52.604Z
-updated: 2025-02-10T19:00:54.598Z
+date: 2025-02-25T21:54:17.236Z
+updated: 2025-02-28T20:15:40.477Z
 tags:
   - speak
   - english
@@ -38,10 +38,6 @@ The main subjects we’re going to cover next are:
  That reminds me:**hiragana and katakana also have a joint name: kana.**
 
 ![japanese writing system](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-writing-system-scaled-960x548.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 11")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The Japanese writing system
 
@@ -116,29 +112,17 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2895&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2895&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2895&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2895&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2895%26mt%3D8)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hiragana + Katakana = Kana
 
  As mentioned before,**hiragana and katakana can be called kana together.** Unlike kanji characters that represent meaning, kana characters represent sound. In other words, **hiragana and katakana have characters for each basic mora (syllable) in the Japanese language.** Each has only 46 basic characters or sounds. This is the main reason why you can master kana (hiragana + katana) in only a matter of days.
 
  Somehow related to kanji, kana evolved from_man’yōgana_ (万葉仮名) – an ancient writing system that uses Chinese characters to represent the Japanese language phonetically. The hiragana and katakana characters we use today are simplified versions of_man’yōgana_ .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **When are Kana characters used?**
 
  The usage difference between hiragana and katakana is stylistic. Usually, **hiragana is used for particles, postpositions, adverbs, auxiliary verbs, function words,** or as a replacement for kanji when there’s a word with no kanji representation or whose kanji is thought to be too difficult for others to understand.
 
 ![hiragana japanese alphabet](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-alphabet-hiragana-960x679.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 15")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The Hiragana Japanese alphabet
 
@@ -170,10 +154,6 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  Let’s be honest: Japanese writing is not easy to master. If you want to do it right, it’s essential to keep your focus and avoid the following mistakes. 👇
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Mixing up Hiragana, Katakana, and Kanji
 
  It’s easy to confuse these three scripts when you’re a beginner. Make sure you start by learning their differences and uses. Mixing them up can lead to misunderstandings and errors in your writing.
@@ -200,10 +180,6 @@ If you need a refresher, you can always come back to this article.
 
  Many of us are familiar with the well-known Japanese custom of the polite bow, as well as the strong emphasis that Japanese culture places on hierarchy and etiquette, especially within the family. These values seem to be deeply ingrained in Japanese society and it’s important to respect them. It all depends on the social context!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Not practicing enough
 
  Like any skill, learning Japanese writing takes practice. Not practicing enough can lead to slow progress and difficulties mastering the language. Don’t forget that practice makes perfect.
@@ -219,19 +195,11 @@ If you need a refresher, you can always come back to this article.
 
 ![japanese english dictionary](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-english-dictionary-960x830.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 17")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Japanese-English dictionary by P K©
 
 * finally, it is also important to point out that each script – hiragana, katakana, and kanji – has a specific use and just by seeing the script, you can tell what it is going to say.
 
  And… there you have it! This is your introduction to**the Japanese writing system and the Japanese alphabet.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5 interesting facts about the Japanese alphabet
 
@@ -245,10 +213,6 @@ If you need a refresher, you can always come back to this article.
 
 The Japanese alphabet  has no plurals, which means there is no difference between talking about one person or a group of people. This can be easy if you want to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and you are afraid of the difficulty level one might have.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Intonation is essential
 
  More than in any other language, intonation can completely change the meaning of a word. For example, あめ is used for both “rain” and “candy”. To be able to differentiate between the two and for the conversation to make sense, you need to focus on the right intonation.
@@ -256,10 +220,6 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
  Another example is the word for “chopsticks” and “bridge”: はし_hashi_ . If you want to talk about chopsticks, you will use the intonation HAshi, with a higher “HA”, and the opposite for bridge – haSHI.
 
 ![japanese city](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-city-960x641.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 18")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Japanese city center
 
@@ -327,18 +287,17 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-scouring-for-meaningful-youtube-discussions/"><u>[New] Scouring for Meaningful YouTube Discussions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-stack-videos-in-your-youtube-queue/"><u>[New] Stack Videos in Your YouTube Queue</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-8-free-enterprise-friendly-video-call-tools/"><u>[Updated] In 2024, Top 8 Free Enterprise-Friendly Video Call Tools</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-live-cutting-edge-strategies-audiences/"><u>2024 Approved Facebook Live Cutting-Edge Strategies Audiences</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-instagrams-live-feature-without-your-identity/"><u>2024 Approved Mastering Instagram's Live Feature Without Your Identity</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/discover-top-5-cost-free-windows-10-screencast-recorders/"><u>Discover Top 5 Cost-Free Windows 10 Screencast Recorders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-worldwide-teachers-at-bett-2022/"><u>Engaging Worldwide Teachers at BETT 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhancing-your-lexicon-mondlys-revolutionized-phrases/"><u>Enhancing Your Lexicon: Mondly's Revolutionized Phrases</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/essential-calendar-solutions-for-time-management-in-large-households/"><u>Essential Calendar Solutions for Time Management in Large Households</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/flourish-in-multilingualisms-landscape/"><u>Flourish in Multilingualism's Landscape</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gaining-wisdom-in-world-languages/"><u>Gaining Wisdom in World Languages</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-a-closer-look-at-sonys-s6700-enhancements/"><u>In 2024, A Closer Look at Sony's S6700 Enhancements</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oppo-a2-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Oppo A2 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-master-the-art-of-file-conversion-selecting-best-free-tools-for-instagram-videos-windowsosx/"><u>[Updated] 2024 Approved Master the Art of File Conversion Selecting Best Free Tools for Instagram Videos [Windows/OSX]</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-insightful-evaluation-androids-photography-tool-lightroom/"><u>2024 Approved Insightful Evaluation Android's Photography Tool, Lightroom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-los-animales-del-mundo-con-espanol/"><u>Aprende Los Animales Del Mundo Con Español</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-dota-2-error-code-2024-update-your-graphics-driver-step-by-step-guide/"><u>Fix Dota 2 Error Code 2024: Update Your Graphics Driver - Step-by-Step Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-xlb-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>Free electronic signature - For .xlb files</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-quick-quirks-making-manipulations-more-minimal/"><u>In 2024, Quick Quirks Making Manipulations More Minimal</u></a></li>
+<li><a href="https://extra-information.techidaily.com/inside-kinemaster-the-ultimate-guide-to-its-android-avatar/"><u>Inside KineMaster The Ultimate Guide to Its Android Avatar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspire-illyrians-embrace-over-20-italian-phrases/"><u>Inspire Illyrians - Embrace Over 20 Italian Phrases</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-ace-2v-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Ace 2V.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proactive-language-proficiency-in-a-competitive-market/"><u>Proactive Language Proficiency in a Competitive Market</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-the-language-web-affordable-and-self-paced-study/"><u>Unraveling the Language Web - Affordable & Self-Paced Study</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveil-the-quickest-ways-to-transform-your-game-characters-speech-in-pubg-for-2024/"><u>Unveil the Quickest Ways to Transform Your Game Characters' Speech in PUBG for 2024</u></a></li>
 </ul></div>
 

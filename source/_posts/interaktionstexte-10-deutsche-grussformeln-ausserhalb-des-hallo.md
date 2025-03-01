@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2025-02-08T19:30:16.927Z
-updated: 2025-02-10T19:51:30.161Z
+date: 2025-02-24T00:43:57.875Z
+updated: 2025-03-01T02:13:16.771Z
 tags:
   - speak
   - english
@@ -52,10 +52,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -63,10 +59,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Literally meaning “how does it go to you?”,_wie geht es dir?_ is an informal way of asking your friend how are things going. If you want to move up the formality scale, you can use the formal_wie geht es Ihnen_ ._Dir_ and_Ihnen_ both mean ‘you’, but unlike English, German uses formal and informal pronouns.
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Alles klar? – “Everything alright?”
 
@@ -81,10 +73,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  When someone asks you_was ist los?_ , you have to pay close attention to their tone of voice. While in the context of greetings it can mean “what’s up?” or “what’s going on?”, if given the right tone, it can also mean “what’s wrong?” or “what’s the matter?”.
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Regional German greetings
 
@@ -115,10 +103,6 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
@@ -132,10 +116,6 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
  A variation of this is_Grüß dich,_ which can be interpreted as “greetings to you”. This one is less formal, but it is still mostly used by seniors.
 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
 
@@ -185,22 +165,18 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-boosting-your-youtube-views-a-strategy-guide/"><u>[New] Boosting Your YouTube Views A Strategy Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-transforming-photos-remove-background-with-ease-for-2024/"><u>[New] Transforming Photos Remove Background with Ease for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-ultimate-guide-to-maximum-fitness-mac-recordings-for-snapchat-for-2024/"><u>[New] Ultimate Guide to Maximum Fitness Mac Recordings for Snapchat for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-step-by-step-navigating-the-full-spectrum-of-storage-in-the-adobe-cloud-ecosystem/"><u>[Updated] Step by Step Navigating the Full Spectrum of Storage in the Adobe Cloud Ecosystem</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-leading-caller-id-changers-with-enchanting-options/"><u>2024 Approved Leading Caller ID Changers with Enchanting Options</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-by-step-elevating-your-instagram-engagement-through-hashtags/"><u>2024 Approved Step-by-Step Elevating Your Instagram Engagement Through Hashtags</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-reasons-for-the-remarkable-achievement-of-the-wii-u/"><u>Discovering the Reasons for the Remarkable Achievement of the Wii U</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ensenanza-interactiva-sobre-el-cuerpo-humano-descubriendo-desde-la-piel-a-los-pulmones/"><u>Enseñanza Interactiva Sobre El Cuerpo Humano: Descubriendo Desde La Piel A Los Pulmones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-benefits-learn-german-now/"><u>Exploring Benefits: Learn German Now!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expotonguescape-dubai-2s020-crafting-future-communicators/"><u>ExpoTonguescape Dubai 2S020: Crafting Future Communicators</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exuberant-echoes-of-july-4th-joy/"><u>Exuberant Echoes of July 4Th Joy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/favored-foreign-languages-for-academic-study/"><u>Favored Foreign Languages for Academic Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundation-of-hope-dannys-colombia-support-initiative/"><u>Foundation of Hope: Danny's Colombia Support Initiative</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-fluent-learn-afrikaans-efficiently-on-mondly-heres-why/"><u>From Beginner to Fluent: Learn Afrikaans Efficiently on Mondly - Here’s Why</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-first-steps-to-fluent-speech-mastering-the-german-way/"><u>From First Steps to Fluent Speech: Mastering the German Way</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-film-lovers-ultimate-selection-of-stop-motion-works/"><u>In 2024, Film Lovers' Ultimate Selection of Stop-Motion Works</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/office-workhorse-recommendations-finding-the-ultimate-non-thinkpad-alternative-to-dell/"><u>Office Workhorse Recommendations: Finding the Ultimate Non-ThinkPad Alternative to Dell</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-visual-flow-mastery-with-simple-transitions/"><u>[New] Visual Flow Mastery with Simple Transitions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-10-best-instagram-tools-to-manage-post-and-increase-followers/"><u>2024 Approved 10 Best Instagram Tools to Manage Post and Increase Followers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mpeg-4movavi/"><u>將MPEG-4视频转换为无损音频文件：Movavi的简单解决方案</u></a></li>
+<li><a href="https://fox-links.techidaily.com/affordable-gopros-where-to-buy-with-best-price/"><u>Affordable GoPros Where to Buy with Best Price</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/common-downsides-of-switching-to-iphone-on-ios-18-shared-experiences-and-lessons-learned/"><u>Common Downsides of Switching to iPhone on iOS 18: Shared Experiences and Lessons Learned</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-communication-barriers-the-hardest-to-learn-languages/"><u>Conquering Communication Barriers: The Hardest to Learn Languages</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-rising-tide-of-infographics-for-social-insights/"><u>In 2024, The Rising Tide of Infographics for Social Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-journey-through-time-unveiled/"><u>Mondly's Journey Through Time Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-a-aprender-de-fauna-en-espanol/"><u>Nombre a Aprender De Fauna en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proverbs-and-phrases-that-define-the-german-spirit-top-25/"><u>Proverbs and Phrases that Define the German Spirit (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579693755-top-10-easiest-languages-to-learn/"><u>Top 10 Easiest Languages To Learn</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/unlock-the-secrets-of-movie-maker-for-windows-11-with-our-guide-for-2024/"><u>Unlock the Secrets of Movie Maker for Windows 11 with Our Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/want-to-understand-the-squid-game-in-korean-learn-the-languageback-buttonfilter-button/"><u>Want To Understand The Squid Game In Korean? Learn The LanguageBack ButtonFilter Button</u></a></li>
 </ul></div>
 

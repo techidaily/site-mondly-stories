@@ -1,7 +1,7 @@
 ---
 title: Honterus’s Path to Inspiring Others
-date: 2025-02-04T00:27:30.473Z
-updated: 2025-02-10T23:15:58.893Z
+date: 2025-02-27T18:31:35.513Z
+updated: 2025-02-28T18:20:49.355Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
  We at [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187) are beyond proud to be able to pave the way to innovation and help millions of people worldwide learn languages from the very heart of Romania, in idyllic Transylvania. Although miles away from important high technology and innovation centers such as Berlin, London or Silicon Valley, we find inspiration everywhere around us – in people, places, art or even history. For example, one of the local historical figures who inspires us to be better every day is [Johannes Honterus](https://en.wikipedia.org/wiki/Johannes%5FHonter) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The first humanist gymnasium in Southeast Europe
 
  Born in 1498, in Brașov, right on the street where our headquarters lies today, Johannes Honterus was a Renaissance humanist, Protestant reformer, theologian and author. Honterus, also known as Honter or Johann Hynter (Latinized as Johann Honterus or Ioannes Honterus), is best known for implementing the Lutheran reform in Transylvania and establishing the Evangelical Church of Augustan Confession in Romania.
@@ -29,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  Honterus also set up the first printing press in Brașov in 1539 and **funded “Schola Coronensis”, the first humanist gymnasium in Southeast Europe,** today known as the Johannes Honterus School. This is especially meaningful for us at Mondly as we believe that education can change the world for the better.
 
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Rudimenta Cosmographica, the first European-wide manual
 
@@ -42,17 +34,9 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The map of the world by Johannes Honterus
 
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Draw inspiration from the best
 
@@ -77,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -96,16 +76,22 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-tailoring-teammate-backgrounds-on-teams-chat/"><u>[Updated] In 2024, Tailoring Teammate Backgrounds on Teams Chat</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-stepwise-blueprint-converting-everyday-gifs-to-sticker-status-in-discord-and-other-chat-apps/"><u>2024 Approved Stepwise Blueprint Converting Everyday GIFs to Sticker Status in Discord & Other Chat Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhancing-language-skills-through-mondlys-practical-10-strategies/"><u>Enhancing Language Skills Through Mondly's Practical 10 Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-language-tools-for-international-engagement/"><u>Essential Language Tools for International Engagement</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-skills-in-handling-spanish-accented-characters-and-letters/"><u>Essential Skills in Handling Spanish Accented Characters & Letters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/featured-by-apple-mondly-is-app-of-the-day-in-157-countries/"><u>Featured by Apple: Mondly Is App of the Day in 157 Countries</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gearing-up-for-an-ai-colleague-in-communication/"><u>Gearing Up for an AI Colleague in Communication</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-honor-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Honor Contacts An Easy Method Explained.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-raspberry-pi/"><u>In-Depth Review of Raspberry Pi</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/meme-marchers-the-path-to-viral-twitcinema/"><u>Meme Marchers The Path to Viral TwitCinema</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/1723199750909-zero-downtrouble-with-windows-0x00000116-bsod-easy-fixes-inside/"><u>Zero Downtrouble with Windows 0X00000116 BSOD - Easy Fixes Inside</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-self-animated-wonders-cutting-edge-techniques-for-you/"><u>[New] 2024 Approved Self-Animated Wonders Cutting Edge Techniques for You</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oosted-audio-visual-experience-choose-av1-on-youtube/"><u>[New] Boosted Audio-Visual Experience Choose AV1 on YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-elevate-your-visual-storytelling-with-top-montage-mobile-aids/"><u>[New] In 2024, Elevate Your Visual Storytelling with Top Montage Mobile Aids</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-merging-melodies-and-memories-online/"><u>2024 Approved Merging Melodies and Memories Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dialogues-a-global-guide-to-saying-good-morning/"><u>Dawn Dialogues: A Global Guide to Saying 'Good Morning'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dia-a-dia-en-espanol-entender-la-secuencia-semanal/"><u>Dia a Dia, En Español: Entender La Secuencia Semanal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-earths-lengthiest-lexicon-term/"><u>Exploring Earth's Lengthiest Lexicon Term</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-honor-x9b-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-do-children-learn-foreign-languages-so-easily/"><u>How Do Children Learn Foreign Languages so Easily?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-vivo-y100-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Vivo Y100 Phone Hassle-Free</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-wholesome-wisdom-videographically-cooking-up-dishes/"><u>In 2024, Wholesome Wisdom Videographically Cooking Up Dishes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-travel-thrive-10-reasons-to-learn-a-foreign-language/"><u>Speak, Travel, Thrive: 10 Reasons to Learn a Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579798510-swift-bokmal-breakthroughs-daily-dose/"><u>Swift Bokmål Breakthroughs - Daily Dose</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/understanding-4k-video-codecs-a-detailed-overview/"><u>Understanding 4K Video Codecs: A Detailed Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-new-horizons-at-any-age-the-multilingual-advantage-in-your-40s-and-beyond/"><u>Unlock New Horizons at Any Age: The Multilingual Advantage in Your 40S and Beyond</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-enhanced-visual-smarts-in-iphone-16-apples-latest-feature-takes-a-cue-from-google-lens-insights-by-zdnet/"><u>Unveiling Enhanced Visual Smarts in iPhone 16: Apple's Latest Feature Takes a Cue From Google Lens - Insights by ZDNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/welcome-to-the-wonderful-world-of-african-languages/"><u>Welcome to the Wonderful World of African Languages</u></a></li>
 </ul></div>
 

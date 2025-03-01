@@ -1,7 +1,7 @@
 ---
 title: "Spirits and Carving: A Globe Tour of Halloween"
-date: 2025-02-06T18:07:14.401Z
-updated: 2025-02-10T23:12:32.773Z
+date: 2025-02-25T21:16:45.663Z
+updated: 2025-03-01T04:15:59.398Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
@@ -29,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
 ## Halloween-like Traditions Worldwide
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
 
@@ -54,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “The Hungry Ghost Festival” by Matthew Kang©
 
  In the Chinese culture, it is believed that during Ghost Month, the gates of hell open, and spirits who were not given a proper ritual send-off are free to wander about and look for food and entertainment. To help them finally find peace, relatives pray, offer food and drinks and burn [joss paper](https://www.nationsonline.org/oneworld/Chinese%5FCustoms/joss%5Fpaper.htm) houses, cars, servants and more, as it is believed that joss paper items have value in the afterlife.
@@ -67,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  _The Hungry Ghost Festival is not only celebrated in China but also in other parts of Southeast Asia, with each region having its unique customs._
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
@@ -83,10 +67,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
@@ -136,18 +116,21 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-navigating-the-best-online-pixel-ringtones-hubs/"><u>[New] In 2024, Navigating the Best Online Pixel Ringtones Hubs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-the-best-hashtags-for-youtube-gaming-videos/"><u>[New] The Best Hashtags for YouTube Gaming Videos</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-cinematic-masterpiece-dialogues/"><u>2024 Approved Cinematic Masterpiece Dialogues</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fix-windows-11-audio-issues-a-step-by-step-guide-to-restoring-volume-functionality/"><u>Fix Windows 11 Audio Issues: A Step-by-Step Guide to Restoring Volume Functionality</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-motorola-edge-40-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Motorola Edge 40 Pro without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-nokia-g42-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Nokia G42 5G?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-bridge-between-nations/"><u>Linguistic Bridge Between Nations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-leads-with-excellence-at-2021-gala/"><u>Mondly Leads with Excellence at 2021 Gala</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oracles-output-ancient-greek-influence-and-modern-context/"><u>Oracle’s Output: Ancient Greek Influence & Modern Context</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/streamlined-approach-for-customizing-snapchat-video-rate/"><u>Streamlined Approach for Customizing Snapchat Video Rate</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-nubia-red-magic-8s-proplus-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Nubia Red Magic 8S Pro+ Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unmasking-the-mysteries-of-squid-game-with-korean-lessons/"><u>Unmasking The Mysteries of Squid Game with Korean Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-countries-are-emphasized-in-us-education/"><u>What Countries Are Emphasized in U.S. Education?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-bring-back-the-faded-step-by-step-on-transforming-prints-to-pixels/"><u>[New] In 2024, Bring Back the Faded Step-by-Step on Transforming Prints to Pixels</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unraveling-untethered-art-top-public-domain-gems/"><u>[New] Unraveling Untethered Art Top Public Domain Gems</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-tips-for-effective-game-playback-on-microsoft-os-for-2024/"><u>[Updated] Tips for Effective Game Playback on Microsoft OS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580772115-adopt-the-ten-minute-method-to-learn-urdu-online/"><u>Adopt the Ten-Minute Method to Learn Urdu Online</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/auto-gpt-7-effective-utilization-strategies/"><u>Auto-GPT: 7 Effective Utilization Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compreender-expressoes-do-carinho-no-portugues/"><u>Compreender Expressões Do Carinho No Português</u></a></li>
+<li><a href="https://video-capture.techidaily.com/how-to-angle-videos-for-improved-viewership/"><u>How to Angle Videos for Improved Viewership</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-safely-create-backup-copies-of-your-dvds-with-winx-dvd-copy-software/"><u>How to Safely Create Backup Copies of Your DVDs with WinX DVD Copy Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-expedition-deciphering-uk-vs-us-and-aussie-tones/"><u>Language Expedition: Deciphering UK Vs. US & Aussie Tones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577356828-linguistic-leap-forward-our-special-95-off-language-program/"><u>Linguistic Leap Forward: Our Special 95% Off Language Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-easter-celebrations-unveiled/"><u>Multilingual Easter Celebrations Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/official-language-in-croatia/"><u>Official Language in Croatia</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcoming-graphic-hardware-shortage-overwatch-fixes/"><u>Overcoming Graphic Hardware Shortage - Overwatch Fixes</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-7-best-voice-changer-recorder-apps-for-2024/"><u>Top 7 Best Voice Changer Recorder Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-russian-math-essential-number-knowledge/"><u>Unlock Russian Math: Essential Number Knowledge</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unveiling-strategies-for-apple-to-outshine-big-tech-rivals-during-the-anticipated-wwdc-2024-event/"><u>Unveiling Strategies for Apple to Outshine Big Tech Rivals During the Anticipated WWDC 2024 Event</u></a></li>
 </ul></div>
 

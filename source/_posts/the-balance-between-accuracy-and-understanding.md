@@ -1,7 +1,7 @@
 ---
 title: The Balance Between Accuracy and Understanding
-date: 2025-02-07T00:15:25.540Z
-updated: 2025-02-10T23:16:51.923Z
+date: 2025-02-26T03:25:28.392Z
+updated: 2025-03-01T01:49:02.312Z
 tags:
   - speak
   - english
@@ -30,17 +30,9 @@ One of the best ways to learn a language is to practice both writing the languag
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
 
@@ -58,14 +50,6 @@ This might seem like a crazy concept to some, but learning a language should be 
 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Returning to Our Roots: Learning with the Mind of a Child**
 
 If you’re a native English speaker, you probably didn’t begin learning the language by studying grammar at the age of two. You learned by listening to the people around you speak. Since all children learn languages by focusing on the spoken word, shouldn’t adults do the same? Why are our schools placing such importance on perfect grammar?
@@ -77,10 +61,6 @@ If worrying about grammar has been holding you back in language learning, allow 
 Do you feel that grammar holds you back from learning a language? Share your story in a comment below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
 
@@ -107,24 +87,21 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-efficient-workflow-screen-recording-techniques-in-os-x-via-keyboard-shortcuts/"><u>[New] 2024 Approved Efficient Workflow Screen Recording Techniques in OS X via Keyboard Shortcuts</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-essential-steps-for-filming-using-logitech-webcam-for-2024/"><u>[New] Essential Steps for Filming Using Logitech Webcam for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-launching-a-channel-heres-what-you-need/"><u>[New] Launching a Channel? Here’s What You Need</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-professional-text-design-in-10-minutes-or-less-ae-style-for-2024/"><u>[New] Professional Text Design in 10 Minutes or Less (AE Style) for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-are-high-end-tvs-with-aurora-hdr-worth-it-analyzed/"><u>2024 Approved Are High-End TVs with Aurora HDR Worth It? Analyzed</u></a></li>
-<li><a href="https://article-files.techidaily.com/blueprint-for-blending-video-content-into-curricula-for-2024/"><u>Blueprint for Blending Video Content Into Curricula for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/encouraging-multilingualism-prioritizing-english/"><u>Encouraging Multilingualism: Prioritizing English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/endless-learning-opportunity-the-birthday-of-unlimited-fee-free-education/"><u>Endless Learning Opportunity: The Birthday of Unlimited, Fee-Free Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-creativity-and-expression-with-second-language-skills/"><u>Enhanced Creativity and Expression with Second Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enter-new-era-of-language-learning-with-mondlyar/"><u>Enter New Era of Language Learning with MondlyAR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-spelling-knowledge-the-most-frequently-misspelled-words/"><u>Essential Spelling Knowledge: The Most Frequently Misspelled Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-gathering-celebrating-1500-gratis-learning-sessions/"><u>Everyday Wisdom Gathering: Celebrating 1500 Gratis Learning Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-flavor-to-verse-chocolate-speeches-across-nations/"><u>From Flavor to Verse: Chocolate Speeches Across Nations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-stranger-to-friend-key-japanese-phrases/"><u>From Stranger to Friend: Key Japanese Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-fehlender-respekt-erkennen-und-bedingen-sagen/"><u>German: Fehlender Respekt Erkennen Und Bedingen Sagen</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-reducing-audio-dynamics-in-live-sessions/"><u>In 2024, Reducing Audio Dynamics in LIVE Sessions</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/resolving-hogwarts-legacy-wont-start-expert-troubleshooting-techniques/"><u>Resolving 'Hogwarts Legacy Won't Start' : Expert Troubleshooting Techniques</u></a></li>
-<li><a href="https://fox-that.techidaily.com/step-by-step-tutorial-restoring-lost-notes-from-your-ios-device/"><u>Step-by-Step Tutorial: Restoring Lost Notes From Your iOS Device</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/steps-for-overcoming-network-errors-in-the-latest-windows-os/"><u>Steps for Overcoming Network Errors in the Latest Windows OS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-syncing-images-pc-to-iphone-file-sharing/"><u>[New] 2024 Approved Syncing Images PC-to-iPhone File Sharing</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-how-to-optimize-your-cellphones-camera-settings-for-videography/"><u>[New] How to Optimize Your Cellphone's Camera Settings for Videography</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-comprehensive-skype-screencasting-with-obs/"><u>2024 Approved Comprehensive Skype Screencasting with OBS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commonest-focus-on-foreign-language-learning-us/"><u>Commonest Focus on Foreign Language Learning U.S.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-pinnacle-mondly-kids-recognized-by-google-play-2-cookie-monsters-favorite-treats/"><u>Educational Pinnacle: Mondly Kids Recognized by Google Play 2 Cookie Monster's Favorite Treats</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-norte-to-sueste-brazilians-vs-eurospeakers/"><u>From Norte to Sueste: Brazilians Vs. Eurospeakers</u></a></li>
+<li><a href="https://win-premium.techidaily.com/guida-facile-alla-copia-di-un-disco-gpt-su-hard-disk-ssd-ridotto/"><u>Guida Facile Alla Copia Di Un Disco GPT Su Hard Disk SSD Ridotto</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-trackpad-malfunctions-on-windows-tips-and-tricks-for-laptops/"><u>How to Resolve TrackPad Malfunctions on Windows: Tips & Tricks for Laptops</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-xiaomi-redmi-13c-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Xiaomi Redmi 13C to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sharpen-your-mind-enhance-language-skills-quickly/"><u>Sharpen Your Mind, Enhance Language Skills Quickly</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/streamlining-avi-to-gif-transitions-on-pcmac-via-filmora-pro/"><u>Streamlining AVI to GIF Transitions on PC/Mac via Filmora Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/take-charge-of-your-journey-to-japanese-mastery-at-no-cost/"><u>Take Charge of Your Journey to Japanese Mastery, At No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rhythmic-beat-of-africas-languages/"><u>The Rhythmic Beat of Africa's Languages</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-exploring-top-rated-podcast-hosting-solutions-for-2024/"><u>Updated Exploring Top-Rated Podcast Hosting Solutions for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/which-streaming-application-leads-the-race-wirecast-or-obs-for-2024/"><u>Which Streaming Application Leads the Race, Wirecast or OBS for 2024</u></a></li>
 </ul></div>
 

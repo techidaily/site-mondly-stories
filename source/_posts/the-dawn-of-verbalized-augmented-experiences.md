@@ -1,7 +1,7 @@
 ---
 title: The Dawn of Verbalized Augmented Experiences
-date: 2025-02-09T21:01:03.673Z
-updated: 2025-02-11T02:19:23.588Z
+date: 2025-02-23T02:08:26.643Z
+updated: 2025-02-28T17:26:55.959Z
 tags:
   - speak
   - english
@@ -26,19 +26,11 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
@@ -46,17 +38,9 @@ Here’s a video showcasing Mondly AR:
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
 
@@ -72,10 +56,6 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
 
@@ -119,18 +99,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-discovering-and-dominating-unique-segments-in-youtube/"><u>[New] In 2024, Discovering and Dominating Unique Segments in YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-elevate-your-twitch-stream-game-with-these-5-steps/"><u>[New] In 2024, Elevate Your Twitch Stream Game with These 5 Steps</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-unraveling-the-mystery-of-individual-tiktok-tags-for-2024/"><u>[New] Unraveling the Mystery of Individual TikTok Tags for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/download-and-convert-aiff-to-mp4-at-no-cost-using-the-official-movavi-tool/"><u>Download and Convert AIFF to MP4 at No Cost - Using the Official Movavi Tool!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/explore-the-world-of-gadgets-with-toms-hardware-experts/"><u>Explore the World of Gadgets with Tom's Hardware Experts</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-apple-iphone-8-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track WhatsApp Messages on Apple iPhone 8 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-12-pro-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Realme 12 Pro 5G Phone Without Password?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-russian-basic-numerical-skills/"><u>Mastering Russian: Basic Numerical Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/most-extended-term-exploration-initiative/"><u>Most Extended Term Exploration Initiative</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-eloquence-for-joyous-occasions/"><u>Multilingual Eloquence for Joyous Occasions</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolving-sound-devices-error-on-audacity-windows-11/"><u>Resolving Sound Devices Error on Audacity (Windows 11)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-croatian-with-confidence-unveil-these-top-7-advantages-now/"><u>Speak Croatian with Confidence: Unveil These Top 7 Advantages Now!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/warm-up-your-world-with-french-mastering-the-art-of-saying-bonjour/"><u>Warm Up Your World with French: Mastering the Art of Saying 'Bonjour'</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-elite-arena-showdown-best-of-the-royales/"><u>[New] 2024 Approved Elite Arena Showdown Best of the Royales</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-flashclip-quick-checkup-review-for-2024/"><u>[New] FlashClip Quick Checkup Review for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-tips-for-effective-vimeo-broadcasting-for-2024/"><u>[New] Tips for Effective Vimeo Broadcasting for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>5 Easy Ways to Change Location on YouTube TV On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-books-mondlys-ar-powered-linguistics-education/"><u>Beyond Books: Mondly’s AR-Powered Linguistics Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boundless-knowledge-journey-rejoicing-in-anniversary-of-1500-free-classes/"><u>Boundless Knowledge Journey: Rejoicing in Anniversary of 1500 Free Classes</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/building-fantasy-realms-with-language-models/"><u>Building Fantasy Realms with Language Models</u></a></li>
+<li><a href="https://solve-news.techidaily.com/convert-your-avi-files-to-mp3-at-no-cost-top-techniques-for-crystal-clear-audio/"><u>Convert Your AVI Files to MP3 at No Cost - Top Techniques for Crystal Clear Audio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-french-novels-best-list-for-beginning-readers/"><u>Dive Into French Novels: Best List for Beginning Readers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/first-timers-cameras-guide-best-of-24-for-2024/"><u>First-Timer's Cameras Guide - Best of '24 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-renaissance-the-21st-centurys-approach-to-language-mastery/"><u>Linguistic Renaissance: The 21St Century's Approach to Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-deutsch-with-hit-series-netflix/"><u>Mastering Deutsch with Hit Series - Netflix</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/os-melhores-11-conversores-de-filmes-mov-gratuitos-para-macs-e-pcs-solucoes-online/"><u>Os Melhores 11 Conversores De Filmes MOV Gratuitos Para Macs E PCs - Soluções Online</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/pc-compatibility-with-ps-vr-steps-for-seamless-integration/"><u>PC Compatibility with PS VR: Steps for Seamless Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-progress-in-latvian-with-ten-minute-online-lessons/"><u>Quick Progress in Latvian with Ten-Minute Online Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachweiterentwicklung-zahlreim-fur-die-ersten-100-deutsche/"><u>Sprachweiterentwicklung: Zählreim Für Die Ersten 100 Deutsche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-svenska-forsalar/"><u>Tänk Om Sverige: Svenska Försalar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-voices-of-the-continent-asias-buzzwords/"><u>The Voices of the Continent: Asia's Buzzwords</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-and-resolving-startech-driver-problems-for-windows-operating-systems-windows-1187/"><u>Troubleshooting and Resolving StarTech Driver Problems for Windows Operating Systems (Windows 11/8/7)</u></a></li>
 </ul></div>
 

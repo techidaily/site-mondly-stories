@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2025-02-08T16:07:29.325Z
-updated: 2025-02-10T20:48:26.801Z
+date: 2025-02-21T22:57:52.495Z
+updated: 2025-02-28T18:18:27.967Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -31,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
  Here are the numbers from 1 to 10 in Russian with their respective pronunciations so you can begin practicing right now:
 
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Russian numbers 1-10
 
@@ -64,10 +56,6 @@ If you did manage, good job! You must be a natural.
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Russian tens
 
 Here are some examples:
@@ -84,19 +72,11 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -143,15 +123,21 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitvid-mastery-your-go-to-resource-for-video-downloads/"><u>[New] 2024 Approved TwitVid Mastery Your Go-To Resource for Video Downloads</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-effortless-metaverse-creation-a-comprehensive-avatar-guide-for-2024/"><u>[Updated] Effortless Metaverse Creation A Comprehensive Avatar Guide for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-of-user-experience-mondly/"><u>A Decade of User Experience - Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubre-las-voces-animalistas-en-espanol/"><u>Descubre Las Voces Animalistas en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dream-in-a-foreign-tongue-romantic-french-narratives/"><u>Dream in a Foreign Tongue: Romantic French Narratives</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-affordability-and-efficiency-in-wearables-the-fitbit-versa-unveiled/"><u>Exploring Affordability & Efficiency in Wearables: The Fitbit Versa Unveiled</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-itel-s23-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Itel S23 Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579910213-journey-through-hindi-why-mondlys-online-study-triumphs/"><u>Journey Through Hindi: Why Mondly's Online Study Triumphs!</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/step-up-your-game-advanced-video-trimming-techniques-in-windows-11/"><u>Step Up Your Game Advanced Video Trimming Techniques in Windows 11</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/stepwise-integration-merging-hp-officejet-8720-with-pcs/"><u>Stepwise Integration: Merging HP Officejet 8720 with PCs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-advanced-techniques-for-crafting-dynamic-video-edits/"><u>[Updated] Advanced Techniques for Crafting Dynamic Video Edits</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-pro-gopro-filming-techniques-unveiled/"><u>[Updated] In 2024, Pro-Gopro Filming Techniques Unveiled</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-maiden-recording-appraisal-article/"><u>[Updated] Maiden Recording Appraisal Article</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/101plus-nifty-french-phrases-for-savvy-travelers-in-france/"><u>101+ Nifty French Phrases for Savvy Travelers in France</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-quick-drama-drafting-method/"><u>2024 Approved Quick Drama Drafting Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-jargon-uncovered-essential-phrases/"><u>Aussie Jargon Uncovered: Essential Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-swedes-alphabet-and-sounds-guide/"><u>Decoding the Swedes: Alphabet & Sounds Guide</u></a></li>
+<li><a href="https://win-forum.techidaily.com/easy-techniques-to-edit-eliminate-and-generate-windows-registry-keys/"><u>Easy Techniques to Edit, Eliminate & Generate Windows Registry Keys</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enlightenment-without-cost-marking-the-milestone-of-1500-free-sessions/"><u>Enlightenment Without Cost: Marking the Milestone of 1500 Free Sessions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722885543022-getting-your-windows-10-search-to-work-again/"><u>Getting Your Windows 10 Search to Work Again!</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/il-programma-piu-efficiente-per-il-ripristino-dei-file-su-disco-esterno-tutto-cio-di-cui-hai-bisogno-per-un-backup-automatico/"><u>Il Programma Più Efficiente per Il Ripristino Dei File Su Disco Esterno: Tutto Ciò Di Cui Hai Bisogno per Un Backup Automatico</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seniors-cognitive-renaissance-via-language-study/"><u>Seniors' Cognitive Renaissance via Language Study</u></a></li>
+<li><a href="https://win11.techidaily.com/swift-remedies-for-pcs-persistent-pink-flashes/"><u>Swift Remedies for PC's Persistent Pink Flashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-nations-of-joy-4th-of-july/"><u>United Nations of Joy: 4Th of July</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-verbal-skills-premium-communication-courses/"><u>Unveiling Verbal Skills: Premium Communication Courses</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/web-warriors-championing-screen-recording-tools-for-2024/"><u>Web Warriors Championing Screen Recording Tools for 2024</u></a></li>
 </ul></div>
 

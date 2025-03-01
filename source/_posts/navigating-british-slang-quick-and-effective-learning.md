@@ -1,7 +1,7 @@
 ---
 title: "Navigating British Slang: Quick & Effective Learning"
-date: 2025-02-08T20:20:56.843Z
-updated: 2025-02-10T16:10:27.786Z
+date: 2025-02-26T00:06:30.561Z
+updated: 2025-02-28T20:17:26.870Z
 tags:
   - speak
   - english
@@ -38,25 +38,13 @@ thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb4
 
  In this section, we will look at the phrases that will make you sound more British. Some of them might be those British phrases you always hear on TV shows or movies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Alright?_
 
  Although it may mean “ok” in North America, it’s the equivalent of “how are you?” in British English.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _I’m knackered_
 
 I’m tired.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _Cheeky_
 
@@ -70,10 +58,6 @@ This is a very British thing to say meaning very.
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
@@ -86,17 +70,9 @@ A common one and quite cliché – mate means friend.
 
 A person native to East London.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Blimey_
 
  Similar to the American_wow_ ,_blimey_ is used to describe something that takes you by surprise.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _Bloke_
 
@@ -105,10 +81,6 @@ A person native to East London.
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Funny British Sayings
 
@@ -232,10 +204,6 @@ A person native to East London.
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Can you be British but not English?
 
  People who are English are from the country of England. On the other hand, British people are people who live in Great Britain (Britain) and the UK. Consequently, being English implies a distinction from being Scottish, Welsh, or Northern Irish. In contrast, the term British encompasses anyone originating from Great Britain. This means that everyone residing in Scotland, Wales, or England is collectively identified as British.
@@ -261,10 +229,6 @@ A person native to East London.
 
 Get Mondly now and speak any language like you never dreamed you would ![Learn with Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8 "Learn with Mondly")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -280,22 +244,18 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-jumpstart-with-vrecorder-easy-installation-walkthrough/"><u>[New] In 2024, Jumpstart with VRecorder Easy Installation Walkthrough</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-captivating-content-with-a-click-phones-and-youtube-for-2024/"><u>[Updated] Captivating Content with a Click Phones & YouTube for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-magnify-memories-unaltered-resolution/"><u>[Updated] Magnify Memories Unaltered Resolution</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-uniting-fandoms-top-20-best-anime-songs/"><u>2024 Approved Uniting Fandoms Top 20 Best Anime Songs</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-win10s-elite-screen-recording-and-capture-software-selection/"><u>2024 Approved Win10's Elite Screen Recording & Capture Software Selection</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-from-iphone-14-plus-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons From iPhone 14 Plus? Find the Best Solution Here</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-leapfrogging-easiest-world-tongues-ranked/"><u>Linguistic Leapfrogging: Easiest World Tongues Ranked</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-joins-collective-with-pearson-edu-sphere/"><u>Mondly Joins Collective With Pearson Edu-Sphere</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-makes-multilingual-interaction-more-natural-on-quest/"><u>Mondly Makes Multilingual Interaction More Natural on Quest</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-teaching-techniques-unveiled/"><u>Mondly's Teaching Techniques Unveiled</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/reel-them-in-a-step-by-step-approach-to-livestreaming-on-youtube/"><u>Reel Them In A Step-by-Step Approach to Livestreaming on Youtube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-hi-the-ultimate-japenese-greeting-guide/"><u>Saying Hi: The Ultimate Japenese Greeting Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-basics-of-chinese-orthography/"><u>The Basics of Chinese Orthography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-pathway-for-digital-lithuanian-study/"><u>The Essential Pathway for Digital Lithuanian Study</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-seal-on-cyberspace-expeditions/"><u>Ultimate Seal on Cyberspace Expeditions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/winxdvd-ripper-winxvideoai/"><u>WinX當前最新版DVD Ripper 及WinxVideoAI-線上專業銷售支援</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-francophone-reading-journey-starts-with-these-novels/"><u>Your Francophone Reading Journey Starts with These Novels</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-zooming-ahead-best-practices-for-screenshares/"><u>[New] 2024 Approved Zooming Ahead Best Practices for Screenshares</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-plotting-your-path-in-the-realm-of-visual-arts/"><u>[New] In 2024, Plotting Your Path in the Realm of Visual Arts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-exploring-next-gen-vector-software-for-designers/"><u>[Updated] Exploring Next-Gen Vector Software for Designers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-harnessing-the-power-of-short-videos-for-maximum-income/"><u>[Updated] In 2024, Harnessing the Power of Short Videos for Maximum Income</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2017s-educational-star-mondly-kids-app-wins-google-praise/"><u>2017'S Educational Star: Mondly Kids App Wins Google Praise</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/5-top-free-image-enhancement-tools-for-ebay-listings-boost-your-product-photography/"><u>5 Top Free Image Enhancement Tools for eBay Listings: Boost Your Product Photography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-effective-online-methods-to-speak-like-a-native-koreanist/"><u>6 Effective Online Methods to Speak Like a Native Koreanist</u></a></li>
+<li><a href="https://win-popular.techidaily.com/guide-retrouver-un-fichier-disparu-dans-le-dossier-syswow64-de-windows-systemes-dexploitation/"><u>Guide: Retrouver Un Fichier Disparu Dans Le Dossier SysWOW64 De Windows - Systèmes D'Exploitation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtube-clips-captured-a-no-cost-screencasting-tutorial/"><u>In 2024, YouTube Clips, Captured A No-Cost Screencasting Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-jargon-the-most-useful-93-travel-terms-in-spanish/"><u>Journey Jargon: The Most Useful 93 Travel Terms in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-happy-birthday-worldwide/"><u>Saying Happy Birthday Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-potential-essential-reasons-to-learn-another-language/"><u>Unlock Potential: Essential Reasons to Learn Another Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-words-of-affection-your-valentine-guide/"><u>Worldwide Words of Affection: Your Valentine Guide</u></a></li>
 </ul></div>
 

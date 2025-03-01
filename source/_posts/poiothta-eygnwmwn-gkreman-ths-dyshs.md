@@ -1,7 +1,7 @@
 ---
 title: Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης
-date: 2025-02-07T19:12:08.165Z
-updated: 2025-02-10T22:31:55.902Z
+date: 2025-02-21T22:11:12.545Z
+updated: 2025-03-01T04:07:03.084Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The informal ‘thank you’ in Greek
 
  It’s true that ευχαριστώ (_efcharistó_ – ‘thanks’) is more than enough to ‘survive’ in [Greece](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . It’s not a Greek tragedy if your Greek vocabulary is not on point. Most Greek people speak English and won’t expect you to be fluent in Greek.
@@ -54,10 +50,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
  “Mýkonos, Greece” by Johnny Chen©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Examples of Greek thanks
 
  Now you know the best ways to say thank you in Greek. To put them into context, here are a few examples of when they may come in handy. Plus some additional Greek thanks that you could hear while in Greece.
@@ -69,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 * Είμαι ευγνώμων. _(Eímai evgnómon.)_ – I am grateful/thankful.
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
 
  Are you familiar with the German ‘_Bitte’_ or the Italian ‘_prego’_ that seem to mean everything from ‘please’ to ‘go ahead’ and ‘you’re welcome’?
@@ -80,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  Well, the Greek παρακαλώ_(parakaló)_ works the same. If you want to say ‘please’ in Greek, you say παρακαλώ_(parakaló)._ If you want to say ‘you’re welcome’, παρακαλώ_(parakaló)_ works just fine again. If only everything would be so easy when learning Greek!
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
 
@@ -93,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
 
@@ -128,20 +108,18 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-aerial-stability-made-simple-selecting-the-right-drone-gimbals/"><u>[New] Aerial Stability Made Simple Selecting the Right Drone Gimbals</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-assessing-negative-impacts-of-vr/"><u>[New] Assessing Negative Impacts of VR</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>[New] Hero5 Black in Action Essential Shooting Advice for Amazing Results</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-how-to-record-and-edit-video-using-the-adobe-connect/"><u>[New] In 2024, How to Record and Edit Video Using the Adobe Connect</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-jumpstart-earnings-a-novice-written-guide/"><u>[New] Jumpstart Earnings A Novice’ Written Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/op-10-female-youtubers-lastest/"><u>[New] Top 10 Female YouTubers [Lastest]</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-master-techniques-for-live-sport-broadcast-recording/"><u>2024 Approved Master Techniques for Live Sport Broadcast Recording</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/7-impactful-reasons-for-multilingual-journey/"><u>7 Impactful Reasons for Multilingual Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/americas-favorite-language-study-choices/"><u>America's Favorite Language Study Choices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/australian-slang-decoded-101-must-know-terms/"><u>Australian Slang Decoded: 101 Must-Know Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cracking-the-code-learning-german/"><u>Cracking the Code: Learning German</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/danny-from-colombia-leading-the-charitable-battle/"><u>Danny From Colombia Leading the Charitable Battle</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/die-10-wichtigsten-deutschen-abschiedsworter/"><u>Die 10 Wichtigsten Deutschen Abschiedswörter</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/emotional-euphony-in-francophone-films/"><u>Emotional Euphony in Francophone Films</u></a></li>
-<li><a href="https://fox-that.techidaily.com/iphone-app-download-issues-here-are-10-tips-for-a-smooth-solution/"><u>IPhone App Download Issues? Here Are 10 Tips for a Smooth Solution</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-battle-of-bros-hero5-black-and-virb-ultra-face-off/"><u>[New] Battle of Bros Hero5 Black & VIRB Ultra Face Off</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-masterful-nintendo-switch-fighting-game-collection-max-156/"><u>[New] Masterful Nintendo Switch Fighting Game Collection (Max 156)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-whats-new-with-windows-11/"><u>2024 Approved What's New with Windows 11?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-communication-skills-fastest-way-7-ways-through-mondlys-afrikaans-lessons/"><u>Elevate Your Communication Skills Fastest Way - 7 Ways Through Mondly's Afrikaans Lessons</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-content-with-these-top-5-youtube-marketing-methods/"><u>Elevate Your Content with These Top 5 YouTube Marketing Methods</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-has-no-cellular-data-here-are-10-fixes-to-restore-connectivity/"><u>Iphone Has No Cellular Data? Here Are 10 Fixes to Restore Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-dias-pasan-aprende-su-nombre-en-espanol/"><u>Los Días Pasan, Aprende Su Nombre en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581905222-norwegian-mastery-unlocked-in-brief-bursts/"><u>Norwegian Mastery Unlocked in Brief Bursts!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-timeless-tongue-everyday-usage-explored/"><u>Shakespeare's Timeless Tongue: Everyday Usage Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-the-swedish-phonetic-system/"><u>The Essence of the Swedish Phonetic System</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-guide-efficiently-organizing-and-sharing-your-dvd-collection-with-plex-nas-roku-and-dlna-servers/"><u>Ultimate Guide: Efficiently Organizing and Sharing Your DVD Collection with Plex, NAS, Roku & DLNA Servers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-multilingual-potential-with-google-endorsed-mondly/"><u>Unlock Multilingual Potential with Google-Endorsed Mondly</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-here-is-a-list-of-top-five-free-wmv-video-editing-tools-which-feature-almost-all-sorts-of-casual-video-editing-needs-for-2024/"><u>Updated Here Is a List of Top Five Free WMV Video Editing Tools, Which Feature Almost All Sorts of Casual Video Editing Needs for 2024</u></a></li>
 </ul></div>
 

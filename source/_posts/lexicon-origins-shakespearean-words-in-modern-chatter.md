@@ -1,7 +1,7 @@
 ---
 title: "Lexicon Origins: Shakespearean Words in Modern Chatter"
-date: 2025-02-07T21:37:35.567Z
-updated: 2025-02-11T03:51:43.643Z
+date: 2025-02-21T18:48:27.013Z
+updated: 2025-03-01T01:46:38.778Z
 tags:
   - speak
   - english
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
 * useful
 
  And these are just a few of the words Shakespeare introduced to the world during his life in the Elizabethan England. Whether you’re a fan of Shakespeare or simply enjoy learning about the evolution of the English language, this article is sure to captivate and entertain you. So stick around and read on to discover some more of the words Shakespeare invented.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How many words did Shakespeare invent?
 
@@ -85,10 +81,6 @@ _King John_ , Act III, Scene I
 
 _King Henry VI_ , Part III, Act III, Scene III
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
@@ -101,41 +93,21 @@ _Hamlet_ , Act I, Scene V
 
 _The Comedy of Errors_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **9\. Hint**
 
 _Othello_ , Act I, Scene III
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **10.** Laughable
 
 _The Merchant of Venice_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **13.** Mimic
 
@@ -156,10 +128,6 @@ _Love’s Labour’s Lost_ , Act IV, Scene III
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **18.** Outbreak
 
@@ -185,10 +153,6 @@ _A Midsummer Night’s Dream_ , Act III, Scene I
 
 _Othello_ , Act III, Scene III
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **24.** Unreal
 
 _Macbeth_ , Act III, Scene IV
@@ -203,10 +167,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Improve thy English with speed
 
@@ -239,24 +199,20 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-the-art-of-saving-twitter-jokes-gifs/"><u>[Updated] 2024 Approved Mastering the Art of Saving Twitter Jokes (GIFs)</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-active-recorder-assessment-industry-standards-met-for-2024/"><u>[Updated] Active Recorder Assessment Industry Standards Met for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-giggle-garage-gratuitous-tools-to-tickle-your-brain/"><u>[Updated] Giggle Garage Gratuitous Tools to Tickle Your Brain</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-key-to-earning-on-youtube-in-depth-ad-revenue-guidebook/"><u>[Updated] The Key to Earning on YouTube In-Depth Ad Revenue Guidebook</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/address-ineffective-fb-video-sharing-for-2024/"><u>Address Ineffective FB Video Sharing for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/elevate-search-precision-opt-for-perplexity-ai/"><u>Elevate Search Precision – Opt for Perplexity AI</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-social-connections-by-learning-a-second-language-in-fifties/"><u>Enhanced Social Connections by Learning a Second Language in Fifties</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-australian-sayings-for-newcomers/"><u>Essential Australian Sayings for Newcomers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-grammar-strategies-top-9-lessons-by-veteran-esl-educator/"><u>Essential Grammar Strategies: Top 9 Lessons by Veteran ESL Educator</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-spanish-number-one-lessons/"><u>Essential Spanish Number One Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-the-world-through-voice-with-oculus-quests-mondly-addition/"><u>Experience the World Through Voice with Oculus Quest's Mondly Addition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-the-tongues-of-yules-keeper/"><u>Explore the Tongues of Yule's Keeper</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressoes-amigaveis-em-portugues-compreender-perfeitamente/"><u>Expressões Amigáveis Em Português - Compreender Perfeitamente</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-speech-and-phonetics-for-germans/"><u>First Steps in Speech and Phonetics for Germans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundations-of-urdu-for-language-enthusiasts/"><u>Foundations of Urdu for Language Enthusiasts</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-a05s-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy A05s Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-realme-v30-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Realme V30 Devices | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-lens-leaders-battle-sj6-clashes-with-xiaomis-four-k-kickstarter/"><u>In 2024, Lens Leaders Battle SJ6 Clashes with Xiaomi’s Four-K Kickstarter</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-leading-webcam-models-enhancing-twitchs-viewer-experience/"><u>[New] 2024 Approved Leading Webcam Models Enhancing Twitch's Viewer Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-harnessing-the-full-spectrum-of-creativity-with-luts-in-video-editing/"><u>[New] In 2024, Harnessing the Full Spectrum of Creativity with LUTs in Video Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-free-film-and-image-repository-highlights/"><u>[Updated] Free Film and Image Repository Highlights</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-quicklooker-windows-11s-speedy-photo-viewer/"><u>[Updated] In 2024, QuickLooker Windows 11'S Speedy Photo Viewer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aging-wisely-the-power-of-multilingualism/"><u>Aging Wisely: The Power of Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-ais-contribution-to-educational-growth/"><u>Deciphering AI's Contribution to Educational Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-persian-origins-and-learning-lifelines/"><u>Decoding Persian Origins & Learning Lifelines</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-oppo-reno-9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-realme-11-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Realme 11 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-marauders-guide-to-sea-salt-talk/"><u>The Marauder's Guide to Sea-Salt Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-at-the-pole-santa-claus-explained/"><u>The Polyglot at the Pole: Santa Claus Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-words-that-shaped-a-warrior-culture/"><u>The Words That Shaped a Warrior Culture</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-vlc-for-mov-files-ultimate-guide-and-free-conversion-tools/"><u>Troubleshooting VLC for MOV Files: Ultimate Guide & Free Conversion Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-endless-learning-opportunities-for-free-with-mondly-pros-discount-offer/"><u>Unlock Endless Learning Opportunities for Free with Mondly Pro's Discount Offer!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-is-my-pc-continuously-crashing-troubleshooting-the-new-world-game/"><u>Why Is My PC Continuously Crashing? Troubleshooting the 'New World' Game</u></a></li>
 </ul></div>
 

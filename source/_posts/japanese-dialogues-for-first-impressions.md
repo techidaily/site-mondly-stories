@@ -1,7 +1,7 @@
 ---
 title: Japanese Dialogues for First Impressions
-date: 2025-02-10T04:19:17.522Z
-updated: 2025-02-10T23:55:00.288Z
+date: 2025-02-24T23:41:02.877Z
+updated: 2025-02-28T22:13:49.164Z
 tags:
   - speak
   - english
@@ -49,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -70,10 +66,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
 
@@ -93,10 +85,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
  “See you soon, human” by Alain Pham©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -122,15 +110,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Andre Benz©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
 
@@ -201,19 +181,22 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-video-success-on-facebook-platforms/"><u>[New] In 2024, Mastering Video Success on Facebook Platforms</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-safeguarding-snapshots-techniques-for-instagram-watermarks/"><u>[New] In 2024, Safeguarding Snapshots Techniques for Instagram Watermarks</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-balancing-dimensions-the-ultimate-guide-to-social-media-video-sizes-on-fb/"><u>[Updated] 2024 Approved Balancing Dimensions The Ultimate Guide to Social Media Video Sizes on FB</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-innovative-no-cost-solutions-for-modern-photography-enhancements/"><u>[Updated] 2024 Approved Innovative No-Cost Solutions for Modern Photography Enhancements</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-box-it-up-the-top-10-online-houses-for-customized-gift-boxes/"><u>2024 Approved Box It Up! The Top 10 Online Houses for Customized Gift Boxes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/analyzing-the-strengths-and-weaknesses-of-pidgin-chat-software/"><u>Analyzing the Strengths & Weaknesses of Pidgin Chat Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-linguistics-a-starting-point-on-sound-structures/"><u>German Linguistics: A Starting Point on Sound Structures</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-vivo-y28-5g-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Vivo Y28 5G</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-prevent-washed-out-iphone-hd-videos-with-effective-premiere-pro-techniques/"><u>In 2024, Prevent Washed-Out iPhone HD Videos with Effective Premiere Pro Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-spanish-numbers-for-beginners/"><u>Learning Spanish Numbers for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/living-linguistically-essential-steps-for-seamless-language-integration/"><u>Living Linguistically: Essential Steps for Seamless Language Integration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-language-tests-elite-certification-and-study-blueprint/"><u>Navigating Language Tests: Elite Certification & Study Blueprint</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-401-unauthorized-access-issues-efficiently/"><u>Resolving 401 Unauthorized Access Issues Efficiently</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/surprise-tuscanians-master-20-slang-words-and-phrases/"><u>Surprise Tuscanians: Master 20 Slang Words & Phrases</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-total-clarification-googles-podcast-application-simplified/"><u>[Updated] Total Clarification Google's Podcast Application Simplified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cocoa-conversations-learn-and-speak-chocolate-worldwide/"><u>Cocoa Conversations: Learn and Speak Chocolate Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-la-pantalla-de-botones-del-reloj/"><u>Comprender La Pantalla De Botones Del Reloj</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/concurrent-code-switching-course/"><u>Concurrent Code-Switching Course</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/does-grammar-hinder-language-learning/"><u>Does Grammar Hinder Language Learning?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-google-pixel-8-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Google Pixel 8 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-11-pro-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 11 Pro Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-tecno-phantom-v-flip-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Tecno Phantom V Flip For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-xiaomi-redmi-k70e-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Xiaomi Redmi K70E for Free? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-iphone-12-pro-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from iPhone 12 Pro iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-language-influence-15-leaders/"><u>International Language Influence – 15 Leaders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/save-big-with-mondly-no-more-fees/"><u>Save Big with Mondly, No More Fees</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-core-of-russian-numbers-foundation-skills/"><u>The Core of Russian Numbers - Foundation Skills</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-utilizing-apple-pay-enhance-your-shopping-experience-both-offline-and-online-insights/"><u>The Ultimate Guide to Utilizing Apple Pay: Enhance Your Shopping Experience Both Offline & Online - Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580749563-transform-your-communication-skills-with-mondlyvr-experience/"><u>Transform Your Communication Skills with MondlyVR Experience!</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshoot-windows-11-error-code-0x800f0922-a-comprehensive-guide-to-8-essential-solutions/"><u>Troubleshoot Windows 11 Error CODE 0X800f0922: A Comprehensive Guide to 8 Essential Solutions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/windowsm4vavimov/"><u>Windows上でM4VファイルをAVI/MOV形式に簡単な変換の説明</u></a></li>
 </ul></div>
 

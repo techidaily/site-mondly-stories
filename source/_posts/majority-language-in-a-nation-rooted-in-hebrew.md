@@ -1,7 +1,7 @@
 ---
 title: Majority Language in a Nation Rooted in Hebrew
-date: 2025-02-08T02:52:53.747Z
-updated: 2025-02-10T22:20:37.451Z
+date: 2025-02-22T02:06:00.369Z
+updated: 2025-03-01T03:34:36.217Z
 tags:
   - speak
   - english
@@ -20,19 +20,11 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
 
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Hebrew
 
@@ -41,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -56,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -67,10 +51,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  Apart from the fact that the government and businesses often provide information in Russian as well, there is also an Israeli television broadcast channel in Russian. Naturally, Russian immigrants and their children speak Hebrew, but the majority of them still use Russian with family and friends.
 
 So, as you can see, Russian is surprisingly widespread in Israel.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Other languages
 
@@ -116,24 +96,16 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/udience-alchemy-converting-shorts-to-sensations-for-2024/"><u>[New] Audience Alchemy Converting Shorts to Sensations for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-introduction-to-stories-essence-and-art-for-2024/"><u>[New] Introduction to Stories' Essence and Art for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-stepwise-route-to-discovering-elusive-youtube-footage/"><u>[Updated] 2024 Approved The Stepwise Route to Discovering Elusive YouTube Footage</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-buzzing-beats-essential-background-scores-for-viral-video-shorts-for-2024/"><u>[Updated] Buzzing Beats Essential Background Scores for Viral Video Shorts for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-gopros-deep-sea-capturing-unforgettable-underwater-scenes/"><u>[Updated] GoPro's Deep Sea Capturing Unforgettable Underwater Scenes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-save-the-scene-techniques-for-transcribing-live-videos/"><u>2024 Approved Save the Scene Techniques for Transcribing Live Videos</u></a></li>
-<li><a href="https://win-great.techidaily.com/choisir-entre-samsung-t7-et-sandisk-extreme-comparatif-complet-pour-les-navigateurs/"><u>Choisir Entre Samsung T7 Et SanDisk Extreme: Comparatif Complet Pour Les Navigateurs</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/explore-deep-with-these-immersive-vr-clips/"><u>Explore Deep with These Immersive VR Clips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honteruss-quest-for-excellence-and-inspiration/"><u>Honterus's Quest for Excellence & Inspiration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/incorporate-live-captions-seamlessly-into-stories-for-2024/"><u>Incorporate Live Captions Seamlessly Into Stories for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-bengali-online-in-just-10-minutes-a-day/"><u>Learn Bengali Online in Just 10 Minutes a Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/majority-language-among-israeli-population/"><u>Majority Language Among Israeli Population?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-lithuanian-language-via-internet-methods/"><u>Mastering Lithuanian Language via Internet Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprache-erweitern/"><u>Tage Der Woche: Deutsche Sprache Erweitern</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-legacy-of-10-ancient-human-communications/"><u>The Legacy of 10 Ancient Human Communications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-middle-ground-champion-a-deep-dive-into-the-capabilities-of-the-dell-inspiron-3671-desktop/"><u>The Middle Ground Champion: A Deep Dive Into the Capabilities of the Dell Inspiron ^ 3671 Desktop</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-newcomers-guide-to-youtube-channel-setup-and-money-making-tips/"><u>The Newcomer’s Guide to YouTube Channel Setup & Money-Making Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukrainian-vs-russian-slavic-sibling-languages/"><u>Ukrainian vs Russian: Slavic Sibling Languages?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-your-brain-power-with-language-learning-after-50/"><u>Unleash Your Brain Power with Language Learning After 50</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-mastering-time-lapse-photography-on-samsung-phones/"><u>[New] 2024 Approved Mastering Time-Lapse Photography on Samsung Phones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-essential-guide-to-youtube-earnings-on-any-device/"><u>[New] The Essential Guide to YouTube Earnings on Any Device</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-enhancing-visuals-the-role-of-a-tripod-in-video-content/"><u>[Updated] In 2024, Enhancing Visuals The Role of a Tripod in Video Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-integrating-youtube-effective-strategies-for-modern-teachers/"><u>[Updated] In 2024, Integrating YouTube Effective Strategies for Modern Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-ukranian-learning-in-brief-sessions-104-chars/"><u>Accelerated Ukranian Learning in Brief Sessions (104 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-ed-tech-showcase-hails-mondly-at-10-spotlight/"><u>Apple's Global Ed-Tech Showcase Hails Mondly at #10 Spotlight</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-your-apple-iphone-11-pro-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From your Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-soul-of-indonesia-through-its-salutations/"><u>Discover the Soul of Indonesia Through Its Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-validates-mondly-your-assured-path-to-multilingual-excellence/"><u>Google Validates: Mondly, Your Assured Path to Multilingual Excellence</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sketching-success-a-guide-to-industrys-best-10-vector-apps-for-2024/"><u>Sketching Success A Guide to Industry's Best 10 Vector Apps for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-tutorial-update-your-scansnap-printers-with-new-windows-drivers-easily/"><u>Step-by-Step Tutorial: Update Your ScanSnap Printers with New Windows Drivers Easily</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Navigating Non-Verbal Nuances: Italian Gestures"
-date: 2025-02-07T19:16:19.024Z
-updated: 2025-02-10T21:57:44.051Z
+date: 2025-02-23T04:01:00.899Z
+updated: 2025-02-28T22:05:11.188Z
 tags:
   - speak
   - english
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
 ![are you afraid italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/are-you-afraid-italian-gesture-960x833.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 12")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The ‘Are you afraid?’ gesture
 
 **When to do it:** when you challenge someone to do something dangerous or when someone is afraid to do something and you want to tease them.
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 **What to say:** _Paura, eh?_ (“You are scared, aren’t you?”);_Hai paura?/Hai strizza?_ (“Are you afraid?”)
 
 **Origin:** funnily enough, the most common theory could be considered inappropriate and I shall not disclose it here. Google is a big place, though. I’m sure you’ll manage 🤭.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9\. The “stealing” gesture
 
@@ -61,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 **What to say:** actually nothing. You don’t want to get caught! This is probably the only Italian hand gesture that doesn’t need to be accompanied by an [expression](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 **Origin:** this gesture symbolizes something ‘magically’ disappearing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. The “I can’t stand you” gesture
 
@@ -88,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
 ![prayer clasp](https://edge.mondly.com/blog/wp-content/uploads/2022/01/prayer-clasp-960x729.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 15")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The ‘prayer clasp’
 
 **What to say:** _Ti prego!_ (“Oh, please!”),_Ma dai!_ (“Come on!”),_Ma fammi il piacere!_ (“Be serious!”)
@@ -104,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
 ![i don't know italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/i-dont-know-italian-gesture-960x785.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 16")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The ‘I don’t know’ gesture
 
 **When to do it:** when you want to say that whatever happened is not your fault, it’s not up to you, or simply you know nothing about it.
@@ -115,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 **What to say:** _Io non c’entro (niente), boh!_ (“I got nothing to do with it!”),_Io non ne so niente!_ (“I know nothing!”),_Non lo so_ (“I know nothing”),_E che ne so io?_ (“what do I know?”)
 
 **Origin:** showing the palms of both hands symbolizes a person who has nothing to hide.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. The outstretched arm
 
@@ -144,10 +120,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![chin flick](https://edge.mondly.com/blog/wp-content/uploads/2022/01/chin-flick-960x942.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 18")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The ‘chin flick’
 
 **When to do it:** when you want to show that you don’t care about something that has recently been done or stated. This gesture shows indifference towards an issue that is otherwise relevant.
@@ -166,10 +138,6 @@ This is a pretty common gesture among angry drivers and football players.
 **How to do it:** extend your index and little finger to look like horns.
 
 ![italian horns sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/italian-horns-sign-960x840.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 19")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The ‘horns’
 
@@ -254,18 +222,18 @@ The rest is history.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-blueprint-for-thriving-in-virtual-events-stream-success-tips/"><u>[New] 2024 Approved Blueprint for Thriving In Virtual Events Stream Success Tips</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-essential-list-of-macs-top-snipping-apps/"><u>[New] In 2024, The Essential List of Mac's Top Snipping Apps</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-photoshop-wizardry-for-bending-photos/"><u>[New] Photoshop Wizardry for Bending Photos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-photographers-toolkit-top-text-editors-for-images/"><u>[Updated] 2024 Approved The Photographer's Toolkit Top Text Editors for Images</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-top-20-tales-on-yt-where-to-find-the-best-storytelling/"><u>[Updated] In 2024, Top 20 Tales on YT Where to Find the Best Storytelling</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1725289672677-mpc-be/"><u>「日本版のMPC-BEが必要な場合、ここから無料で安全にダウンロード＆インストール方法ガイド」</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-a24-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-ukrainian-quickly-one-day-at-a-time-74-chars-note-adjusted-for-brevity/"><u>Explore Ukrainian Quickly, One Day at a Time (74 Chars) - Note: Adjusted for Brevity.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expo-polyglotia-2020-paving-the-way-for-new-speakers/"><u>Expo Polyglotia 2020: Paving the Way for New Speakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expotonguequest-discovering-the-future-of-language/"><u>ExpoTongueQuest: Discovering the Future of Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-best-to-extraordinary-mondlys-journey-in-german-linguistics/"><u>From Best to Extraordinary: Mondly’s Journey in German Linguistics</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/moto-z2-masterclass-smartphone-smarts-explored/"><u>Moto Z2 Masterclass Smartphone Smarts Explored</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-best-practices-for-reading-youtube-comments-for-2024/"><u>[Updated] Best Practices for Reading YouTube Comments for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-interoperable-iptv-networking-for-2024/"><u>[Updated] Interoperable IPTV Networking for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-the-secrets-of-building-budget-friendly-youtube-ads/"><u>[Updated] Unlock the Secrets of Building Budget-Friendly YouTube Ads</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-unlock-icloud-account-without-password-from-iphone-8-by-drfone-ios/"><u>3 Effective Ways to Unlock iCloud Account Without Password From iPhone 8</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-keys-to-enhancing-your-expressiveness-in-speech/"><u>9 Keys to Enhancing Your Expressiveness in Speech</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/convert-ppt-to-motion-picture-for-2024/"><u>Convert PPT to Motion Picture for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-in-world-english-via-pearson-platforms/"><u>Engage in World English via Pearson Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-spanish-cognates-and-false-cognates-over-50-of-the-most-common-words-and-phrases/"><u>English-Spanish Cognates And False Cognates: Over 50 Of The Most Common Words And Phrases</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-12-mini-to-android-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 12 mini To Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/live-streaming-made-simple-google-meet-to-youtube-guide-for-2024/"><u>Live Streaming Made Simple Google Meet to YouTube Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-croatian-conversations-the-most-important-phrases-for-travelers/"><u>Mastering Croatian Conversations: The Most Important Phrases for Travelers</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/quick-techniques-for-retrieving-erased-information-on-your-lexar-usb-drives/"><u>Quick Techniques for Retrieving Erased Information on Your Lexar USB Drives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickbangla-lessons-learn-with-just-10-minsday/"><u>QuickBangla Lessons: Learn with Just 10 Mins/Day</u></a></li>
 </ul></div>
 

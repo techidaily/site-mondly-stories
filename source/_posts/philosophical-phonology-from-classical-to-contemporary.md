@@ -1,7 +1,7 @@
 ---
 title: "Philosophical Phonology: From Classical to Contemporary"
-date: 2025-02-07T21:58:14.910Z
-updated: 2025-02-10T16:53:40.131Z
+date: 2025-02-25T16:51:57.486Z
+updated: 2025-03-01T01:42:54.494Z
 tags:
   - speak
   - english
@@ -72,10 +72,6 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -106,10 +102,6 @@ Other literary works of art representative of this period include:
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Ancient Greek Language Influence On Modern Languages 7")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Learn the language of the Greek gods
 
  If Zeus needed to improve his Modern Greek, he’d probably choose Mondly. Why not you?
@@ -134,19 +126,11 @@ Other literary works of art representative of this period include:
 
 ![ancient Greek vs modern Greek](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greek-vs-modern-greek.jpg "Ancient Greek Language Influence On Modern Languages 8")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ancient Greek Language Influence on Modern Languages
 
  Now that you have an overview of the intellectual and artistic heritage we received from ancient Greece, it’s time to take an even closer look at languages. Because yes, the Ancient Greek language has carved its imprints not just in the annals of history but in the very syntax and semantics of modern languages. **English, Spanish, and French are probably the most important bearers of Greek influences.**
 
  Whenever you say a word like ‘psychology’, ‘theater’, or ‘chronology’, you pay tribute to the ancient Greek language. Still, the linguistic legacy is not limited to vocabulary but extends to idiomatic expressions, grammatical structures, and even rhetorical styles. Keep in mind the fact that this influence happened despite the geographical distance between ancient Greece and the English-speaking world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Enriching the modern lexicon
 
@@ -190,10 +174,6 @@ Other literary works of art representative of this period include:
 
  As we already discussed, ancient Greece and its fascinating mythology have been very influential in Western culture. And if you need more proof to be sure of it, stick around, and let’s look at some**iconic expressions that originated from Greek myths.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Achilles’ heel
 
 _Describes a weakness in spite of overall great strength or resilience._
@@ -206,10 +186,6 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  The myth of Pandora’s box originates from the story where Prometheus steals fire from the gods to give to mankind. As a punishment for humanity, the gods create Pandora, the first woman, and give her a box with strict instructions not to open it. Overcome by curiosity, Pandora opens the box, releasing all the world’s troubles. Only Hope remains trapped inside.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Herculean task
 
 **Refers to a task that requires extremely great strength or effort.**
@@ -218,19 +194,11 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. The Midas Touch
 
 _Refers to a person who has good fortune._
 
  The phrase originates from the Greek myth of King Midas of Phrygia, who was granted a wish by the god Dionysus. Midas wished that everything he touched would turn to gold. Unfortunately, this blessing became a curse as his food, water, wine, and even his beloved daughter Zoe turned to gold upon his touch, illustrating the unintended consequences of his ill-considered desire for wealth.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. The Apple of Discord
 
@@ -259,10 +227,6 @@ _Refers to a person who has good fortune._
 ### Is ancient Greek still spoken today?
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What are the main influences of ancient Greek on the English language?
 
@@ -306,18 +270,18 @@ _Refers to a person who has good fortune._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-capturing-android-sounds-without-root-access-guide/"><u>[New] In 2024, Capturing Android Sounds Without Root Access [Guide]</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-leading-brands-car-compatible-viewing-devices/"><u>[New] In 2024, Leading Brands' Car-Compatible Viewing Devices</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-9-best-watermark-apps-for-iphone-how-to-watermark-photos-on-iphone/"><u>[Updated] 2024 Approved 9 Best Watermark Apps for iPhone - How to Watermark Photos on iPhone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-building-bridges-encouraging-dialogue-in-the-youtube-community/"><u>[Updated] Building Bridges Encouraging Dialogue in the YouTube Community</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-best-10-free-video-translators-to-mitigate-translation-risks/"><u>2024 Approved Best 10 Free Video Translators to Mitigate Translation Risks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-privacy-policy-insights/"><u>Enhanced Privacy Policy Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enigmatic-expressions-delving-into-the-language-of-seduction/"><u>Enigmatic Expressions: Delving Into the Language of Seduction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-into-chinese-glyphs/"><u>First Steps Into Chinese Glyphs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/free-to-flourish-mondlys-linguistic-pathway-for-aspiring-ukrainians/"><u>Free to Flourish: Mondly’s Linguistic Pathway for Aspiring Ukrainians</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/from-digital-inspiration-to-print-perfection-using-chatgpt-for-poetry-book-authorship/"><u>From Digital Inspiration to Print Perfection: Using ChatGPT for Poetry Book Authorship</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/improve-your-macos-performance-by-flushing-the-dns-cache/"><u>Improve Your macOS Performance by Flushing the DNS Cache</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-facebooks-reels-in-the-social-media-race/"><u>Investigating Facebook’s Reels in the Social Media Race</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/navigating-noise-free-networks-secrets-for-silencing-disruptions-on-gomeet/"><u>Navigating Noise-Free Networks Secrets for Silencing Disruptions on GoMeet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-multilingual-journey-through-springtime-festivities/"><u>A Multilingual Journey Through Springtime Festivities</u></a></li>
+<li><a href="https://some-tips.techidaily.com/alibabas-strategic-transition-ceo-shifts-attention-to-expanding-cloud-services-leadership-roles-evolve/"><u>Alibaba's Strategic Transition: CEO Shifts Attention to Expanding Cloud Services, Leadership Roles Evolve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contrasting-two-romance-cousins-spanish-and-portuguese/"><u>Contrasting Two Romance Cousins: Spanish & Portuguese</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/essential-guide-to-understanding-the-impact-of-graphical-interfaces-on-dextronic-systems-usage-and-popularity/"><u>Essential Guide to Understanding the Impact of Graphical Interfaces on Dextronic Systems Usage and Popularity</u></a></li>
+<li><a href="https://driver-download.techidaily.com/essential-guide-getting-broadcoms-official-bluetooth-drivers-for-your-windows-system-1187/"><u>Essential Guide: Getting Broadcom's Official Bluetooth Drivers for Your Windows System (11/8/7)</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-analysis-on-pcs-laptops-and-devices-by-toms-technology-hub/"><u>Expert Analysis on PCs, Laptops & Devices by Tom's Technology Hub</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-block-someone-on-instagram-for-2024/"><u>How to Block Someone on Instagram for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-a-failed-ssltls-handshake-error-in-firefox-browser/"><u>How to Fix a Failed SSL/TLS Handshake Error in Firefox Browser</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/key-20-free-pubg-thumbnail-collections-for-2024/"><u>Key 20 Free PUBG Thumbnail Collections for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensual-semantics-essential-french-movies/"><u>Sensual Semantics: Essential French Movies</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solutions-for-resolving-missing-jvmdll-error-on-your-computer/"><u>Solutions for Resolving 'Missing jvm.dll' Error on Your Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-your-french-reading-journey-with-these-20-novels/"><u>Start Your French Reading Journey with These 20 Novels</u></a></li>
 </ul></div>
 

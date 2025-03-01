@@ -1,7 +1,7 @@
 ---
 title: Impact of Grammar on Linguistic Acquisition
-date: 2025-02-04T18:44:53.753Z
-updated: 2025-02-11T04:17:39.939Z
+date: 2025-02-27T01:24:14.721Z
+updated: 2025-03-01T00:05:16.871Z
 tags:
   - speak
   - english
@@ -24,10 +24,6 @@ Chances are that you probably took language classes at some point in your educat
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Language Learning: What Holds People Back?**
 
 One of the best ways to learn a language is to practice both writing the language and speaking it in a conversational manner. This is where many people panic and lose confidence in everything they have learned. If you’re new at a language, chances are that you haven’t even begun to grasp all the important grammar rules. This can lead to insecurity about sounding stupid when you write or speak the language, and this fear might hold you back from practicing.
@@ -44,27 +40,15 @@ Grammar rules are generally about perfecting the written language. This isn’t 
 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **3\. A Lack of Conversational Aspects**
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **4\. A Major Lack of Fun**
 
 This might seem like a crazy concept to some, but learning a language should be an enjoyable experience! Too much focus on perfecting grammar can suck all the joy out of learning. Instead, students should make language learning about having pleasant conversations and social interactions. The [new breed of language apps](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-717&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-717%26mt%3D8) made the process fun and even [VR apps that help you learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have made their way to the market.
 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
 
@@ -77,10 +61,6 @@ If worrying about grammar has been holding you back in language learning, allow 
 Do you feel that grammar holds you back from learning a language? Share your story in a comment below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
 
@@ -107,19 +87,17 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/inding-your-voice-on-youtube-a-guide-to-selective-audiences-for-2024/"><u>[New] Finding Your Voice on YouTube A Guide to Selective Audiences for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-unbox-the-ultimate-experience-master-windows-pc-screen-capturing-and-editing-for-2024/"><u>[New] Unbox the Ultimate Experience Master Windows PC Screen Capturing and Editing for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/beyond-the-big-names-discover-an-exceptional-video-doorbell-on-sale-for-20-off-zdnet-insights/"><u>Beyond the Big Names: Discover an Exceptional Video Doorbell on Sale for 20% Off | ZDNET Insights</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/edit-like-a-pro-comprehensive-tips-for-modifying-excel-worksheets-in-windows-environments-software-guru/"><u>Edit Like a Pro: Comprehensive Tips for Modifying Excel Worksheets in Windows Environments - Software Guru</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/eliminate-audio-lags-in-bluetooth-connections-with-quick-and-easy-techniques/"><u>Eliminate Audio Lags in Bluetooth Connections with Quick & Easy Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-weekdays-effektives-lernen/"><u>German Weekdays: Effektives Lernen</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/hitch-free-methods-igtv-and-story-sharing-for-2024/"><u>Hitch-Free Methods IGTV and Story Sharing for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-sony-xperia-10-v-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Sony Xperia 10 V Location by Number | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-starry-eyed-for-apples-app/"><u>International Starry Eyed for Apple's App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-etiquette-made-simple-essential-greeting-phrases/"><u>Italian Etiquette Made Simple: Essential Greeting Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/meet-your-ai-companion-revolutionizing-chat/"><u>Meet Your AI Companion: Revolutionizing Chat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/neues-leben-in-deutschen-zahlen-eine-einfuhrung-ab-1-100/"><u>Neues Leben in Deutschen Zahlen: Eine Einführung Ab 1-100</u></a></li>
-<li><a href="https://article-files.techidaily.com/optimal-offerings-best-devices-for-hd-video-processing/"><u>Optimal Offerings Best Devices for HD Video Processing</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-10-best-meme-makers-online-free-to-use/"><u>Updated In 2024, 10 Best Meme Makers Online (Free to Use)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-seamless-media-conversion-from-avis-to-striking-gif-images-via-filmora-software-windowsmacos/"><u>2024 Approved Seamless Media Conversion From AVIs to Striking GIF Images via Filmora Software (Windows/macOS)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-hit-in-24-hours/"><u>Apple's Global Hit in 24 Hours</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-hp-officejet-5740-driver-instantly/"><u>Download & Install HP OfficeJet #5740 Driver Instantly</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-broadcast-your-current-location-on-fb-messenger/"><u>How to Broadcast Your Current Location on FB Messenger</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-crafting-compelling-visual-stories-with-ps-distortion-tools/"><u>In 2024, Crafting Compelling Visual Stories with PS Distortion Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/lg-27uhd68-screen-a-detailed-freesync-analysis-for-2024/"><u>LG 27UHD68 Screen A Detailed FreeSync Analysis for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfecting-pronunciation-and-typography-of-spanish-accents/"><u>Perfecting Pronunciation and Typography of Spanish Accents</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/pioneers-of-processors-a-journey-through-toms-hardware-world/"><u>Pioneers of Processors: A Journey Through Tom's Hardware World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tick-tock-learn-slovak-fast-10-minute-daily-sessions/"><u>Tick Tock! Learn Slovak Fast: 10-Minute Daily Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turko-korean-linguistic-bridge-examination/"><u>Turko-Korean Linguistic Bridge Examination</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-seven-practical-ways-chatgpt-enhances-our-lives/"><u>Unveiling Seven Practical Ways ChatGPT Enhances Our Lives</u></a></li>
 </ul></div>
 

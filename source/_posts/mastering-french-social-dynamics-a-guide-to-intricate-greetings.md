@@ -1,7 +1,7 @@
 ---
 title: "Mastering French Social Dynamics: A Guide to Intricate Greetings"
-date: 2025-02-04T18:33:05.662Z
-updated: 2025-02-11T02:15:02.639Z
+date: 2025-02-24T18:51:27.856Z
+updated: 2025-02-28T17:49:49.755Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/25f2a05c8be60260f4d2e250cf565b20fcb8e042f
 
 _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to see you love the French language as much as I do! In some of the previous lessons, we’ve talked about [French phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [best way to learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but for today’s lesson it’s time to go back to the basics and learn how to say “hello” in French. Of course, we all know and love the classic_Bonjour!_ But what are other French greetings we could use to diversify our French conversations?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The most common way to say “hello” in French:_Bonjour!_
 
  Literally meaning “good day”,_Bonjour_ is the most commonly used French greeting. Whether you go to a restaurant, meet someone randomly on the street or enter a_boulangerie_ (pastry shop), the French people you meet will probably greet you using Bonjour (if it’s not dark outside). If it’s getting dark, then you should consider switching to “good evening” in French:_Bonsoir._
@@ -35,10 +31,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Just as commonly used, but a bit more informal,_Salut_ is what we could call_Bonjour_ ’s cool kid.
 
  Meaning “hi”, “hello” or sometimes even “bye”,_Salut_ is the informal French greeting you can use with family and friends but not with your boss or teacher.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. “Good morning” in French –_Bon matin!_
 
@@ -64,10 +56,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  “French fashion” by Charles 🇵🇭©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Hello? –_Allô?_
 
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
@@ -86,10 +74,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. What’s up? –_Ça va?_
 
  The English translation of_Ça va?_ , the little and cooler brother of_Comment ça va?_ , is “how’s it going” or literally “does it go?” and it can be used exactly the same like in the previous examples.
@@ -100,10 +84,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 11\. The cute Bonjour:_Coucou!_
 
 _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It literally means “cuckoo” and it is used the same way we use “hey!” in English.
@@ -111,10 +91,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
  Although extremely cute, you shouln’t use_Coucou_ in formal contexts. It would be a bit weird to greet your boss using_Coucou_ , wouldn’t it?
 
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
@@ -156,14 +132,24 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-peer-reviewed-evaluation-of-action-screening-tech/"><u>[Updated] 2024 Approved Peer-Reviewed Evaluation of Action Screening Tech</u></a></li>
-<li><a href="https://win-able.techidaily.com/banish-cod-black-ops-cold-war-error-code-80070057-for-smooth-gaming/"><u>Banish Cod: Black Ops Cold War Error Code 80070057 for Smooth Gaming</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discovering-duckduckgo-understanding-its-features-and-safety/"><u>Discovering DuckDuckGo: Understanding Its Features and Safety</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-nokia-130-music-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Nokia 130 Music to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/inside-look-at-google-nest-hellos-innovations-advanced-facial-identification-tech-meets-package-detection-features/"><u>Inside Look at Google Nest Hello's Innovations: Advanced Facial Identification Tech Meets Package Detection Features</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-polish-comprehension-tactics/"><u>Rapid Polish Comprehension Tactics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-up-mondly-provides-free-learning-opportunities/"><u>Speak Up! Mondly Provides Free Learning Opportunities</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-solutions-for-preventing-starfield-from-crashing-on-windowsmac/"><u>Step-by-Step Solutions for Preventing Starfield From Crashing on Windows/Mac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-choosing-the-best-drone-camera-spotlight-on-the-dominating-dji-mavic-nova-pro-model-for-professionals/"><u>The Ultimate Guide to Choosing the Best Drone Camera: Spotlight on the Dominating DJI Mavic Nova Pro Model for Professionals</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-how-to-allocate-more-ram-to-minecraft-3-methods/"><u>[New] 2024 Approved How to Allocate More Ram to Minecraft 3 Methods</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-expert-techniques-for-superior-quality-in-zoom-meetings/"><u>[New] Expert Techniques for Superior Quality in Zoom Meetings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-transforming-youtube-footage-the-essentials-of-wm-maker-use/"><u>[New] In 2024, Transforming YouTube Footage The Essentials of WM Maker Use</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-efficiently-edit-your-youtube-videos-using-sony-vegas/"><u>[Updated] Efficiently Edit Your YouTube Videos Using Sony Vegas</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-unlocking-the-potential-of-live-broadcasting-on-discord-for-2024/"><u>[Updated] Unlocking the Potential of Live Broadcasting on Discord for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-french-phonetics-a-beginners-approach/"><u>Decoding French Phonetics: A Beginner's Approach</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-solutions-for-hyperx-cloud-alpha-microphone-malfunctions/"><u>Effective Solutions for HyperX Cloud Alpha Microphone Malfunctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identifying-the-israeli-vernacular/"><u>Identifying the Israeli Vernacular?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-into-arabic-the-newbies-companion/"><u>Journey Into Arabic: The Newbie's Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revealing-the-methodology-of-mondly/"><u>Revealing the Methodology of Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speeding-up-ukrainian-mastery-quick-daily-routine-98-chars/"><u>Speeding Up Ukrainian Mastery: Quick Daily Routine (98 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-with-basic-sound-structures-in-german/"><u>Starting with Basic Sound Structures in German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-language-acquisition-through-scientifically-backed-melodies/"><u>The Art of Language Acquisition Through Scientifically Backed Melodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-global-pearson-linguistic-network/"><u>The Global Pearson Linguistic Network</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/top-pick-how-to-optimize-video-quality-with-superior-bitrate-adjustment-tools/"><u>Top Pick: How to Optimize Video Quality with Superior Bitrate Adjustment Tools</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-solving-your-sluggish-network-issues/"><u>Ultimate Guide: Solving Your Sluggish Network Issues</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unearth-unbeatable-value-metas-october-512gb-quest-3-offers-outshine-competitors-for-prime-day-shoppers-insights-by-zdnet/"><u>Unearth Unbeatable Value: Meta’s October 512GB Quest 3 Offers Outshine Competitors for Prime Day Shoppers - Insights by ZDNet</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/upload-and-transform-your-cr2-files-into-high-quality-pngs-instantly-free-of-charge-via-picconverterpro/"><u>Upload & Transform Your CR2 Files Into High-Quality PNGs Instantly, Free of Charge via PicConverterPro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-embrace-an-english-speaking-world/"><u>Why Embrace an English-Speaking World?</u></a></li>
 </ul></div>
 

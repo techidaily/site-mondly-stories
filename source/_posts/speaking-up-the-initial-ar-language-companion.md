@@ -1,7 +1,7 @@
 ---
 title: "Speaking Up: The Initial AR Language Companion"
-date: 2025-02-04T17:23:04.030Z
-updated: 2025-02-10T16:33:08.169Z
+date: 2025-02-25T00:26:24.558Z
+updated: 2025-03-01T02:28:15.955Z
 tags:
   - speak
   - english
@@ -26,19 +26,11 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
@@ -49,10 +41,6 @@ Here’s a video showcasing Mondly AR:
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
 
@@ -69,10 +57,6 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -85,10 +69,6 @@ Alex Iliescu, our CEO, spoke about the launch:
 * Launched [Mondly VR](https://www.oculus.com/experiences/quest/4214902388537196/?utm%5Fsource=mondly&utm%5Fcampaign=blog&utm%5Fchannel=direct) , the first Virtual Reality language app with speech recognition in the world in February 2017
 * Available on iPhone, iPad, Android and Web
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Media mentions about Mondly
 
@@ -119,21 +99,18 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-amass-a-thousand-tactics-for-monthly-instagram-following-for-2024/"><u>[New] Amass a Thousand Tactics for Monthly Instagram Following for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-fundamentals-of-managing-volume-increase-in-projects/"><u>[New] In 2024, Fundamentals of Managing Volume Increase in Projects</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-achieving-financial-gain-with-youtube-shorts-essentials-opportunities-and-earning-prospects/"><u>[Updated] 2024 Approved Achieving Financial Gain with Youtube Shorts Essentials, Opportunities & Earning Prospects</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-follow-friendly-flight-tech-our-top-picks-for-pilots/"><u>[Updated] In 2024, Follow-Friendly Flight Tech Our Top Picks for Pilots</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-seamless-fileshift-android-media-to-iphone-for-2024/"><u>[Updated] Seamless Fileshift Android Media to iPhone for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/20plus-effective-ways-to-acquire-czech-fast-and-well/"><u>20+ Effective Ways to Acquire Czech Fast & Well</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/be-fluent-in-casual-conversation-learn-10-basic-spanish-greetings/"><u>Be Fluent in Casual Conversation - Learn 10 Basic Spanish Greetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578820390-become-a-bilingual-in-minutes-enjoy-unbelievable-discounts/"><u>Become a Bilingual in Minutes: Enjoy Unbelievable Discounts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprension-y-uso-oral-de-los-colores/"><u>Comprensión Y Uso Oral De Los Colores</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-skill-acquisition-anniversary-of-1500-gratuitous-sessions/"><u>Daily Skill Acquisition: Anniversary of 1500 Gratuitous Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dubais-polyglot-parade-language-learning-in-action/"><u>Dubai's Polyglot Parade: Language Learning in Action</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/earths-dominant-dialects-ranked-15/"><u>Earth's Dominant Dialects – Ranked #15</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722961239521-easy-synaptic-driver-downloads-and-updates-for-windows-get-started-now/"><u>Easy Synaptic Driver Downloads and Updates for Windows - Get Started Now</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/superior-titles-for-live-game-broadcasting-for-2024/"><u>Superior Titles for Live Game Broadcasting for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/surging-profits-with-three-steps-an-easy-way-to-tally-your-youtube-earning-for-2024/"><u>Surging Profits with Three Steps An Easy Way to Tally Your YouTube Earning for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unlocking-potential-creating-compelling-content-on-your-phone-for-2024/"><u>Unlocking Potential Creating Compelling Content on Your Phone for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-free-software-for-sound-changes-amplify-and-elevate-your-vocal-impact/"><u>[New] 2024 Approved Free Software For Sound Changes - Amplify and Elevate Your Vocal Impact</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-integrating-easy-to-use-timestamps-into-your-youtube-videos/"><u>[Updated] 2024 Approved Integrating Easy-to-Use Timestamps Into Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-realign-corrected-identity-visualization-in-facebook-sessions/"><u>[Updated] In 2024, Realign Corrected Identity Visualization in Facebook Sessions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-navigating-through-numbers-a-full-guide-for-measuring-youtube-success/"><u>[Updated] Navigating Through Numbers A Full Guide for Measuring YouTube Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-must-know-italian-hand-signs-explained/"><u>10 Must-Know Italian Hand Signs Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-sensitivity-and-understanding-through-linguistic-diversity/"><u>Cultural Sensitivity and Understanding Through Linguistic Diversity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/exploring-paid-tweeting-on-twitter/"><u>Exploring Paid Tweeting on Twitter</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-oppo-reno-11f-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Oppo Reno 11F 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masters-blueprint-for-navigating-high-stakes-language-exams/"><u>Master's Blueprint for Navigating High-Stakes Language Exams</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-the-new-steer-clear-of-these-8-windows-11-faux-pas/"><u>Navigating the New: Steer Clear of These 8 Windows 11 Faux Pas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/origins-and-evolution-of-the-netherlands-vernacular/"><u>Origins & Evolution of the Netherlands Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/popular-new-years-resolutions-and-how-you-can-achieve-them/"><u>Popular New Year’s Resolutions and How You Can Achieve Them</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachfluss-alternative-deutschen-grussformeln-ohne-hallo/"><u>Sprachfluss: Alternative Deutschen Grußformeln Ohne 'Hallo'</u></a></li>
 </ul></div>
 

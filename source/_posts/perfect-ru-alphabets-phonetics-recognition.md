@@ -1,7 +1,7 @@
 ---
 title: Perfect RU Alphabets' Phonetics Recognition
-date: 2025-02-05T01:53:31.044Z
-updated: 2025-02-11T01:42:49.131Z
+date: 2025-02-25T01:17:51.918Z
+updated: 2025-02-28T16:16:05.747Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Cyrillic script
 
 [The Cyrillic script](https://en.wikipedia.org/wiki/Cyrillic%5Fscript) is the national script in various Slavic-, Turkic- and Iranic-speaking countries in Eastern Europe, the Caucasus, Central Asia, and Northern Asia.
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 ![russian letters](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-letters-600x480.jpg "Master The Russian Alphabet Pronunciation 2")
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Understand how to pronounce the Russian alphabet
 
@@ -84,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Russian letters that look the same as in English (but sound different)
 
 * **В в** sounds like “v” in “van” or “voice”,
@@ -99,10 +87,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ч ч** sounds like “ch” in “chat” or “church“,
 * **Х х** sounds like “ch” in “loch”,
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Russian letter with no English equivalent
 
@@ -116,10 +100,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
  Russian alphabet pronunciation
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Russian lesson no. 1: rules
 
@@ -166,24 +146,16 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-step-into-a-world-of-eye-catching-imagery-at-pexels/"><u>[New] Step Into a World of Eye-Catching Imagery at Pexels</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-obs-and-shadowplay-which-streams-better/"><u>2024 Approved Obs and ShadowPlay - Which Streams Better?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-step-by-step-guide-to-pc-based-live-broadcasts-on-tiktok/"><u>2024 Approved Step-by-Step Guide to PC-Based Live Broadcasts on TikTok</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/5-essential-artificial-intelligence-tools-every-business-leader-needs/"><u>5 Essential Artificial Intelligence Tools Every Business Leader Needs</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/boost-your-brand-with-snapchats-business-features-for-2024/"><u>Boost Your Brand with Snapchat's Business Features for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/determining-the-optimal-speed-for-your-personal-computer-a-guide/"><u>Determining the Optimal Speed for Your Personal Computer: A Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveiled-strategies-for-using-its-transparency-tools/"><u>Facebook Unveiled: Strategies for Using Its Transparency Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/guia-practica-para-leer-la-hora-en-espanol/"><u>Guía Práctica Para Leer La Hora en Español</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ibeatpro-tips-for-mobile-music-video-filmmaking-for-2024/"><u>IBeatPro Tips for Mobile Music Video Filmmaking for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interweaving-worlds-vocabularies-today-for-teachers/"><u>Interweaving World's Vocabularies, Today for Teachers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-powerhouse-englishs-impact/"><u>Language Powerhouse: English's Impact</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/neuroplasticitys-role-in-child-language-mastery/"><u>Neuroplasticity's Role in Child Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oculus-quest-languages-unlocked-with-mondly-the-future-of-gaming/"><u>Oculus Quest Languages Unlocked with 'Mondly' - The Future of Gaming?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/proven-strategies-for-exceptional-mondly-engagement/"><u>Proven Strategies for Exceptional Mondly Engagement</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/top-8-solutions-how-to-make-invisible-windows-text-visible-again/"><u>Top 8 Solutions: How to Make Invisible Windows Text Visible Again!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-chinese-thanks-the-essentials-of-xiexie/"><u>Understanding Chinese Thanks: The Essentials of Xièxiè</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-croatias-language-with-our-113-essential-expressions-list/"><u>Unlock the Secrets of Croatia's Language with Our 113 Essential Expressions List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learning-a-new-language-is-good-for-your-brain/"><u>Why Learning a New Language Is Good for Your Brain</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-a-beginners-guide-to-youtube-seo-keywords-for-2024/"><u>[Updated] A Beginner's Guide to YouTube SEO Keywords for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-shorts-issue-fixed-now-visible-on-youtube/"><u>[Updated] Shorts Issue Fixed – Now Visible on YouTube</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-add-captions-to-youtube-videos/"><u>2024 Approved How To Add Captions to YouTube Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-voice-log-retrieval-content-scrutiny/"><u>2024 Approved Voice Log Retrieval, Content Scrutiny</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/education-advancements-via-mondly-apple-tech-partnership/"><u>Education Advancements via Mondly-Apple Tech Partnership</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579370554-embrace-croatia-7-advantages-in-learning-its-language/"><u>Embrace Croatia: 7 Advantages in Learning Its Language!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-speech-clarity-100-engaging-tongue-twisters/"><u>Enhance Speech Clarity: 100 Engaging Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-persian-heritage-a-languages-tale/"><u>Exploring Persian Heritage: A Language's Tale</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/learn-the-two-best-techniques-for-cost-free-imessage-backups-independent-of-icloud/"><u>Learn the Two Best Techniques for Cost-Free iMessage Backups Independent of iCloud</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Oppo Find X6? | Dr.fone</u></a></li>
 </ul></div>
 

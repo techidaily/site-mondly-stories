@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2025-02-08T16:15:51.997Z
-updated: 2025-02-10T16:53:05.374Z
+date: 2025-02-26T01:31:06.154Z
+updated: 2025-02-28T19:28:58.461Z
 tags:
   - speak
   - english
@@ -24,19 +24,11 @@ thumbnail: https://thmb.techidaily.com/fb9dc69321147c58e76f643c816e11fbbc732b6fd
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -44,15 +36,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Lisbon, Portugal” by Diego García©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -82,10 +66,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -165,17 +145,21 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-expert-picks-the-finest-photo-frame-software-for-2024/"><u>[Updated] Expert Picks The Finest Photo Frame Software for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-picks-affordable-high-quality-4k-home-theatres/"><u>[Updated] In 2024, Top Picks Affordable, High Quality 4K Home Theatres</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elevate-your-images-top-10-grid-organizers/"><u>Elevate Your Images Top 10 Grid Organizers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/encode-and-decrypt-ks-mastering-the-linguistics-of-squid-game/"><u>Encode and Decrypt KS: Mastering the Linguistics of Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enunciation-excellence-engage-in-twist-training/"><u>Enunciation Excellence: Engage in Twist Training</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-the-best-in-language-education-with-mondly/"><u>Experience the Best in Language Education with Mondly</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-lenovo-ideapad-130s-a-tale-of-limited-computing-force-with-a-twist-of-surprising-user-friendliness/"><u>Exploring the Lenovo IdeaPad 130S: A Tale of Limited Computing Force with a Twist of Surprising User-Friendliness</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-speaker-in-minutes-with-these-apps/"><u>From Novice to Expert Speaker in Minutes with These Apps</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-poco-c55-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Poco C55 Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-fixes-for-updater-glitch-code-0x80073712/"><u>Quick Fixes for Updater Glitch: Code 0X80073712</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209539964-9780883915585-the-magic-of-a-powerful-memory/"><u>The Magic of a Powerful Memory | Free Book</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-essential-recording-skills-for-every-lenovo-user/"><u>[New] 2024 Approved Essential Recording Skills for Every Lenovo User</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-record-computer-sound-and-microphone/"><u>[Updated] 2024 Approved Record Computer Sound and Microphone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581870120-adventure-with-hindi-study-8-amazing-reasons-mondly-offers/"><u>Adventure with Hindi Study - 8 Amazing Reasons Mondly Offers!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chat-like-the-locals-the-best-17-immediate-spanish-phrases/"><u>Chat Like the Locals: The Best 17 Immediate Spanish Phrases</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/conquer-your-screen-space-integrating-video-within-video/"><u>Conquer Your Screen Space Integrating Video Within Video</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-latin-like-never-before-conveniently-online/"><u>Embrace Latin Like Never Before, Conveniently Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-indonesian-warmth-essential-phrases/"><u>Introduction to Indonesian Warmth: Essential Phrases</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-ditch-gopro-studio-top-alternative-video-editors-for-action-cam-enthusiasts/"><u>New 2024 Approved Ditch GoPro Studio Top Alternative Video Editors for Action Cam Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-linguistic-skills-with-nearly-free-lessons-available/"><u>New Year, New Linguistic Skills – With Nearly Free Lessons Available</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/on-the-go-cinematographers-essentials-for-2024/"><u>On-the-Go Cinematographer’s Essentials for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/open-itunes-on-your-computer-go-to-help-)-check-for-updates-for-windows-or-app-store-)-updates-for-macos-if-an-update-is-available-install-it-and-restart-th168/"><u>Open iTunes on Your Computer, Go to Help > Check for Updates (for Windows) or App Store > Updates (for macOS). If an Update Is Available, Install It and Restart the Application Afterward</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/reimagining-the-job-landscape-with-ai-unveiling-7-key-changes-powered-by-generative-technologies/"><u>Reimagining the Job Landscape with AI: Unveiling 7 Key Changes Powered by Generative Technologies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-understand-transform-6-keys-to-total-language-mastery/"><u>Speak, Understand, Transform: 6 Keys to Total Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-playbook-a-compreenas-guide-to-deep-immersion/"><u>The Polyglot Playbook: A Compreenas Guide to Deep Immersion</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-xiaomi-redmi-a2plus-by-drfone-android/"><u>Three Ways to Sim Unlock Xiaomi Redmi A2+</u></a></li>
 </ul></div>
 

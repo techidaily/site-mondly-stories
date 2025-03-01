@@ -1,7 +1,7 @@
 ---
 title: "Pantheon's Progeny: Ancestral Greek Influence Today"
-date: 2025-02-09T17:17:57.910Z
-updated: 2025-02-10T18:33:12.312Z
+date: 2025-02-22T02:46:07.546Z
+updated: 2025-02-28T19:00:23.443Z
 tags:
   - speak
   - english
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/d8f2922d20e310fe909f77a8d8b81c6fbacf60f30
  So, let’s embark on a journey through time and explore the history of the ancient Greek language. We will look at its profound impact on modern languages and culture and how it differs from modern Greek. With a little help from the Greek gods and goddesses, you’ll see that ancient Greek is not a relic of the past but a living legacy echoing everywhere in the modern world.
 
  Men think about the Roman Empire a lot, but I believe ancient Greece is just as fascinating. What do you think?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Ancient Greek Language – Historical Journey
 
@@ -50,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/d8f2922d20e310fe909f77a8d8b81c6fbacf60f30
  These dialects were significantly influenced by social interactions, economic activities, tribal mixings, and conflicts, leading to a collective linguistic and cultural consciousness among the Greek people. Ancient Greek dialects heavily influenced the era’s literature, with each piece closely tied to a specific dialect that reflected the Greek tribe and its unique socio-economic contexts.
 
  Ancient Greek writing during this archaic period featured the “Boustrophedon” style (literally “ox-turning”, after the manner of an ox plowing a field), where alternate lines of text were reversed, a technique observed in earlier civilizations. Nevertheless, around the 8th century BC, the Greek alphabet was standardized.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Dialects of Ancient Greece
 
@@ -110,10 +102,6 @@ Other literary works of art representative of this period include:
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Ancient Greek Language Influence On Modern Languages 7")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Learn the language of the Greek gods
 
  If Zeus needed to improve his Modern Greek, he’d probably choose Mondly. Why not you?
@@ -138,23 +126,11 @@ Other literary works of art representative of this period include:
 
 ![ancient Greek vs modern Greek](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greek-vs-modern-greek.jpg "Ancient Greek Language Influence On Modern Languages 8")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ancient Greek Language Influence on Modern Languages
 
  Now that you have an overview of the intellectual and artistic heritage we received from ancient Greece, it’s time to take an even closer look at languages. Because yes, the Ancient Greek language has carved its imprints not just in the annals of history but in the very syntax and semantics of modern languages. **English, Spanish, and French are probably the most important bearers of Greek influences.**
 
  Whenever you say a word like ‘psychology’, ‘theater’, or ‘chronology’, you pay tribute to the ancient Greek language. Still, the linguistic legacy is not limited to vocabulary but extends to idiomatic expressions, grammatical structures, and even rhetorical styles. Keep in mind the fact that this influence happened despite the geographical distance between ancient Greece and the English-speaking world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Enriching the modern lexicon
 
@@ -234,10 +210,6 @@ _Refers to a person who has good fortune._
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Differences Between Ancient Greek and Modern Greek
 
  Centuries of political, social, and cultural transformations, coupled with the dispersion of Greek populations and industrial changes, have profoundly influenced the evolution and richness of the Greek language. Thus, the transition from the ancient Greek language to the modern Greek language was all about adaptation and evolution. The language spoken in Plato’s Greece is indeed very different from the language spoken today in Greece. However, it is said that **a person proficient in Modern Greek can generally understand about 50% of ancient Greek texts** due to similar root words.
@@ -252,10 +224,6 @@ _Refers to a person who has good fortune._
 
  To summarize everything we learned about the ancient Greek language, let’s look at some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Is ancient Greek still spoken today?
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
@@ -267,10 +235,6 @@ _Refers to a person who has good fortune._
 ### What writing system did ancient Greeks use?
 
  The earliest attested writing system used by ancient Greeks is a clay tablet written in the Linear B script. It is hypothesized to be descended from the older Linear A script which is undeciphered. However, around the 8th century BCE, Greeks adopted the Greek alphabet used today.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How can I learn to speak ancient Greek?
 
@@ -306,17 +270,22 @@ _Refers to a person who has good fortune._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-capturing-creativity-the-ultimate-guide-to-roblox-videos-on-a-mac/"><u>[New] 2024 Approved Capturing Creativity The Ultimate Guide to Roblox Videos on a Mac</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unearthing-the-skies-hubsan-h501x4-quad-drone-analysis/"><u>[New] Unearthing the Skies Hubsan H501X4 Quad Drone Analysis</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/5-top-rangierte-4k-medienabspieler-fur-high-definition-videoinhalte/"><u>5 Top-Rangierte 4K Medienabspieler Für High-Definition-Videoinhalte</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enrich-team-interactions-choosing-superior-linguistic-software/"><u>Enrich Team Interactions: Choosing Superior Linguistic Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploracion-exhaustiva-del-cuerpo-humano-en-espanol-desde-la-piel-al-rinon/"><u>Exploración Exhaustiva Del Cuerpo Humano en Español: Desde La Piel Al Riñón</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/featured-by-apple-mondly-is-in-top-10-education-apps-worldwide/"><u>Featured by Apple: Mondly Is in Top 10 Education Apps Worldwide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/five-motivational-reasons-for-late-life-linguists/"><u>Five Motivational Reasons for Late-Life Linguists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-quick-guide-to-colors/"><u>French Pronunciation Quick Guide to Colors</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-vivo-x100-pro-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Vivo X100 Pro?</u></a></li>
-<li><a href="https://common-error.techidaily.com/navigate-with-ease-expert-guide-to-using-file-explorer-in-windows-11/"><u>Navigate with Ease: Expert Guide to Using File Explorer in Windows 11</u></a></li>
-<li><a href="https://win-able.techidaily.com/starfield-gaming-fixes-resolving-freezing-and-crashing-problems-on-windows-machines/"><u>Starfield Gaming Fixes: Resolving Freezing and Crashing Problems on Windows Machines</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/winning-software-to-capture-your-display-on-windows-10/"><u>Winning Software to Capture Your Display on Windows 10</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-ultimate-guide-to-boosting-views-on-tiktok-unboxings/"><u>[New] 2024 Approved The Ultimate Guide to Boosting Views on TikTok Unboxings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-get-acquainted-a-quick-guide-to-windows-11-basics/"><u>[New] Get Acquainted A Quick Guide to Windows 11 Basics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-principles-of-crafting-compelling-youtube-introduction-vids/"><u>[Updated] 2024 Approved Principles of Crafting Compelling YouTube Introduction Vids</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expand-picture-size-maintain-original-quality/"><u>2024 Approved Expand Picture Size - Maintain Original Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-charisma-daily-short-lessons/"><u>Catalan Charisma: Daily Short Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/day-by-day-rapidly-rise-as-a-bulgarian-speaker/"><u>Day by Day: Rapidly Rise as a Bulgarian Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages!</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-ensure-smooth-play-of-elex-ii-on-your-computer-without-frequent-crashes/"><u>How to Ensure Smooth Play of Elex II on Your Computer Without Frequent Crashes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-google-pixel-8-pro-easily-by-drfone-android/"><u>In 2024, How To Unlock a Google Pixel 8 Pro Easily?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-icloud-separation-how-to-disconnect-iphone-6-and-ipad-by-drfone-ios/"><u>In 2024, iCloud Separation How To Disconnect iPhone 6 and iPad</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ipodcast-exploration-techniques-with-the-iphone-for-2024/"><u>IPodcast Exploration Techniques with the iPhone for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576425842-must-learn-croatian-dialogues-for-smooth-expat-experiences/"><u>Must-Learn Croatian Dialogues for Smooth Expat Experiences!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-pathways-to-mastering-language-barriers/"><u>Quick Pathways to Mastering Language Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spandexs-progeny-countries-listed-here/"><u>Spandex's Progeny Countries Listed Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579211674-start-with-croatian-find-out-the-top-7-reasons-for-today/"><u>Start with Croatian: Find Out the Top 7 Reasons for Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbalrealms-dive-into-new-worlds-of-language-learning/"><u>VerbalRealms: Dive Into New Worlds of Language Learning</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Learn the Days of the Week in German
-date: 2025-02-08T01:54:24.065Z
-updated: 2025-02-10T16:44:29.062Z
+date: 2025-02-25T02:23:11.880Z
+updated: 2025-02-28T19:37:46.766Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
  If someone asks_welchen Wochentag haben wir heute?_ (“which day of the week do we have today?”), what do you answer? The days of the week are probably one of the first things you learn not just in German but in any language. As a toddler, you probably started with “mom”, “dad”, “hello”, and “thank you”, then you probably advanced to counting, colors, and, naturally, the days of the week. So, if you are on your way to [learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the days of the week in German are surely a good starting point.
 
  If you think about it, the_Tage_ (days) of the_Woche_ (week) is one of the most basic and important language lessons. Simply knowing these seven short words will help you set up meetings, and dates and create a weekly agenda that will decide your every social and professional move. After all, our entire life revolves around the concept of time and the many ways we keep track of it: seconds, minutes, hours, days, weeks, months, years, and so on. So let’s help you get started and see which are the weekdays in German.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The days of the week in German
 
@@ -46,10 +42,6 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 
 ![days of the week in German](https://edge.mondly.com/blog/wp-content/uploads/2020/08/days-of-the-week-in-german-960x960.jpg "Learn The Days Of The Week In German 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The days of the week in German
 
 **“Thursday”** which is_**Donnerstag**_ in German literally means “thunder’s day”. The day was originally named after Thor, the super awesome Norse god Marvel made famous. In German-speaking cultures, Thor was known as Donar so this is where_Donnerstag_ comes from. Obviously, the English word “Thursday” comes from “Thor’s day”.
@@ -61,10 +53,6 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 **_Sonntag_ (“Sunday”)** comes from the [German word](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) _Sonne_ (“sun”). So_Sonntag_ and “Sunday” are both literally “the day of the sun” or “sun-day”.
 
  As you can see, the German days of the week are very similar to English, so you shouldn’t have a hard time remembering them. But, if you do, you can always [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) , the award-winning language learning app that brings together crystal clear audios recorded by fluent voice actors, real conversations, and practical topics to make [German easy to learn](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to use the German days of the week correctly
 
@@ -106,22 +94,21 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-from-shipping-secrets-to-surprises-unveiling-new-strategies/"><u>[New] From Shipping Secrets to Surprises Unveiling New Strategies</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/clarity-and-engagement/"><u>Clarity and Engagement</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engage-and-enhance-spanish-eloquently-online-and-offline/"><u>Engage and Enhance Spanish Eloquently Online & Offline</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-lexicon-faux-pas-ranking-common-errors-in-usage/"><u>English Lexicon Faux Pas - Ranking Common Errors in Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-russian-terms-unveiled-for-any-globetrotters-use/"><u>Essential Russian Terms Unveiled: For Any Globetrotter's Use</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-vocabulary-for-cultural-immersion-in-vietnam/"><u>Essential Vocabulary for Cultural Immersion in Vietnam</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-and-exploit-mondly-to-perfection/"><u>Explore and Exploit Mondly to Perfection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/express-yourself-102plus-indispensable-french-phrases/"><u>Express Yourself: 102+ Indispensable French Phrases</u></a></li>
-<li><a href="https://driver-download.techidaily.com/find-and-install-windows-drivers-for-your-amd-radeon-rx-590-gpu/"><u>Find and Install Windows Drivers for Your AMD Radeon RX 590 GPU</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-monday-to-sunday-in-korea-your-simplified-guide/"><u>From Monday to Sunday in Korea: Your Simplified Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-playwright-to-pundit-common-expressions-of-yore/"><u>From Playwright to Pundit: Common Expressions of Yore</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-crafting-compelling-videos-youtubes-best-thumbnail-practices/"><u>In 2024, Crafting Compelling Videos YouTube's Best Thumbnail Practices</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-silencing-sounds-a-deep-dive-into-audacitys-features-for-sound-reduction/"><u>New Silencing Sounds A Deep Dive Into Audacitys Features for Sound Reduction</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/athway-to-youtube-prosperity-a-comprehensive-guide-for-2024/"><u>The Pathway to YouTube Prosperity - A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/transform-your-vision-into-reality-windows-11-video-creation-for-2024/"><u>Transform Your Vision Into Reality Windows 11 Video Creation for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlock-stuck-steam-8-effective-methods-to-try-first/"><u>Unlock Stuck Steam: 8 Effective Methods to Try First</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/raphicgrind-studio/"><u>[New] GraphicGrind Studio</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iral-vibrancy-trending-audio-amplifying-your-yt-shorts-for-2024/"><u>[New] Viral Vibrancy Trending Audio Amplifying Your YT Shorts for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-chic-characters-cheeky-captions-making-memes/"><u>[Updated] 2024 Approved Chic Characters, Cheeky Captions Making Memes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-pro-tips-for-productive-dialogues-on-google-meet/"><u>[Updated] Pro Tips for Productive Dialogues on Google Meet</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-windows-media-player-for-cd-extraction-and-recordings/"><u>2024 Approved Mastering Windows Media Player for CD Extraction and Recordings</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/iphone-4/"><u>解決方式：iPhone 錯誤刪除影片的救回技術4要點</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-brilliance-in-short-sessions/"><u>Bengali Brilliance in Short Sessions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/choosing-the-right-phone-for-your-child-expert-picks-from-zdnet/"><u>Choosing the Right Phone for Your Child: Expert Picks From ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-analysis-of-cyberpunk-2077-an-incomplete-yet-groundbreaking-game/"><u>Critical Analysis of Cyberpunk 2077: An Incomplete Yet Groundbreaking Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-ultimate-path-to-learn-lithuanian-digitally/"><u>Discover the Ultimate Path to Learn Lithuanian Digitally</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-v30-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Vivo V30 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pathway-to-proficiency-excellent-online-korean-learning-sources/"><u>Pathway to Proficiency: Excellent Online Korean Learning Sources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-korean-online-6-brilliant-resources/"><u>The Best Way to Learn Korean Online – 6 Brilliant Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-portuguese-dialect-dichotomy-south-america-meets-europe/"><u>The Portuguese Dialect Dichotomy: South America Meets Europe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96% Off</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-unlocked-easy-to-master-language-list/"><u>World Words Unlocked: Easy-To-Master Language List</u></a></li>
 </ul></div>
 

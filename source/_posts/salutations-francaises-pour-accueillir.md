@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2025-02-08T17:11:00.979Z
-updated: 2025-02-11T01:04:26.338Z
+date: 2025-02-21T18:31:36.637Z
+updated: 2025-02-28T22:27:55.168Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  You can use ‘_de rien’_ as an informal response to somebody who has thanked you. You’ll hear this expression used commonly throughout France in a range of situations.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The literal translation of_‘de rien’_
 
  Whilst it’s important not to think too much about the literal translation of phrases from French into English, it can help us remember how and when to use them. The literal translation of ‘_de rien’_ is ‘of nothing’. In English, we’d likely say ‘no problem’ or ‘don’t worry about it.’
@@ -52,19 +48,11 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  “Strasbourg, France” by Patrick Robert Doyle©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
 
@@ -81,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘je vous en prie’_
 
@@ -121,10 +105,6 @@ Example:
  B:_Non, desolé, aucune idée !_ (“No, sorry. No idea!”)
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: Less common ways to say “you’re welcome” in French
 
@@ -180,20 +160,21 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-inconspicuous-storywatchers-choice-apps/"><u>[New] 2024 Approved Inconspicuous Storywatcher's Choice Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprendendo-a-falar-portugues-com-todas-as-variedades-de-saudacoes/"><u>Aprendendo a Falar Português Com Todas as Variedades De Saudações</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-5-multilingual-learning-tools-for-educators/"><u>Best 5 Multilingual Learning Tools for Educators</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/black-flag-banter-understanding-pirate-language-basics/"><u>Black Flag Banter: Understanding Pirate Language Basics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/communicating-thanks-a-language-explorer-point-of-view-148-under-156-but-original-concept/"><u>Communicating Thanks: A Language Explorer' Point of View (148) [Under 156 but Original Concept]</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-harmony-8-ways-to-interlink-socially/"><u>Digital Harmony: 8 Ways to Interlink Socially</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diving-into-dialect-a-look-at-ubiquitous-slang-terms/"><u>Diving Into Dialect: A Look at Ubiquitous Slang Terms</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/elevate-your-edits-pro-level-photo-color-techniques/"><u>Elevate Your Edits Pro-Level Photo Color Techniques</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-essential-9-mic-recorder-selections-for-online-use-in-23/"><u>In 2024, Essential 9 Mic Recorder Selections for Online Use in '23</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-infinix-note-30-vip-racing-edition-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Infinix Note 30 VIP Racing Edition For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-itel-p55-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Itel P55 5G Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579855799-mondlys-lifetime-plan-zero-price/"><u>Mondly's Lifetime Plan: Zero Price!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578758448-porque-vs-por-que-whats-the-difference/"><u>Porque vs Por Que: What’s the Difference?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-complete-how-to-on-using-imessage-with-your-ipad/"><u>The Complete How-To on Using iMessage with Your iPad</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-professional-techniques-for-getting-rid-of-backgrounds-in-figma/"><u>[New] 2024 Approved Professional Techniques for Getting Rid of Backgrounds in Figma</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unlocking-the-full-potential-of-canvas-image-tools/"><u>[New] In 2024, Unlocking the Full Potential of Canva's Image Tools</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-from-live-to-recorded-a-discord-journey-for-2024/"><u>[Updated] From Live to Recorded A Discord Journey for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-your-smartphone-as-an-artists-canvas-producing-quality-youtube-video-content/"><u>2024 Approved Your Smartphone as an Artist’s Canvas Producing Quality YouTube Video Content</u></a></li>
+<li><a href="https://fox-that.techidaily.com/8-proven-ways-to-reconnect-your-apple-tablet-or-phone-to-a-stable-wi-fi-network/"><u>8 Proven Ways to Reconnect Your Apple Tablet or Phone to a Stable Wi-Fi Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-business-brilliance-through-tailored-linguistic-training/"><u>Boost Business Brilliance Through Tailored Linguistic Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brisk-methods-for-conquering-new-vernaculars/"><u>Brisk Methods for Conquering New Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-history-through-oldest-language-discovery/"><u>Decoding History Through Oldest Language Discovery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-alphabet-and-sounds-a-starters-guide/"><u>German Alphabet & Sounds: A Starter's Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-google-pixel-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oppo-find-x6-pro-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Oppo Find X6 Pro Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-teams-up-with-pearson-education-circle/"><u>Mondly Teams Up With Pearson Education Circle</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-motorola-edge-40-pro-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-maturation-of-multilingual-abilities/"><u>Rapid Maturation of Multilingual Abilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-stands-out-in-language-education-app-field/"><u>Why Mondly Stands Out in Language Education App Field?</u></a></li>
 </ul></div>
 

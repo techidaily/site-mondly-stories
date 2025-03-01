@@ -1,7 +1,7 @@
 ---
 title: "Mondly’s Boundless Learning Network: A Community of 70+ Million"
-date: 2025-02-07T17:25:36.851Z
-updated: 2025-02-10T19:20:57.419Z
+date: 2025-02-22T22:02:08.555Z
+updated: 2025-02-28T17:45:53.124Z
 tags:
   - speak
   - english
@@ -35,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 
  The amount of positive feedback we are getting for Hands-Free is astonishing. People everywhere are praising the voice-powered upgrade for its ability to make the process feel less like studying and more like talking to an old friend. That is why we are working harder than ever to make it available for Android learners too as soon as possible.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## English progress tests created in partnership with Oxford University Press
 
  In 2020, many of us learned that every cloud has a silver lining. At Mondly, we are committed to offering learners everywhere access to high-quality language courses on their mobile phones. This is why we tried – and hopefully succeeded – to make 2020 brighter for the 1.5 billion people worldwide currently learning English.
@@ -65,19 +61,11 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 
  Huawei Developer Webinar – Grow with AppGallery in China
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Loved by learners, supported by experts
 
  Our mission at Mondly has always been to help people speak new languages fast through technological innovation. This is why we always drew inspiration from tech pioneers such as Google or Apple. Now, seeing all the incredible feedback coming from the very experts who inspired us, we couldn’t be prouder by what we have achieved so far.
 
  Following our series of exciting updates, Mondly has been featured multiple times in both Apple’s App Store and Huawei’s AppGallery.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “App of the Day” in Apple’s App Store in 157 countries
 
@@ -91,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 
  We deeply admire everything Apple and Huawei do and hope to make it to their “Walk of Fame” many times over in the future.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What’s next?
 
  We don’t know what the future holds in terms of quarantine, social distancing, or remote working and learning, but whatever the context, we pledge ourselves to never stop innovating. We will continue doing the work that will enrich people’s lives for years to come.
@@ -105,10 +89,6 @@ Here’s to 70 million learners and counting! 🥂
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Give Mondly a go today**
 
@@ -135,18 +115,18 @@ Here’s to 70 million learners and counting! 🥂
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-divergent-paths-in-video-sharing-comparing-igtv-and-youtube/"><u>[New] In 2024, Divergent Paths in Video Sharing Comparing IGTV & YouTube</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-budget-friendly-high-quality-gaming-keyboards-unveiled/"><u>[Updated] 2024 Approved Budget-Friendly, High-Quality Gaming Keyboards Unveiled</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-building-your-own-studiopc-an-all-inclusive-guide-for-4k-editors/"><u>[Updated] Building Your Own StudioPC An All-Inclusive Guide for 4K Editors</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-for-inverting-screen-display-android/"><u>2024 Approved Step-By Step for Inverting Screen Display Android</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-fluency-top-tips-for-learning-finnish-at-home/"><u>Accelerate Fluency: Top Tips for Learning Finnish at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ballads-of-bilingualism-scientifically-supported-musical-tips/"><u>Ballads of Bilingualism: Scientifically Supported Musical Tips</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/boosting-win-valorant-resolving-01kbs-downloads/"><u>Boosting Win-Valorant: Resolving 0.1KB/S Downloads</u></a></li>
-<li><a href="https://os-tips.techidaily.com/locate-your-missing-android-smartphone-using-the-android-device-manager/"><u>Locate Your Missing Android Smartphone Using the Android Device Manager</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-precision-sound-engineering-harnessing-the-power-of-keyframes-for-audio-fade-insouts-in-filmora-mac-for-2024/"><u>New Precision Sound Engineering Harnessing the Power of Keyframes for Audio Fade-Ins/Outs in Filmora (Mac) for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/precision-and-savings-combined-top-asmr-microphones-within-reach-for-2024/"><u>Precision & Savings Combined Top ASMR Microphones Within Reach for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578214765-speedy-catalan-skills-just-10-mins/"><u>Speedy Catalan Skills, Just 10 Mins!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581649721-what-are-the-romance-languages/"><u>What Are the Romance Languages?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580557411-what-is-the-longest-word-in-the-world/"><u>What Is The Longest Word In The World?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-ableton-live-mastering-volume-dampening/"><u>[New] In 2024, Ableton Live Mastering Volume Dampening</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-best-free-video-editing-programs-you-should-know/"><u>[New] In 2024, Best Free Video Editing Programs You Should Know</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-set-up-grid-layout-for-google-meet-participants-viewing/"><u>[New] Set Up Grid Layout for Google Meet Participants' Viewing</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-huawei-p60-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diverse-dialects-shared-joy-on-resurrection-day/"><u>Diverse Dialects, Shared Joy on Resurrection Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-security-policy-now-live/"><u>Enhanced Security Policy Now Live</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576305853-expand-horizons-in-hindi-why-mondlys-online-platform-is-your-ultimate-choice-for-learning/"><u>Expand Horizons in Hindi: Why Mondly's Online Platform Is Your Ultimate Choice for Learning!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fixing-reflective-glare-on-furry-friends-eyes-a-photographers-handbook/"><u>Fixing Reflective Glare on Furry Friends’ Eyes - A Photographer's Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harnessing-on-screen-speech-for-language-growth/"><u>Harnessing On-Screen Speech for Language Growth</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/how-to-successfully-add-av1-encoder-support-in-windows-11-a-comprehensive-guide/"><u>How to Successfully Add AV1 Encoder Support in Windows 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-photography-with-insights-into-lut-use/"><u>In 2024, Innovative Photography with Insights Into LUT Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581915943-top-25-german-idioms-to-speak-like-a-german/"><u>Top 25 German Idioms to Speak Like a German</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-compact-smartphones-a-comprehensive-guide/"><u>Top Rated Compact Smartphones : A Comprehensive Guide</u></a></li>
 </ul></div>
 

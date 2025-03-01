@@ -1,7 +1,7 @@
 ---
 title: "Ukrainian And Russian: How Similar Are These Two Slavic Languages?"
-date: 2025-02-07T18:13:43.872Z
-updated: 2025-02-10T16:32:58.629Z
+date: 2025-02-23T16:11:15.161Z
+updated: 2025-02-28T19:17:28.265Z
 tags:
   - speak
   - english
@@ -49,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -65,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -79,10 +71,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
@@ -90,10 +78,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Alphabet
 
@@ -129,10 +113,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 * Ukrainians always pronounce ‘o’ as it is heard whereas Russians pronounce it as \[a\] or an unclear schwa \[ə\] depending on the context;
 * Ukrainian uses more soft consonants compared to Russian;
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Grammar
 
@@ -184,19 +164,21 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-free-mac-screenshoter-extraordinaire/"><u>[Updated] 2024 Approved Free Mac Screenshoter Extraordinaire</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transforming-imovie-projects-into-youtube-shows/"><u>[Updated] 2024 Approved Transforming iMovie Projects Into YouTube Shows</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-strategic-planning-for-effective-live-video-production-on-fb/"><u>[Updated] In 2024, Strategic Planning for Effective Live Video Production on FB</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-pro-expertise-for-sound-switchers/"><u>2024 Approved Premier Pro Expertise for Sound Switchers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/audiences-favorites-top-10-mobility-friendly-players-for-2024/"><u>Audience's Favorites Top 10 Mobility-Friendly Players for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/from-recovered-to-ready-migrating-e-mail-to-live-exchange/"><u>From Recovered to Ready: Migrating E-Mail to Live Exchange</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grammars-role-in-mastering-new-tongues/"><u>Grammar's Role in Mastering New Tongues</u></a></li>
-<li><a href="https://fox-access.techidaily.com/integrating-zoom-and-skype-for-superior-video-conferencing-experience-for-2024/"><u>Integrating ZOOM & SKYPE for Superior Video Conferencing Experience for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-basic-spanish-salutations-top-10-phrases-to-know/"><u>Mastering Basic Spanish Salutations: Top 10 Phrases To Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-launches-the-first-vr-language-app-mondlyar/"><u>Mondly Launches The First VR Language App - MondlyAR</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/overcoming-the-challenge-of-a-lost-rpcrt4dll-file-on-your-pc/"><u>Overcoming the Challenge of a Lost rpcrt4.dll File on Your PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-i-love-you-in-over-50-countries-today/"><u>Saying 'I Love You' In Over 50 Countries Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-british-american-linguistic-divide/"><u>The British-American Linguistic Divide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triple-threat-training-3-brain-drills-for-language-gurus/"><u>Triple Threat Training: 3 Brain Drills for Language Gurus</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-ground-to-sky-expert-and-beginners-guide-to-editing-drones/"><u>[Updated] From Ground to Sky - Expert and Beginner's Guide to Editing Drones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-counteract-vibration-for-clear-captures/"><u>[Updated] In 2024, Counteract Vibration for Clear Captures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commemorating-1500-no-cost-everyday-learning-sessions/"><u>Commemorating 1,500 No-Cost Everyday Learning Sessions</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/easy-steps-transferring-your-microsoft-windows-installation-from-ssd-to-hard-drive/"><u>Easy Steps: Transferring Your Microsoft Windows Installation From SSD to Hard Drive</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/guida-rapida-ritrovare-e-riprodurre-i-file-eliminati-in-windows-1011/"><u>Guida Rapida: Ritrovare E Riprodurre I File Eliminati in Windows 10/11</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-achieve-synchronicity-with-your-browser-and-fbs-autoplay-feature/"><u>In 2024, Achieve Synchronicity with Your Browser and FB's Autoplay Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joint-endeavor-mondly-pearson-button-filters-elevation/"><u>Joint Endeavor: Mondly-Pearson Button Filters Elevation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-connectivity-pearsons-online-hub/"><u>Language Connectivity: Pearson's Online Hub</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastery-of-images-on-the-lock-screen-on-or-off-windows-style/"><u>Mastery of Images on the Lock Screen: On or Off, Windows Style</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maximizing-your-earnings-with-chatgpt-hustles-and-essential-guides-for-constructing-powerful-pcs/"><u>Maximizing Your Earnings with ChatGPT Hustles & Essential Guides for Constructing Powerful PCs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577339220-norwegian-skills-surge-10-minute-mini-marathons/"><u>Norwegian Skills Surge, 10-Minute Mini-Marathons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-innovation-new-terms-and-usage-guide/"><u>Privacy Innovation: New Terms & Usage Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/reimagining-communication-advanced-tactics-for-capturing-skype-calls/"><u>Reimagining Communication Advanced Tactics for Capturing Skype Calls</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-uk-speak-compendium/"><u>The Essential UK Speak Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-mondly-user-guide-for-optimal-experience/"><u>The Ultimate Mondly User Guide for Optimal Experience</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-to-prevent-pc-crashes-in-praey-for-the-gods-game/"><u>Troubleshooting Steps to Prevent PC Crashes in Praey: For The Gods Game</u></a></li>
 </ul></div>
 

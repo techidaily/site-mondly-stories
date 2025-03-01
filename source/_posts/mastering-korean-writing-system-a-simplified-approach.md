@@ -1,7 +1,7 @@
 ---
 title: "Mastering Korean Writing System: A Simplified Approach"
-date: 2025-02-06T18:05:32.293Z
-updated: 2025-02-11T01:56:00.340Z
+date: 2025-02-26T22:52:55.409Z
+updated: 2025-03-01T03:27:16.434Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
 
  Whether you’re a BTS fan (aka the Bangtan Boys, a South Korean boy band) or a Korean culture enthusiast in general, Hangul is the perfect starting point if you want to delve deeper into your passion. So, let’s learn the Korean alphabet!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## History of Hangul – World’s Most Ingenious Alphabet
 
  Usually, we don’t discuss history when it comes to writing systems, but the history of Hangul is absolutely fascinating, and you’ll surely want to find out more.
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
  Thus, to help more common people become literate, King Sejong the Great personally created and promulgated a new alphabet: the Korean alphabet. The new writing system was designed so people with little or no education could easily learn to read and write.
 
 ![hangul sejong](https://edge.mondly.com/blog/wp-content/uploads/2020/05/hangul-sejong-600x400.jpg "Korean Alphabet – A Quick Guide To Hangul 8")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “King Sejong the Great, creator of Hangul” by Mathew Schwartz©
 
@@ -63,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
  Then, thanks to Korean nationalism and Western missionaries’ promotion of the Korean alphabet,**Hangul** (a term coined by linguist Ju Si-gyeong in 1912)**was adopted in official documents for the first time in 1894.**
 
  The use of Hangul met even more opposition and reforms under Japanese rule, but it eventually became the exclusive writing system in both North and South Korea after 1950.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Guide to the Korean Alphabet
 
@@ -94,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
  Get started with Mondly, the award-winning language app that makes learning Korean a breeze.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5015&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-5015&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-5015&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-5015&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5015%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Step-by-Step Guide to Korean Consonant Pronunciation
 
@@ -130,10 +114,6 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
  The best part about Korean vowels is that they are easier to learn because **they don’t change depending on their position in the syllable.** Here’s a Korean alphabet chart to help you with vowel pronunciation:
 
 ![korean vowels chart](https://edge.mondly.com/blog/wp-content/uploads/2020/05/korean-vowels-chart-600x291.jpg "Korean Alphabet – A Quick Guide To Hangul 11")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Korean vowels chart for beginners
 
@@ -254,10 +234,6 @@ Moving to vowels, their design is based on three elements:
 
 Before you go, make sure you check out these frequently asked questions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How long does it take to learn Hangul?
 
  Hangul can be learned in as little as a couple of hours. According to a popular Korean saying about Hangul and its characters, “a wise man can acquaint himself with them \[the characters\] before the morning is over; a stupid man can learn them in the space of ten days”.
@@ -265,10 +241,6 @@ Before you go, make sure you check out these frequently asked questions.
 ### What are the benefits of learning Hangul?
 
  Learning Hangul offers numerous benefits, including a key to understanding the Korean language, improved communication with Korean speakers, a deeper understanding of Korean culture, access to a wealth of resources in Korean, enhanced career prospects, personal development through cognitive challenges, demonstration of cultural sensitivity, and enriched travel experiences in South Korea.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What are some common mistakes that learners make when learning Hangul?
 
@@ -304,16 +276,14 @@ Before you go, make sure you check out these frequently asked questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-how-to-edit-hauls-a-comprehensive-video-guide/"><u>[New] 2024 Approved How to Edit Hauls A Comprehensive Video Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-galactic-game-guide-the-top-10-affordable-mmo-titles-for-2024/"><u>[New] Galactic Game Guide The Top 10 Affordable MMO Titles for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-premium-online-streams-convert-youtube-to-mp3-instantly/"><u>[Updated] 2024 Approved Premium Online Streams Convert YouTube to MP3 Instantly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-learning-experiences-mondlys-augmented-reality-for-tongues/"><u>Enhanced Learning Experiences: Mondly's Augmented Reality for Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exclusive-unlimited-free-mondly-pro-up-to-96-off/"><u>Exclusive: Unlimited Free Mondly Pro - Up to 96% Off!</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/experience-enhanced-productivity-with-sabrents-350-hybrid-display-and-thunderbolt-dock-featuring-65w-usb-c-ethernet-ports-and-more/"><u>Experience Enhanced Productivity with Sabrent's $350 Hybrid Display and Thunderbolt Dock - Featuring 65W USB-C, Ethernet Ports, and More!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundations-in-chinese-typography/"><u>Foundations in Chinese Typography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-etiquette-demystified-saying-oui-and-au-revoir-correctly/"><u>French Etiquette Demystified: Saying 'Oui' And 'Au Revoir' Correctly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-idioms-decoded-top-25-essentials/"><u>German Idioms Decoded: Top 25 Essentials</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-infinix-hot-40i-drfone-by-drfone-android/"><u>How to Screen Mirroring Infinix Hot 40i? | Dr.fone</u></a></li>
-<li><a href="https://win-unique.techidaily.com/selecting-ideal-uplight-fixtures-dj-tips-with-pcdj/"><u>Selecting Ideal UpLight Fixtures - DJ Tips with PCDJ</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-effortless-capture-of-virtual-meeting-footage-on-pcs/"><u>[New] 2024 Approved Effortless Capture of Virtual Meeting Footage on PCs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-summit-series-of-ultimate-4k-touch-screens-for-2024/"><u>[Updated] Summit Series of Ultimate 4K Touch Screens for 2024</u></a></li>
+<li><a href="https://win-info.techidaily.com/analyzing-how-the-taiping-rebellion-reshaped-chinese-society-a-study-by-yl-computing-yl-software-solutions/"><u>Analyzing How the Taiping Rebellion Reshaped Chinese Society - A Study by YL Computing | YL Software Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apertenca-a-cultura-portuguesa-greves-tipicas/"><u>Apertença À Cultura Portuguesa: Greves Tipicas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charm-crafted-conversations-flirting-in-english-dialogue/"><u>Charm Crafted Conversations: Flirting in English Dialogue</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-tutorials-on-how-to-transfer-photos-from-apple-iphone-12-pro-max-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Tutorials on How to Transfer Photos From Apple iPhone 12 Pro Max to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/marauders-dictionary-20-terms-to-sound-like-a-buccaneer/"><u>Marauder's Dictionary: 20 Terms to Sound Like a Buccaneer</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/premium-android-experience-with-3d-videos-for-2024/"><u>Premium Android Experience with 3D Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeless-journey-of-polyglots/"><u>The Timeless Journey of Polyglots</u></a></li>
 </ul></div>
 

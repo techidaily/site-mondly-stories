@@ -1,7 +1,7 @@
 ---
 title: The Worldwide Hispanic Voice Network
-date: 2025-02-04T04:41:38.645Z
-updated: 2025-02-10T16:48:12.995Z
+date: 2025-02-28T02:35:07.054Z
+updated: 2025-02-28T21:52:27.072Z
 tags:
   - speak
   - english
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  The beautiful Spanish language has the**second largest number of native speakers** worldwide. While now you have to travel far and wide to discover**all the Spanish-speaking countries in the world,** things were different a few centuries back. From just a dialect in the 9th century, Spanish is now one of the most widespread languages on Earth. So where exactly is Spanish an official language?
 
  Without further ado, let’s dive in and uncover the full list of Spanish-speaking countries. While we’re at it, we’ll also look into the history behind the expansion of the Spanish language and how many people [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How many people speak Spanish?
 
@@ -59,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in South America
 
@@ -93,19 +85,11 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
  \* the number represents the percentage of the population who speak Spanish.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
 
@@ -156,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Speak Spanish like a local fast
 
  Do you want to feel at home in over 20 countries and speak Spanish fluently fast? Try Mondly, the award-winning language app that is serious about making learning Spanish fun.
@@ -191,20 +171,22 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-does-immediate-subscribing-affect-content-recommendations-for-2024/"><u>[New] Does Immediate Subscribing Affect Content Recommendations for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-topnotch-recorder-for-windows-users-win-10-for-2024/"><u>[New] TopNotch Recorder for Windows Users (Win 10) for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-address-missing-watch-playback-symbol-for-2024/"><u>[Updated] Address Missing Watch Playback Symbol for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-effortless-techniques-recording-and-storing-gotomeeting-data/"><u>2024 Approved Effortless Techniques Recording and Storing GoToMeeting Data</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-5-amazing-free-youtube-intro-makers-ranked/"><u>In 2024, 5 Amazing Free YouTube Intro Makers Ranked</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-iphonedesktops-top-8-video-transformation-tools/"><u>In 2024, IPhone/Desktop's Top 8 Video Transformation Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-dawns-exchanging-good-mornings-across-languages/"><u>International Dawns: Exchanging Good Mornings Across Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-enchantment-learning-by-playing/"><u>Latin Enchantment: Learning by Playing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifetime-access-to-premium-mondly-zero-price/"><u>Lifetime Access to Premium Mondly: Zero Price</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-ai-transparency-the-veracity-of-chatgpt-in-providing-accurate-information/"><u>Navigating AI Transparency: The Veracity of ChatGPT in Providing Accurate Information</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/prepare-for-a-new-chapter-in-communication-with-ai/"><u>Prepare for a New Chapter in Communication with AI</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rediscovering-languages-first-steps/"><u>Rediscovering Language's First Steps</u></a></li>
-<li><a href="https://fox-info.techidaily.com/sparkle-with-style-animating-text-in-your-insta-stories-for-2024/"><u>Sparkle with Style Animating Text in Your Insta Stories for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-foundation-of-fluency-9-essential-english-grammar-strategies-by-an-esl-authority/"><u>The Foundation of Fluency: 9 Essential English Grammar Strategies by an ESL Authority</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triumph-in-global-business-with-language-skills/"><u>Triumph in Global Business With Language Skills</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-understanding-the-zip-to-srt-file-transition/"><u>[Updated] 2024 Approved Understanding the Zip to Srt File Transition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-express-creativity-for-free-your-meme-toolbox-awaits/"><u>[Updated] In 2024, Express Creativity for Free – Your Meme Toolbox Awaits</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-create-a-youtube-music-playlist-on-web-and-mobile-a-detailed-guidance/"><u>2024 Approved Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-to-catalan-fluency-in-10-minsday/"><u>Accelerate to Catalan Fluency in 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-online-korean-learning-the-ultimate-collection/"><u>Expert Tips for Online Korean Learning: The Ultimate Collection</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-lava-blaze-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-expressions-from-around-the-globe-today/"><u>Heartfelt Expressions From Around The Globe Today</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-infinix-smart-8-pro-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Infinix Smart 8 Pro Android SIM Unlock APK</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingering-glances-and-flairful-flattery-in-france/"><u>Lingering Glances and Flairful Flattery in France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-latin-faster-top-rated-online-learning/"><u>Master Latin Faster: Top-Rated Online Learning</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-changes-in-windows-11-app-settings/"><u>Navigating Changes in Windows 11 App Settings</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-stop-motion-animation-made-easy-top-software-for-mac-and-pc/"><u>New Stop Motion Animation Made Easy Top Software for Mac and PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revamp-user-agreement-and-rights/"><u>Revamp: User Agreement & Rights</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/step-by-step-guide-resolving-kernel-dump-errors-caused-by-memory-mismanagement-on-pc/"><u>Step-by-Step Guide: Resolving Kernel Dump Errors Caused by Memory Mismanagement on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-vocabulary-with-mondly-top-app-of-2022/"><u>Transform Your Vocabulary with Mondly - Top App of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-fluency-in-minutes-a-daily-practice-guide-88-chars/"><u>Ukranian Fluency in Minutes: A Daily Practice Guide (88 Chars)</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/1728472918166-excel/"><u>パソコンで失われたExcelファイルの回復手順５つ</u></a></li>
 </ul></div>
 

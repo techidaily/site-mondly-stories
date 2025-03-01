@@ -1,7 +1,7 @@
 ---
 title: Global Halloween Festivities & Customs
-date: 2025-02-05T01:24:25.669Z
-updated: 2025-02-10T16:37:51.521Z
+date: 2025-02-25T20:20:27.661Z
+updated: 2025-03-01T00:47:47.162Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
@@ -30,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 ## Halloween-like Traditions Worldwide
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Mexico: Día de Muertos (Day of the Dead)
 
  Inscribed in the UNESCO Representative List of the Intangible Cultural Heritage of Humanity,_Día de los Muertos_ is celebrated yearly on October 31, November 1, and November 2 to coincide with the celebration the Allhallowtide: All Saints’ Eve, All Saints’ Day, and All Souls’ Day.
@@ -41,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
  The same as Halloween,_Día de Muertos_ is a celebration of the afterlife. Friends and family gather to remember and pray for their loved ones who have died. Mexicans view death as a natural part of the human cycle and praying for someone who has died as a way of helping them in their spiritual journey. So Día de Muertos is not a day of sadness, but one of celebration and color!
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Calaveras” by Valeria Almaraz©
 
@@ -68,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
  Moving to Europe, we discover that although American Halloween is even more notorious here than in other parts of the world, people still have their own traditional ways of celebrating the afterlife. For example, Italy has_Tutti i Morti,_ a public day celebrated on the 1st and 2nd of November by remembering and praying for the deceased.
@@ -79,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
  A few days before the celebration, people visit the cemeteries so their loved ones will have fresh flowers on the grave on the day of the actual ceremonies. Then, they continue with all the other preparations involving different rituals depending on the region. For [example](https://www.italyheritage.com/traditions/calendar/november/ognissanti.htm) , in Puglia, Orsara, it is believed that the souls return from Purgatory, so the Orsaresi decorate the town with_cocce priatorje_ (pumpkins) that symbolize the spirits and lit bonfires to console them. In Sicily, children wake up on the morning of_Giorno dei Morti_ and find small gifts from their deceased relatives, in Abruzzo, children go door to door to ask for gifts for the souls of the dead and in Veneto, the carved pumpkins are called lumère (lanterns) or_suche dei morti_ (deads’ pumpkins) and represent the resurrection.
 
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
 
@@ -136,20 +116,22 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-seamless-youtube-to-file-conversion-techniques/"><u>[Updated] Seamless YouTube to File Conversion Techniques</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/decoding-mathematical-conundrums/"><u>Decoding Mathematical Conundrums</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-handbook-for-j-alphabets-and-symbols/"><u>Essential Handbook for J-Alphabets and Symbols</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-dive-into-urdu-for-10-minsday/"><u>Fast Track to Fluency: Dive Into Urdu for 10 Mins/Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluent-ukrainian-with-10-minute-daily-stretches-93-chars/"><u>Fast Track to Fluent Ukrainian with 10-Minute Daily Stretches (93 Chars)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/francais-des-accueil-une-douceur-exprimee/"><u>Français Des Accueil: Une Douceur Exprimée</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-flirt-the-language-of-seduction/"><u>French Flirt: The Language of Seduction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-basic-to-breakthrough-mondlys-english-journey/"><u>From Basic to Breakthrough: Mondly's English Journey</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/hide-location-on-apple-iphone-15-plus-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>Hide location on Apple iPhone 15 Plus and Android without others knowing | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Honor 90 Lite? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-tecno-camon-20-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Tecno Camon 20 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-infinix-zero-30-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Infinix Zero 30 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/in-depth-review-why-the-logitech-g-pro-x-2-lightspeed-is-essential-for-hardcore-gamers/"><u>In-Depth Review: Why the Logitech G Pro X 2 Lightspeed Is Essential for Hardcore Gamers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-harnessing-home-content-a-commercialized-vlog-journey/"><u>[New] Harnessing Home Content A Commercialized Vlog Journey</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-gadgets-that-shine-in-travel-videography-for-2024/"><u>[Updated] Gadgets That Shine in Travel Videography for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-directly-engage-with-facebooks-video-offerings-via-your-apple-device/"><u>2024 Approved Directly Engage with Facebook's Video Offerings via Your Apple Device</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-subtlety-in-sound-decreasing-decibels-in-logic-pro-projects/"><u>2024 Approved Subtlety in Sound Decreasing Decibels in Logic Pro Projects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-popular-latin-phrases-to-impress-your-friends/"><u>50 Popular Latin Phrases to Impress Your Friends</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/academic-journey-across-time-top-10-history-youtubers-for-2024/"><u>Academic Journey Across Time Top 10 History YouTubers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-pedagogues-gala-linguistic-array/"><u>Earth's Pedagogues Gala: Linguistic Array</u></a></li>
+<li><a href="https://win-community.techidaily.com/free-techniques-for-retrieving-accidentally-erased-photos-from-your-pc-a-step-by-step-guide/"><u>Free Techniques for Retrieving Accidentally Erased Photos From Your PC: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-essence-of-ru-phonology/"><u>Grasping the Essence of RU Phonology</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/herausragende-losungen-fur-die-wiederherstellung-ihrer-iphone-notizen-aus-backups/"><u>Herausragende Lösungen Für Die Wiederherstellung Ihrer iPhone-Notizen Aus Backups</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578913208-how-to-say-thank-you-in-30-different-languages/"><u>How To Say Thank You In 30 Different Languages</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oneplus-nord-n30-5g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your OnePlus Nord N30 5G Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interaktionskultur-deutsches-wortschatz-repertoire-ohne-hallo/"><u>Interaktionskultur: Deutsches Wortschatz-Repertoire Ohne 'Hallo'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-a-gateway-to-smart-minds/"><u>Language Learning - A Gateway to Smart Minds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mast-hopping-lingo-key-pirate-words-for-authenticity/"><u>Mast-Hopping Lingo: Key Pirate Words for Authenticity</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ringtone-reservoir-iphone-voice-memos-2024/"><u>Ringtone Reservoir - iPhone Voice Memos 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hardest-speakers-challenge-deciphering-tough-languages/"><u>The Hardest Speakers' Challenge: Deciphering Tough Languages</u></a></li>
 </ul></div>
 

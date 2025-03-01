@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2025-02-07T03:26:39.770Z
-updated: 2025-02-10T22:25:19.250Z
+date: 2025-02-22T02:22:30.103Z
+updated: 2025-03-01T01:40:35.048Z
 tags:
   - speak
   - english
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 ## Unlocking Essential Expressions for Daily Conversations in China
 
  How should we say “hello” in Chinese? 你好 nǐ hǎo is maybe the most well-known Chinese greeting. But surely, like in many other languages, 你好 nǐ hǎo is not_the only way_ to greet someone in Chinese. There must be different kinds of greetings you can use with friends and other people you are close to, formal greetings that are suitable for business meetings, slightly formal “hello”s you can say when entering a store and so on. Well, indeed, there are! The [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is just as rich in greetings as any other language. So, let’s dive in and learn the best ways to say “hello” in Mandarin like a fluent speaker.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Let’s learn how to actually say “hello” in Mandarin Chinese
 
@@ -58,10 +54,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
@@ -74,10 +66,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Hello there!” by Theodor Lundqvist©
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
@@ -88,17 +76,9 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -136,22 +116,21 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-transforming-srt-a-complete-reference-guide-for-conversion/"><u>[New] In 2024, Transforming SRT A Complete Reference Guide for Conversion</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-echoes-encode-discovering-exceptional-audio-to-text-programs/"><u>[Updated] 2024 Approved Echoes Encode Discovering Exceptional Audio to Text Programs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-reveal-your-future-design-with-our-selection-of-top-9-websites-for-type-innovation/"><u>[Updated] 2024 Approved Reveal Your Future Design with Our Selection of Top 9 Websites for Type Innovation</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-ultimate-guide-new-camera-recording-tech-overview/"><u>[Updated] 2024 Approved Ultimate Guide New Camera Recording Tech Overview</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-prime-skating-moments-from-the-world-cup-22/"><u>[Updated] Prime Skating Moments From the World Cup '22</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-top-ranked-danish-movies-for-mastering-dialect/"><u>6 Top-Ranked Danish Movies for Mastering Dialect</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-your-journey-top-tactics-for-learning-languages-online/"><u>Accelerate Your Journey: Top Tactics for Learning Languages Online</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme Note 50 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-beat-quick-10-minute-daily-study-routine/"><u>Bangla Beat: Quick 10-Minute Daily Study Routine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/basic-chinese-manners-for-everyday-life/"><u>Basic Chinese Manners for Everyday Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-the-gap-mondlys-tech-for-student-success/"><u>Bridging the Gap: Mondly's Tech for Student Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-vietnam-must-know-phrases-and-words/"><u>Discovering Vietnam: Must-Know Phrases and Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-bengali-language-learning/"><u>Efficient Bengali Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-english-advanced-tips-with-mondly/"><u>Elevate Your English: Advanced Tips with Mondly</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-se-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone SE without Losing Data? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 14 Pro Max</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/unlock-zoom-broadcasting-potential-for-youtube-success/"><u>Unlock Zoom Broadcasting Potential for YouTube Success</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-6-best-nft-makers-for-artists-to-unleash-imagination/"><u>[New] 6 Best NFT Makers for Artists to Unleash Imagination</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-expert-picks-best-7-video-streaming-apps-to-take-your-youtube-game-upward-iosandroid/"><u>2024 Approved Expert Picks Best 7 Video Streaming Apps to Take Your YouTube Game Upward (iOS/Android)</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/como-eliminar-la-restriccion-regional-del-dvd-convertir-discos-a-format-libre-en-sistemas-windows-1187/"><u>Cómo Eliminar La Restricción Regional Del DVD: Convertir Discos a Format Libre en Sistemas Windows 11/8/7</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-ultimate-list-of-smartwatch-apps-to-supercharge-your-android-phone/"><u>Discover the Ultimate List of Smartwatch Apps to Supercharge Your Android Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eduvirtua-transforming-linguistics-through-virtual-reality/"><u>EduVirtua: Transforming Linguistics Through Virtual Reality</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-htc-u23-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on HTC U23 Devices | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-correctly-address-and-fix-black-screen-problems-on-your-windows-11-machine/"><u>How to Correctly Address and Fix Black Screen Problems on Your Windows 11 Machine</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-complete-sphere-unveiled-in-film-tech/"><u>In 2024, The Complete Sphere Unveiled in Film Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-legacy-back-button-to-english-excellence/"><u>Linguistic Legacy: Back Button to English Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pidgin-to-portmanteau-the-european-influence-on-brazilian/"><u>Pidgin to Portmanteau: The European Influence on Brazilian</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/professionals-guide-discovering-the-6-most-critical-benefits-of-chatgpt/"><u>Professionals' Guide: Discovering the 6 Most Critical Benefits of ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romanias-language-companion-an-app/"><u>Romania's Language Companion: An App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamline-your-way-to-being-a-latin-whiz/"><u>Streamline Your Way to Being a Latin Whiz</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tuneful-translations-sing-your-way-to-second-language-success/"><u>Tuneful Translations: Sing Your Way to Second Language Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtuatongue-speaking-beyond-borders-in-virtual-reality/"><u>VirtuaTongue: Speaking Beyond Borders in Virtual Reality</u></a></li>
 </ul></div>
 

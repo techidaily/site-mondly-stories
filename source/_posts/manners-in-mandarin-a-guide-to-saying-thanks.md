@@ -1,7 +1,7 @@
 ---
 title: "Manners in Mandarin: A Guide to Saying Thanks"
-date: 2024-07-12T08:08:40.196Z
-updated: 2024-07-13T08:08:40.196Z
+date: 2025-02-24T00:56:29.283Z
+updated: 2025-02-28T20:05:41.394Z
 tags:
   - speak
   - english
@@ -111,8 +111,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,6 +118,20 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-exploring-earning-potential-revenue-from-youtube-advertisements-for-2024/"><u>[New] Exploring Earning Potential Revenue From YouTube Advertisements for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-enhance-ipad-recording-simpler-approaches-revealed/"><u>[New] In 2024, Enhance iPad Recording Simpler Approaches Revealed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-optimize-your-video-consumption-the-guide-to-auto-play-youtube-on-facebook-for-2024/"><u>[New] Optimize Your Video Consumption The Guide to Auto-Play Youtube on Facebook for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-blueprint-entering-itunes-and-google-play-listings/"><u>2024 Approved The Blueprint Entering iTunes and Google Play Listings</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-google-pixel-fold-by-drfone-android/"><u>Full Guide to Unlock Your Google Pixel Fold</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-xiaomi-14-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/initial-steps-in-mastering-arabic-basics/"><u>Initial Steps in Mastering Arabic Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-conversation-in-south-americas-diverse-cultures/"><u>Mastering the Art of Conversation in South America's Diverse Cultures</u></a></li>
+<li><a href="https://win11.techidaily.com/skillful-techniques-for-placing-toolbar-icons-on-desktop/"><u>Skillful Techniques for Placing Toolbar Icons on Desktop</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-samsung-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Samsung Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-colombia-through-dannys-assistance-network/"><u>Uniting Colombia Through Danny's Assistance Network</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-free-and-fantastic-top-mpeg-video-splitter-tools/"><u>Updated 2024 Approved Free and Fantastic Top MPEG Video Splitter Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-tank-om-swedens-varldskomma/"><u>Varför Tänk Om?: Sweden's Världskomma</u></a></li>
+</ul></div>
 

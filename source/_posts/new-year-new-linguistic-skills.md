@@ -1,7 +1,7 @@
 ---
 title: New Year, New Linguistic Skills!
-date: 2025-02-05T22:11:07.024Z
-updated: 2025-02-11T04:28:43.189Z
+date: 2025-02-22T22:35:50.404Z
+updated: 2025-02-28T23:27:38.493Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  It’s that time of the year again! No, not Christmas. Fast-forward a bit. I’m talking about that time of the year when you make unrealistic New Year’s resolutions – like [learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – that won’t probably make it to the end of January. You know it. I know it. Let’s be honest. But that doesn’t mean you shouldn’t focus on personal growth and make a list of resolutions for the upcoming year. Whether it’s language learning or getting in shape, New Year’s resolutions can become a reality with good planning and SMART goals.
 
  Many of us give up early on our New Year’s resolutions because we’re busy and demoralized. We’re only humans, after all. Still, this can change. So, let’s see how you can take up language learning in the new year and keep doing it until December.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Are New Year’s Resolutions?
 
@@ -52,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  Studies show that breaking down your SMART goals into even smaller steps, like learning 1,000 French words by March, further boosts motivation and reward. Achieving this will let you understand 75% of written French without a dictionary. Moreover, involving a friend enhances motivation through competition, unlike sharing goals on social media. According to a [2019 research](https://as.nyu.edu/faculty/peter-m-gollwitzer.html/09%5FGollwitzer%5FSheeran%5FSeifert%5FMichalski%5FWhen%5FIntentions%5F.pdf) , public goal-sharing may diminish determination, as early social recognition acts as a premature reward. In contrast, friendly competition in learning a language or losing weight can spur your competitive spirit, with the reward being your improvement.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Mental Health Benefits of Language Learning
 
  Why should learning a new language be included in your New Year’s resolutions list? Because language learning is [good for your brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . According to multiple studies, the benefits for your cognitive health and well-being are undeniable.
@@ -71,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  The third millennium is governed by stress, depression, sleep deprivation and lack of empathy from those around you. Learning a language can be a fulfilling endeavor that boosts self-esteem, reduces stress, and provides a sense of achievement. So, why not give your brain something to be happy about? Learn Spanish. Learn German. Or maybe learn Japanese. Here are some of the [best tips on how to learn a language fast](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "New Year, New Language: Your New Year Aspirations 6")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Start 2024 with a bang 🎆
 
@@ -92,10 +80,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 * **Easier business travel:** Language proficiency enables professionals to communicate effectively and build stronger relationships with their local partners and clients and better navigate unfamiliar environments.
 
 ![personal growth](https://edge.mondly.com/blog/wp-content/uploads/2019/01/personal-growth-960x704.jpg "New Year, New Language: Your New Year Aspirations 7")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Top 5 To-Do’s for Learning a New Language
 
@@ -117,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## New Year, New Language
 
@@ -152,17 +132,18 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-leading-stock-tutorials-channel-roundup/"><u>[New] 2024 Approved Leading Stock Tutorials Channel Roundup</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-precision-editing-unveiled-harnessing-the-potential-of-ps-background-erasure-feature/"><u>[Updated] 2024 Approved Precision Editing Unveiled Harnessing the Potential of PS Background Erasure Feature</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-simplifying-snapchat-recording-for-smooth-experience/"><u>[Updated] In 2024, Simplifying Snapchat Recording for Smooth Experience</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-tips-for-photo-hdr-mastery-in-photoshop/"><u>2024 Approved Expert Tips for Photo-HDR Mastery in Photoshop</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/battle-tales-and-bygone-dialects-speaking-with-vikings/"><u>Battle Tales and Bygone Dialects: Speaking with Vikings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalonias-linguistic-leap-each-day/"><u>Catalonia's Linguistic Leap – Each Day!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-mondly-journey-with-these-tips/"><u>Elevate Your Mondly Journey with These Tips</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/lenovo-ideapad-assessment-solid-construction-on-a-fundamental-machine/"><u>Lenovo Ideapad Assessment: Solid Construction on a Fundamental Machine</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/motorola-edgeplus-2023-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola Edge+ (2023) Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-3gp-video-cutter-software-a-review-of-the-best-tools-for-2024/"><u>New 3GP Video Cutter Software A Review of the Best Tools for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581546015-rapidly-acquire-japanese-numbers-today/"><u>Rapidly Acquire Japanese Numbers Today!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577828402-why-learn-croatian-discover-its-advantages-and-how-to-start-now/"><u>Why Learn Croatian? Discover Its Advantages and How To Start Now!</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-beyond-the-screen-arvr-infused-inspirational-sayings/"><u>[New] Beyond the Screen AR/VR-Infused Inspirational Sayings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-best-free-video-cutting-apps-your-go-to-list/"><u>[Updated] 2024 Approved Best Free Video Cutting Apps Your Go-To List</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-expert-conversion-tools-for-video-content-for-2024/"><u>[Updated] Expert Conversion Tools for Video Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communications-kings-in-asia-top-3-languages/"><u>Communication's Kings in Asia: Top 3 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-communication-skills-with-pearson/"><u>Cultivate Communication Skills with Pearson</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-top-15-high-definition-recording-systems/"><u>In 2024, Top 15 High-Definition Recording Systems</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/in-depth-look-at-the-asus-rog-maximus-z790-formula-ultimate-performance-with-hybrid-thermal-management/"><u>In-Depth Look at the Asus ROG Maximus Z790 Formula - Ultimate Performance with Hybrid Thermal Management</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-your-iphones-stand-by-glitches-using-these-four-remedial-actions/"><u>Overcome Your iPhone's Stand-By Glitches Using These Four Remedial Actions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/supercharge-your-second-language-skills-fast/"><u>Supercharge Your Second Language Skills, Fast!</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-honor-magic-6-pro-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Honor Magic 6 Pro without backup.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-5-apps-for-language-teachers/"><u>Top 5 Apps For Language Teachers</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-solving-ethernet-not-detected-problems-in-windows-10-and-7/"><u>Troubleshooting Guide: Solving 'Ethernet Not Detected' Problems in Windows 10 & 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-choose-german-herere-10-key-points/"><u>Why Choose German? Here're 10 Key Points</u></a></li>
 </ul></div>
 

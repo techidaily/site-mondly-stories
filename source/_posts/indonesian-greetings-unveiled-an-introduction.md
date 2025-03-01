@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2025-02-06T01:18:45.856Z
-updated: 2025-02-11T00:14:28.199Z
+date: 2025-02-21T19:33:00.629Z
+updated: 2025-02-28T16:19:11.879Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## When and how should you say hello in Indonesia
 
  Unlike other Asian countries that place a big emphasis on the culture of respect, Indonesia doesn’t necessarily use honorifics. Besides, just like in English, Indonesian greetings don’t have formal variations for elders or those of a higher social status.
@@ -36,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -48,19 +40,11 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -79,10 +63,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -126,16 +106,15 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-ideal-beginner-vlogging-gear-for-kids-in-wet-weather/"><u>[Updated] 2024 Approved Ideal Beginner Vlogging Gear for Kids in Wet Weather</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-laptoppc-editors-steer-clear-of-inshot/"><u>[Updated] 2024 Approved Laptop/PC Editors Steer Clear of Inshot</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-innovative-metaverse-memes-a-beginners-roadmap/"><u>[Updated] Exploring Innovative Metaverse Memes A Beginner's Roadmap</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/building-a-brand-through-expertly-planned-onestream-broadcasts/"><u>Building a Brand Through Expertly Planned OneStream Broadcasts</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-new-corsair-k70-driversoftware-download-instructions/"><u>Get the New Corsair K70: Driver/Software Download Instructions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/happiness-abroad-on-independence-day/"><u>Happiness Abroad on Independence Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovative-5-tools-revolutionizing-language-education/"><u>Innovative 5 Tools Revolutionizing Language Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/peering-into-mondlys-educational-techniques/"><u>Peering Into Mondly’s Educational Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revisiting-gamings-golden-age-the-ultimate-guide-to-super-mario-bros-on-the-vintage-handheld-gem/"><u>Revisiting Gaming's Golden Age: The Ultimate Guide to Super Mario Bros. On the Vintage Handheld Gem</u></a></li>
-<li><a href="https://win-tips.techidaily.com/step-by-step-tutorial-converting-charlie-rose-shows-into-mp4mov-format-on-macos-and-windows-systems/"><u>Step-by-Step Tutorial: Converting Charlie Rose Shows Into MP4/MOV Format on macOS and Windows Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-richness-of-romantic-vernaculars/"><u>The Richness of Romantic Vernaculars</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-huawei-nova-y71-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Huawei Nova Y71 Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-top-5-online-film-editors/"><u>2024 Approved Top 5 Online Film Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombias-caregiving-organization-fundacion-danny/"><u>Colombia’s Caregiving Organization - Fundacion Danny</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-urdu-10-minute-challenge/"><u>Daily Dose of Urdu – 10-Minute Challenge</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-tecno-camon-20-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Tecno Camon 20 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-elevate-reality-tiktoks-artistic-transformations/"><u>In 2024, Elevate Reality TikTok's Artistic Transformations</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-curated-pick-for-fluent-multilingualism/"><u>Mondly: A Curated Pick for Fluent Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-indonesian-conversations-a-quick-guide/"><u>Unlocking Indonesian Conversations: A Quick Guide</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721097773366-windows-11-and-qualcomm-atheros-restoring-bluetooth-connectivity-with-proven-solutions/"><u>Windows 11 and Qualcomm Atheros: Restoring Bluetooth Connectivity with Proven Solutions.</u></a></li>
 </ul></div>
 

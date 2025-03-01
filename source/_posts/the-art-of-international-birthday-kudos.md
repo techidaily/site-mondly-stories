@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2025-02-08T19:05:59.812Z
-updated: 2025-02-10T23:44:48.488Z
+date: 2025-02-24T21:25:43.217Z
+updated: 2025-02-28T16:32:58.081Z
 tags:
   - speak
   - english
@@ -22,17 +22,9 @@ Different people in the world have different trends to celebrate birthdays, but 
 
 Have you ever thought about how people from other cultures sing birthday songs? Do they do it the same way we do it in English? What about gifts and cakes? How do they express emotions on a birthday? Do they use specific words? Let’s learn how other cultures say and commemorate birthdays!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Spanish: Feliz Cumpleaños**
 
 **Feliz Cumpleaños** are the [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for **“Happy Completed Years”** or simply **“Happy Birthday”** since birthdays are considered a big day of celebration in most Spanish countries. “Feliz Cumpleaños amigo” is a commonly used phrase for wishing a happy birthday to your friends. The same as in Mexico, their popular unique birthday song is “Las Mañanitas“ meaning “Little Mornings“. The best and funniest part is that the birthday boy or girl must eat the first bite of the cake without using any utensils or hands. They have no custom of blowing out candles or making a wish. Yet, the party cannot ever finish without the famous piñata!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Happy Birthday in French: Bon Anniversaire**
 
@@ -47,10 +39,6 @@ Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a 
 Chinese culture has an interesting concept of birthday celebrations. Depending on a person’s gender, certain birthdays pass without acknowledgment or require special handling. Women, for example, do not celebrate turning 30, 33 or 66\. Another interesting custom are the longevity noodles that are considered a sign of good fortune and long life. So these noodles are a must eat without breaking (it’s a sign of good luck).
 
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
@@ -68,17 +56,9 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 
 ![happy birthday in swedish](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-swedish.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -121,20 +101,20 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-advanced-screen-recording-suite-for-windows-and-macos/"><u>[New] In 2024, Advanced Screen Recording Suite for Windows & macOS</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-effortless-note-management-on-mematic-platform/"><u>[New] In 2024, Effortless Note Management on Mematic Platform</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-premier-pro-essentials-accessible-for-all-editors/"><u>[Updated] 2024 Approved The Premier Pro Essentials - Accessible for All Editors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/9-secrets-to-flawless-verbal-presentations-and-debates/"><u>9 Secrets to Flawless Verbal Presentations & Debates</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/africas-whispering-winds-language-diversity/"><u>Africa's Whispering Winds: Language Diversity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/becoming-a-pronunciation-pro-engage-with-english-twisters-100/"><u>Becoming a Pronunciation Pro: Engage With English Twisters (100)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/din-valkommen-svensk-forsal/"><u>Din Välkommen: Svensk Försal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575407428-elite-online-agencies-speak-any-new-language-with-confidence/"><u>Elite Online Agencies: Speak Any New Language with Confidence</u></a></li>
-<li><a href="https://windows11.techidaily.com/illuminating-windows-11-tray-and-secret-icons/"><u>Illuminating Windows 11 Tray & Secret Icons</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-13-mini-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 13 mini Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/seamless-steps-mastering-hevc-video-import-and-editing-with-adobe-premiere-pro/"><u>Seamless Steps: Mastering HEVC Video Import & Editing with Adobe Premiere Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581253400-supercharge-your-second-language-skills-fast/"><u>Supercharge Your Second Language Skills, Fast</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-solution-for-normalizdll-missing-error-on-windows/"><u>The Ultimate Solution for 'Normaliz.dll Missing Error' On Windows</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-tecno-pova-6-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Tecno Pova 6 Pro 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-xiaomi-redmi-a2plus-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Xiaomi Redmi A2+? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-igniting-interest-and-inviting-in-accelerating-audience-acquisition/"><u>[New] Igniting Interest and Inviting In Accelerating Audience Acquisition</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-seamless-social-circulation-sharing-your-journey-through-video-on-facebook-for-2024/"><u>[New] Seamless Social Circulation Sharing Your Journey Through Video on Facebook for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/15-fluency-boosting-proverbs-in-modern-spanish/"><u>15 Fluency-Boosting Proverbs in Modern Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/american-english-a-study-of-variants/"><u>American English: A Study of Variants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-vernacular-saying-it-right/"><u>Australian Vernacular: Saying It Right</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-por-que-similarities-and-distinctions/"><u>Decoding 'Por Que': Similarities and Distinctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576816955-elevate-your-global-presence-learn-croatian-and-these-7-benefits/"><u>Elevate Your Global Presence - Learn Croatian and These 7 Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everywhere-ace-apples-app-of-the-day/"><u>Everywhere Ace: Apple's App of the Day</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-xiaomi-redmi-note-12r-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Xiaomi Redmi Note 12R Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-oppo-reno-8t-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Oppo Reno 8T 5G FRP Bypass</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-from-simulation-to-reality-jaunt-vrs-journey/"><u>In 2024, From Simulation to Reality Jaunt VR's Journey</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-apple-championed-as-ed-tech-elite-10-list-feat/"><u>Mondly & Apple Championed as Ed-Tech Elite: #10 List Feat.</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mov-m4a-m4b-movavi/"><u>MOV 以及 M4A, M4B 等多種格式的直接 MOVAVI 無限制免費解碼器 - 適用於任何平台的優化</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723007493298-troubleshooting-steps-resolving-cult-of-the-lamb-pc-game-crashes/"><u>Troubleshooting Steps: Resolving Cult of the Lamb PC Game Crashes</u></a></li>
 </ul></div>
 

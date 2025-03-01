@@ -1,7 +1,7 @@
 ---
 title: Time Optimization for Numerical Japanese
-date: 2025-02-07T03:22:33.461Z
-updated: 2025-02-11T01:31:35.943Z
+date: 2025-02-21T23:49:38.947Z
+updated: 2025-03-01T02:29:14.642Z
 tags:
   - speak
   - english
@@ -92,10 +92,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Counting In Japanese From 1 To 10000 8")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Do you want to learn Japanese? 🗻
 
  Get started with Mondly, the award-winning language app that makes learning Japanese a breeze.
@@ -148,10 +144,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Japanese Lucky Numbers
 
  The two main**Japanese lucky numbers are seven (なな, Nana) and eight (はち, Hachi).** Given this, do you think the names of two of the most popular Japanese animal characters in the world were merely coincidental? We’re talking, of course, about the cat Nana from_The Travelling Cat Chronicles_ by Hiro Arikawa and Hachi from_Hachiko: The True Story of a Loyal Dog_ by Pamela S. Turner.
@@ -159,10 +151,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
  While the number 8 (八) is considered lucky in Japanese culture due to its shape (it resembles a fan), seven is deemed fortunate because of its significance in Buddhism and its connection to the Seven Gods of Luck (七福神).
 
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
 
@@ -188,10 +176,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Japanese counters for animals
 
  For small animals like insects, fish, dogs or cats, you need to use the counter \~匹_(_ _hiki_ _)._ For larger animals, such as elephants, the appropriate counter \~頭_(tou)_ .
@@ -208,10 +192,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  Not ready to dive into**Japanese counters** yet? Then consider using the general-purpose counter based on the Native-Japanese reading (一つ_hitotsu ,_ 二つ_futatsu_ and so on). This system allows you to count almost any kind of object up to ten without worrying about using the incorrect counter.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Special Number Zero in Japanese
 
  For zero in Japanese, the kanji is 零 (_rei_). However, it is more common to use and pronounce “zero” the same way as in English: ゼロ (_zero_). Alternatively, マル (_maru_), meaning “circle”, is used used similarly to how “oh” is used instead of “zero” in English when reading individual digits of a number.
@@ -222,17 +202,9 @@ In conclusion,  while the prevalence of Arabic numerals in Japan offers a famili
 
 Before you go, make sure you check out these FAQs.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to say numbers in Japanese?
 
  To say numbers in Japanese, start by learning the numbers up to 10: ichi (1), ni (2), san (3), yon (4), go (5), roku (6), nana (7), hatchi (8), kyu (9) and juu (10). If you're not familiar with the Japanese writing system, you may have to rely heavily on the Romanized version (Romaji) to learn the correct pronunciation of each number. Once you've mastered the numbers 1-10 in Japanese, counting up to 100 becomes straightforward.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to write Japanese numbers?
 
@@ -274,16 +246,22 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-capture-and-craft-premium-coverings-for-iphonesandroid/"><u>[Updated] In 2024, Capture and Craft Premium Coverings for iPhones/Android</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578590735-become-a-home-cooking-wizard-in-just-three-easy-steps/"><u>Become a Home Cooking Wizard in Just Three Easy Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-down-10-effective-ways-to-say-hello-in-spanish/"><u>Breaking Down 10 Effective Ways to Say 'Hello' In Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-learning-for-real-romanians/"><u>Digital Learning for Real Romanians</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-latest-from-digiarty-software-powerful-mac-dvd-ripping-and-conversion-app-now-available/"><u>Discover the Latest From Digiarty Software - Powerful Mac DVD Ripping and Conversion App Now Available!</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-c67-4g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme C67 4G to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/maximizing-pc-color-with-windows-hdri-for-2024/"><u>Maximizing PC Color with Windows HDRI for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581561649-most-popular-immigrant-languages-educated-in-us/"><u>Most Popular Immigrant Languages Educated In U.S.</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-video-podcasts-everything-you-need-to-know/"><u>New In 2024, Video Podcasts Everything You Need to Know</u></a></li>
-<li><a href="https://win-great.techidaily.com/transferring-images-from-your-iphone-to-a-pc-or-mac-a-step-by-step-guide/"><u>Transferring Images From Your iPhone to a PC or Mac: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-forum.techidaily.com/upgrading-your-system-step-by-step-guide-to-refreshing-windows-10-driver-software/"><u>Upgrading Your System: Step-by-Step Guide to Refreshing Windows 10 Driver Software</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ideal-images-scenery-for-engaging-online-audiences/"><u>[Updated] Ideal Images Scenery for Engaging Online Audiences</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-complete-angle-manipulation-handbook-for-youtube-videos-for-2024/"><u>[Updated] The Complete Angle Manipulation Handbook for YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-metaverse-memetic-guide-sparkle-with-satire-and-smiles-for-2024/"><u>[Updated] The Metaverse Memetic Guide - Sparkle with Satire and Smiles for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-no-budget-no-problem-here-are-the-best-vfx-pages/"><u>2024 Approved No Budget? No Problem! Here Are the Best VFX Pages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingualism-and-esl-teaching-methods/"><u>Bilingualism and ESL Teaching Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ensenanza-diaria-semana-completa-en-espanol/"><u>Enseñanza Diaria: Semana Completa en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-mastering-language-with-mondly-2022/"><u>From Novice to Expert: Mastering Language with Mondly, 2022</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-enhancing-social-reach-youtube-videos-on-facebook-sites/"><u>In 2024, Enhancing Social Reach YouTube Videos on Facebook Sites</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-laptop-landscapes-curate-the-ultimate-collection-of-screen-decor/"><u>In 2024, Laptop Landscapes Curate the Ultimate Collection of Screen Decor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579840764-language-learning-revolution-at-your-fingertips-free-and-cheap/"><u>Language Learning Revolution at Your Fingertips, Free & Cheap</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-connects-to-pearson-scholarship-network/"><u>Mondly Connects to Pearson Scholarship Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579758376-never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/izing-income-through-youtube-short-tutorials/"><u>Optimizing Income Through YouTube Short Tutorials</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/sustaining-a-day-job-while-building-your-online-presence-for-2024/"><u>Sustaining a Day Job While Building Your Online Presence for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-bokmal-breakthroughs-daily-dose/"><u>Swift Bokmål Breakthroughs - Daily Dose!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-earths-primordial-speeches/"><u>The Ultimate List of Earth's Primordial Speeches</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-lava-blaze-pro-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Lava Blaze Pro 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

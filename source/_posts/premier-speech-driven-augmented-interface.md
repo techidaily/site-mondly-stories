@@ -1,7 +1,7 @@
 ---
 title: Premier Speech-Driven Augmented Interface
-date: 2025-02-10T00:03:08.899Z
-updated: 2025-02-10T23:13:22.781Z
+date: 2025-02-27T18:37:32.658Z
+updated: 2025-03-01T01:11:15.854Z
 tags:
   - speak
   - english
@@ -26,29 +26,17 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
  Just as futuristic, the chatbot experience from Mondly aims to be the closest thing to a real interaction. Mondly understands spoken language, replies with a human voice, changes her outfit to match the topic of discussion and uses gestures and facial expressions to create dynamic dialogues.
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Alex Iliescu, our CEO, spoke about the launch:
 
@@ -69,10 +57,6 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -85,10 +69,6 @@ Alex Iliescu, our CEO, spoke about the launch:
 * Launched [Mondly VR](https://www.oculus.com/experiences/quest/4214902388537196/?utm%5Fsource=mondly&utm%5Fcampaign=blog&utm%5Fchannel=direct) , the first Virtual Reality language app with speech recognition in the world in February 2017
 * Available on iPhone, iPad, Android and Web
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Media mentions about Mondly
 
@@ -119,20 +99,20 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-premier-audio-archivers-for-teachings-for-2024/"><u>[Updated] Premier Audio Archivers for Teachings for 2024</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/complimentary-windows-10-data-rescue-utility-on-usb-free-download-and-guide/"><u>Complimentary Windows 10 Data Rescue Utility on USB: Free Download & Guide</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209636671-9781547571345-meditacion-atencion-plena-para-que-los-principiantes-eliminen-el-estres/"><u>Meditación: Atención Plena Para Que Los Principiantes Eliminen El Estrés | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mosaic-honoring-european-linguistic-heritage/"><u>Multilingual Mosaic: Honoring European Linguistic Heritage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nations-with-hispanic-voices-collected/"><u>Nations with Hispanic Voices Collected</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pc-gaming-fixes-solving-continuous-crashes-in-assassins-creed-valhalla/"><u>PC Gaming Fixes: Solving Continuous Crashes in Assassin's Creed Valhalla</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplifying-your-approach-to-spanish-verbal-usage/"><u>Simplifying Your Approach to Spanish Verbal Usage</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/solving-non-responsive-application-issues-expert-guide-from-yl-computing/"><u>Solving Non-Responsive Application Issues: Expert Guide From YL Computing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/taking-on-giants-a-comprehensive-review-of-apples-ipad-mini-5/"><u>Taking on Giants: A Comprehensive Review of Apple's iPad Mini 5</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-korean-days-an-introductory-guide/"><u>The Essentials of Korean Days: An Introductory Guide</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-realme-narzo-60x-5g-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Realme Narzo 60x 5G for Parents | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-cinematographer-secrets-for-exceptional-visuals-for-2024/"><u>Top Cinematographer Secrets for Exceptional Visuals for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-tech-enhanced-language-learning-for-corporates/"><u>Top Tech-Enhanced Language Learning for Corporates</u></a></li>
-<li><a href="https://techtrends.techidaily.com/twitch-account-deletion-process-explained-in-detail/"><u>Twitch Account Deletion Process Explained in Detail</u></a></li>
-<li><a href="https://discover-best.techidaily.com/unlocking-roi-through-process-optimization-expert-tips-and-strategies-from-abbyys-data-science-blog/"><u>Unlocking ROI Through Process Optimization: Expert Tips and Strategies From ABBYY's Data Science Blog</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-owners-guide-to-playlist-permutations-in-yt-for-2024/"><u>[New] An Owner's Guide to Playlist Permutations in YT for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-effortless-method-integrating-flipper-voices-on-your-windows-os-for-2024/"><u>[New] Effortless Method Integrating Flipper Voices on Your Windows OS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-no-budget-no-problem-here-are-the-best-vfx-pages/"><u>[New] No Budget? No Problem! Here Are the Best VFX Pages</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-skys-biggest-load-carriers-drones-ranked/"><u>[New] Sky's Biggest Load Carriers Drones Ranked</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-ultimate-evaluation-of-asuss-hdr-and-true-black-precision/"><u>2024 Approved The Ultimate Evaluation of ASUS's HDR & True Black Precision</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brainpower-boost-bilingualisms-six-key-assets/"><u>Brainpower Boost: Bilingualism's Six Key Assets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breathless-brilliance-practice-with-eng-twisters/"><u>Breathless Brilliance: Practice With Eng Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-world-languages-in-virtual-reality-with-mondly/"><u>Discover World Languages in Virtual Reality with Mondly</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-tips-on-how-to-maintain-optimal-performance-by-updating-audio-technica-drivers/"><u>Expert Tips on How to Maintain Optimal Performance by Updating Audio Technica Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580871897-fast-track-conquering-japans-number-system/"><u>Fast Track: Conquering Japan's Number System!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-habilidad-verbal-convierte-a-colores/"><u>La Habilidad Verbal Convierte a Colores</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-writing-with-simple-keyboard-shortcuts/"><u>Mastering the Art of Writing ♥ with Simple Keyboard Shortcuts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickstep-bengali-learn-in-minutes-a-day/"><u>Quickstep Bengali: Learn in Minutes a Day</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-strategies-for-enhancing-your-pcs-speed-and-efficiency-insights-from-yl-software/"><u>Top Strategies for Enhancing Your PC's Speed & Efficiency - Insights From YL Software</u></a></li>
 </ul></div>
 

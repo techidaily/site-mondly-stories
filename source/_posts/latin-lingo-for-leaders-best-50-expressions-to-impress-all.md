@@ -1,7 +1,7 @@
 ---
 title: "Latin Lingo for Leaders: Best 50 Expressions to Impress All"
-date: 2025-02-09T19:39:23.829Z
-updated: 2025-02-10T16:09:33.573Z
+date: 2025-02-26T20:17:40.978Z
+updated: 2025-03-01T00:11:53.384Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/56c9727e1647faa9df05a7ff87a2cebb670ed94ea
 
  Far from being a dead language, Latin is very much alive in our day-to-day conversations._Carpe diem, et cetera, cum laude, curriculum vitae_ and_mea culpa_ are just a few of the Latin phrases still widely used today. It’s unclear whether Latin made a comeback or it has been this cool for hundreds of years. But one thing is sure: **Latin phrases are nowadays the cooler siblings of slang words.** And Julius Caesar approves this message. So, let’s see the most famous Latin phrases you can use to impress your friends.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Famous Latin Phrases you need to know
 
 These are nearly as famous as Julius Caesar himself.
@@ -37,10 +33,6 @@ These are nearly as famous as Julius Caesar himself.
 ### **Carpe diem. —** _Seize the day._
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
@@ -61,10 +53,6 @@ These are nearly as famous as Julius Caesar himself.
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
@@ -140,10 +128,6 @@ Every student’s favorite. We all know what this one means, don’t we?
 
  “In vino veritas” by Daniel Vogel©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Cool Latin that are still used today
 
  Do you know what’s the coolest thing about these following cool [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? They’re evergreen. If time travel gets invented in a few years,[these phrases](https://en.wikipedia.org/wiki/List%5Fof%5FLatin%5Fphrases%5F%28full%29) are gonna come in handy regardless of the century you choose to travel to. Besides, this selection includes only the most relevant expressions so you don’t have to worry about redundancy.
@@ -171,10 +155,6 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
  Or so Lucretius said. Originally meaning “work is required to succeed”, the modern reinterpretation suggests that “everything has its origins in something”.
 
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
 
@@ -300,10 +280,6 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -311,10 +287,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
  Besides, Latin can prepare you for many professions or simply discussions with scholarly people. These fields include law, medicine, science, music, theology, philosophy, art, and literature. Many scholars believe that learning Latin also sharpens the mind and cultivates analysis and attention.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Why are Latin words used in law?
 
@@ -356,21 +328,24 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/aster-adding-youtube-videos-to-gslides-a-step-by-step-guide/"><u>[New] Master Adding YouTube Videos to GSlides A Step-by-Step Guide</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/1728462367591-onedrive/"><u>重新同步OneDrive文件：完全指南</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/a-curated-selection-of-11-amazing-sites-for-free-movie-downloads-no-payments-required/"><u>A Curated Selection of 11 Amazing Sites for Free Movie Downloads – No Payments Required</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprender-a-contar-el-tiempo-y-las-horas-en-espanol/"><u>Aprender a Contar El Tiempo Y Las Horas en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bengali-boost-learn-efficiently-live-linguistically/"><u>Bengali Boost: Learn Efficiently, Live Linguistically</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580131323-conquer-communication-with-unbeatable-linguistic-savings-this-year/"><u>Conquer Communication with Unbeatable Linguistic Savings This Year!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-bilingual-advocates-through-esl-programs/"><u>Cultivating Bilingual Advocates Through ESL Programs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-dialogues-the-turkish-korean-connection/"><u>Cultural Dialogues: The Turkish-Korean Connection</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/effective-solutions-for-halo-infinite-visual-disruptions/"><u>Effective Solutions for Halo Infinite Visual Disruptions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/einfaches-deutsch-von-1-bis-100-zahlen-lernen/"><u>Einfaches Deutsch: Von 1 Bis 100 Zählen Lernen</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/error-224003-repairing-file-playback/"><u>Error 224003: Repairing File Playback</u></a></li>
-<li><a href="https://some-skills.techidaily.com/guide-to-boost-your-telegram-marketing-efforts-for-2024/"><u>Guide to Boost Your Telegram Marketing Efforts for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581331881-mondly-by-pearson/"><u>Mondly by Pearson</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ronized-screenscape-tv-loops-of-online-media/"><u>Synchronized Screenscape TV Loops of Online Media</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/unmatched-video-downloads-top-8-for-2024/"><u>Unmatched Video Downloads Top 8 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maintain-proper-aspect-ratio-for-tweeted-movies/"><u>[New] 2024 Approved Maintain Proper Aspect Ratio for Tweeted Movies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-boosting-earnings-in-the-quick-flicks-of-youtube-shorts/"><u>[New] In 2024, Boosting Earnings in the Quick Flicks of YouTube Shorts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-global-perspective-why-become-bilingual-or-multilingual/"><u>A Global Perspective: Why Become Bilingual or Multilingual?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/boost-connectivity-discover-the-best-5-chrome-tools-for-facebook-videos-for-2024/"><u>Boost Connectivity Discover the Best 5 Chrome Tools for Facebook Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-diversity-of-european-languages-celebrating-europe-day/"><u>Discovering The Diversity Of European Languages – Celebrating Europe Day</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/fixes-implemented-popcorn-time-overcomes-previous-black-screen-and-load-failures-for-optimal-streaming-experience/"><u>Fixes Implemented: Popcorn Time Overcomes Previous Black Screen and Load Failures for Optimal Streaming Experience</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/fraud-alert-vigilant-against-gpt-scams/"><u>Fraud Alert: Vigilant Against GPT Scams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/giro-vocale-dei-numeri-in-italiano-1-1000/"><u>Giro Vocale Dei Numeri in Italiano - 1-1000</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-color-correction-mastery-blending-video-clips-seamlessly-in-powerdirector/"><u>In 2024, Color Correction Mastery Blending Video Clips Seamlessly in PowerDirector</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-quick-tip-to-uncover-your-recently-watched-movies-on-fb/"><u>In 2024, Quick Tip to Uncover Your Recently Watched Movies on FB</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-unlock-hidden-potential-snapchat-zooming-tips/"><u>In 2024, Unlock Hidden Potential Snapchat Zooming Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580248149-master-a-new-tongue-for-just-044-today/"><u>Master a New Tongue for Just $0.44 Today</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/maximize-your-marketing-metrics-top-8-apps-for-facebook-like-boost/"><u>Maximize Your Marketing Metrics Top 8 Apps for Facebook Like Boost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-en-espanol-recuerdales-los-dias-correspondientes/"><u>Semana en Español: Recuérdales Los Días Correspondientes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-romance-language-nations/"><u>The Complete Set of Romance Language Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-multilingual-mindset-how-to-become-a-fluent-polyglot/"><u>The Multilingual Mindset: How to Become a Fluent Polyglot</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/116679-9781582186399-the-soul-of-the-indian/"><u>The Soul of the Indian | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579612218-unlock-global-conversations-with-an-exclusive-95-discounted-learning-plan/"><u>Unlock Global Conversations with an Exclusive 95% Discounted Learning Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-linguistic-mastery-with-these-neural-workouts/"><u>Unlock Linguistic Mastery with These Neural Workouts</u></a></li>
 </ul></div>
 

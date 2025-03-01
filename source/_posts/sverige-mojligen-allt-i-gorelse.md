@@ -1,7 +1,7 @@
 ---
 title: "Sverige Möjligen: Allt I Görelse"
-date: 2025-02-03T20:27:46.091Z
-updated: 2025-02-10T16:43:04.455Z
+date: 2025-02-28T01:25:54.841Z
+updated: 2025-02-28T19:32:33.465Z
 tags:
   - speak
   - english
@@ -30,17 +30,9 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
 
@@ -50,25 +42,13 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -98,18 +78,20 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-instant-designing-techniques-for-fortnite-images/"><u>[New] 2024 Approved Instant Designing Techniques for Fortnite Images</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-access-high-res-fb-media-files/"><u>[New] Access High Res FB Media Files</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-melodic-motion-in-imovie-editing-mastery/"><u>[New] Melodic Motion in iMovie Editing Mastery</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-best-powerpoint-to-video-converters-for-2024/"><u>[Updated] Best PowerPoint to Video Converters for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-chat-enhancements-set-to-transform-user-experience/"><u>Facebook's Chat Enhancements Set to Transform User Experience</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-how-to-edit-audio-on-youtube/"><u>In 2024, How to Edit Audio on YouTube</u></a></li>
-<li><a href="https://extra-information.techidaily.com/lead-the-way-in-the-metaverse-your-tech-checklist/"><u>Lead the Way in the Metaverse Your Tech Checklist</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/precision-in-speech-french-pronunciation-for-newcomers/"><u>Precision in Speech: French Pronunciation for Newcomers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/solved-overcoming-challenges-when-using-older-usb-composite-device-models/"><u>Solved: Overcoming Challenges When Using Older USB Composite Device Models</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sonic-synchronicity-100-tongue-twister-triumphs/"><u>Sonic Synchronicity: 100 Tongue Twister Triumphs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-world-communication-with-a-95-discount-on-language-learning/"><u>Unlock World Communication with a 95% Discount on Language Learning</u></a></li>
-<li><a href="https://games-able.techidaily.com/unpacking-sony-online-entertainments-monthly-fees/"><u>Unpacking Sony Online Entertainment's Monthly Fees</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-revolutionizing-audio-documentation-the-art-of-call-recording/"><u>[New] 2024 Approved Revolutionizing Audio Documentation The Art of Call Recording</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-quick-tips-for-quality-animation-in-movie-maker/"><u>[New] Quick Tips for Quality Animation in Movie Maker</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-telegram-promotion-techniques-for-marketing-beginners/"><u>[New] Telegram Promotion Techniques For Marketing Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/complete-insiders-guide-to-japanese-scripts/"><u>Complete Insider’s Guide to Japanese Scripts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/discover-convenience-at-every-turn-how-to-leverage-google-maps-favorite-places-for-seamless-navigation/"><u>Discover Convenience at Every Turn: How to Leverage Google Maps' Favorite Places for Seamless Navigation</u></a></li>
+<li><a href="https://win-able.techidaily.com/experience-epic-battles-with-god-of-war-first-person-shooter-for-windows-and-pc-gamers/"><u>Experience Epic Battles with God of War First-Person Shooter for Windows and PC Gamers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Sony Phone without Any Data Loss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-economical-lenovo-chromebook-duet-the-dual-function-device-breakdown/"><u>In-Depth Review of the Economical Lenovo Chromebook Duet: The Dual-Function Device Breakdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-communication-through-turkey-and-korea/"><u>Intercultural Communication Through Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-gems-from-worldwide-cinemas/"><u>Language Gems From Worldwide Cinemas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-champions-innovation-seizes-award/"><u>Mondly Champions Innovation, Seizes Award</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721103846329-optimize-bluetooth-drivers-make-windows-work-better/"><u>Optimize Bluetooth Drivers, Make Windows Work Better</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharp-sanctions-to-combat-falsehood-spreaders-on-fb/"><u>Sharp Sanctions to Combat Falsehood Spreaders on FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-language-essentials-10-different-greeting-phrases/"><u>Spanish Language Essentials: 10 Different Greeting Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-asian-linguistic-titans-unveiled/"><u>Top 3 Asian Linguistic Titans Unveiled</u></a></li>
 </ul></div>
 

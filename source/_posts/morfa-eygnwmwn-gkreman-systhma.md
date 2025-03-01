@@ -1,7 +1,7 @@
 ---
 title: Μόρφα Ευγνώμων Γκρεμάν Συστήμα
-date: 2025-02-10T00:42:23.703Z
-updated: 2025-02-11T03:48:44.809Z
+date: 2025-02-22T22:13:36.648Z
+updated: 2025-02-28T20:40:44.085Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
  In this quick Greek lesson, we’ll show you only the practical ways to say thank you in Greek. The thanks you’ll actually need and use in real life. Additionally, we’ll also go over how to say ‘please’ or ‘you’re welcome’ in Greek. As a result, you’ll know exactly what to say and when to say it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What does efcharistó mean in Greek?
 
  **(Ευχαριστώ)_Efcharistó_ is the most popular way to say ‘thank you’ in Greek.** More similar to ‘thanks’ than ‘thank you’,[_efcharistó_](https://greekerthanthegreeks.com/2015/12/lost-in-translationword-of-day.html) is an informal way of expressing gratitude. Generally, it is most commonly used as a response to a small act of kindness or a basic courtesy from a friend, family member or colleague.
@@ -34,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The informal ‘thank you’ in Greek
 
  It’s true that ευχαριστώ (_efcharistó_ – ‘thanks’) is more than enough to ‘survive’ in [Greece](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . It’s not a Greek tragedy if your Greek vocabulary is not on point. Most Greek people speak English and won’t expect you to be fluent in Greek.
@@ -45,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  However, if you want to say more than just ‘thanks’, **you can say σ’ ευχαριστώ_(s’ efcharistó)_ which is ‘thank you’ in Greek.** Although informal_, s’ efcharistó_ is more similar to ‘thank you’ and can be used safely when giving thanks to friends or colleagues.
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The formal ‘thank you’ in Greek
 
@@ -81,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## When should you say ‘thank you’ in Greek?
 
  When should you say ‘please’, ‘thank you’ or ‘you’re welcome’ in Greek? Well, the key is to remember not to exaggerate. Excessive use of politeness can be seen as either weird or mocking especially in Athens, where the basic interaction and attitude resembles that of metropolises like New York or London. Sometimes a smile is just enough.
@@ -93,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
 
@@ -128,20 +108,18 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-extended-scope-camera-platforms/"><u>[Updated] 2024 Approved Extended Scope Camera Platforms</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-how-to-take-advantage-of-itunes-for-video-capture-for-2024/"><u>[Updated] How to Take Advantage of iTunes for Video Capture for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-insight-into-t-series-profit-from-youtube-platforms/"><u>2024 Approved Insight Into T-Series Profit From YouTube Platforms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-roundup-the-elite-selection-of-long-distance-wifi-routers/"><u>Comprehensive Roundup: The Elite Selection of Long-Distance WiFi Routers</u></a></li>
-<li><a href="https://techtrends.techidaily.com/convert-files-free-of-charge-ogg-to-aiff-with-movavis-online-tool/"><u>Convert Files Free of Charge: OGG to AIFF with Movavi's Online Tool</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-and-effective-top-5-multilingual-learning-apps/"><u>Engaging & Effective: Top 5 Multilingual Learning Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-japanese-on-calls-compilation/"><u>Essential Japanese On-Calls Compilation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exclusive-free-access-to-mondly-premium/"><u>Exclusive Free Access to Mondly Premium</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/t-advice-to-recover-missing-thumbnails-from-videos-for-2024/"><u>Expert Advice to Recover Missing Thumbnails From Videos for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-french-social-norms-through-greetings-and-etiquette/"><u>Exploring French Social Norms Through Greetings and Etiquette</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/farewells-in-deutsch-eine-sammlung-von-abschiedsvorsatzen/"><u>Farewells in Deutsch: Eine Sammlung Von Abschiedsvorsätzen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-expressiveness-boosted-by-27-culturally-rich-phrases/"><u>French Expressiveness Boosted by 27 Culturally Rich Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-pro-navigating-mondly-proficiently/"><u>From Novice to Pro: Navigating Mondly Proficiently</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-honor-x9b-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Honor X9b</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ultimate-guide-to-winx-mediatrans-top-app-for-seamless-ios-and-windows-phone-data-transfers/"><u>Ultimate Guide to WinX MediaTrans™: Top App for Seamless iOS & Windows Phone Data Transfers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-ultimate-guide-to-fb-messenger-call-archiving/"><u>[New] The Ultimate Guide to FB Messenger Call Archiving</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-expert-tips-to-seamlessly-retrieve-youtube-srt-subtitles/"><u>[Updated] In 2024, Expert Tips to Seamlessly Retrieve YouTube SRT Subtitles</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1-best-value-299-laptops-ideal-choice-for-university-scholars-top-reviews-by-zdnet/"><u>1. Best Value $299 Laptops: Ideal Choice for University Scholars - Top Reviews by ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendizaje-basico-de-hora-y-contadores-en-espanol/"><u>Aprendizaje Básico De Hora Y Contadores en Espaňol</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boosting-content-quality-with-chatgpt-a-comprehamendous-guide-for-innovation/"><u>Boosting Content Quality with ChatGPT - A Comprehamendous Guide for Innovation</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/cambiar-archivo-jpg-por-formato-gif-con-movavi-metodo-completo-y-sin-costo-adicional/"><u>Cambiar Archivo JPG Por Formato GIF Con Movavi: Método Completo Y Sin Costo Adicional</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574561356-dive-into-new-tongues-for-just-055-per-lesson-this-year/"><u>Dive Into New Tongues for Just $0.55 Per Lesson This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-started-with-urdu-essential-linguistic-tools/"><u>Getting Started with Urdu: Essential Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-word-goliaths-uncovering-the-longest-title/"><u>Global Word Goliaths: Uncovering the Longest Title</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hofliches-aussprechen-von-reue-in-deutsch/"><u>Höfliches Aussprechen Von Reue in Deutsch</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensive-android-lightroom-assessment/"><u>In 2024, Comprehensive Android Lightroom Assessment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-francophones-starting-their-journey/"><u>Novel Selection for Francophones Starting Their Journey</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unidentified-user-strategies-for-accessing-instagram-stories-on-desktopmobile-for-2024/"><u>Unidentified User Strategies for Accessing Instagram Stories on Desktop/Mobile for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2025-02-08T21:12:15.719Z
-updated: 2025-02-10T17:36:23.005Z
+date: 2025-02-27T21:01:19.403Z
+updated: 2025-03-01T00:36:29.344Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/dc5fff1a9acb5e2e1b1bb4c72b06c12c5151a76a3
  Mastering something as essential as the**days of the week in French** may prove more practical than you think. Paris is always a good idea, but what if you miss your_mardi_ reservation at the #1 restaurant in Paris because you show up on_mercredi_ instead? We don’t want that to happen. That’s why it’s always best to dive into [learning French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) by mastering the essentials first: how to say “[hello](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ”, “[you’re welcome](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ” and the days of the week.
 
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Days of the week in French
 
@@ -77,10 +73,6 @@ The days of the week in French are:
 
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Usage rules
 
  One more thing before you go. To make sure you are using your newly acquired French days of the week correctly, don’t forget that:
@@ -125,19 +117,24 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-ultimate-stability-top-photo-tripods-for-iphones-and-androids/"><u>[Updated] 2024 Approved Ultimate Stability Top Photo Tripods for iPhones & Androids</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-the-ultimate-guide-incorporating-facebook-live-into-websites/"><u>[Updated] In 2024, The Ultimate Guide Incorporating Facebook LIVE Into Websites</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-total-control-guide-powerdirector-user-manual/"><u>[Updated] In 2024, Total Control Guide PowerDirector User Manual</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-virtual-vistas-enhancing-online-streaming-with-color-key-methods-for-2024/"><u>[Updated] Virtual Vistas Enhancing Online Streaming with Color Key Methods for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/elevating-virtual-reality-premium-rift-player-analysis-for-2024/"><u>Elevating Virtual Reality Premium Rift Player Analysis for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-tactics-mastering-a-second-or-third-language-online/"><u>Essential Tactics: Mastering a Second (or Third) Language Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-language-explained-slang-terms-uncovered/"><u>Everyday Language Explained: Slang Terms Uncovered</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frases-amigas-aqui-vai-a-melhor-maneira-de-dizer-ola/"><u>Frases Amigas: Aqui Vai a Melhor Maneira De Dizer Olá</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-the-land-down-under-top-100-terms/"><u>From the Land Down Under: Top 100 Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fundacion-danny-en-colombia-solidaridad-con-pobres/"><u>Fundacion Danny en Colombia: Solidaridad Con Pobres</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/hassle-free-download-and-installation-of-asus-touchpad-software-for-microsoft-windows-11-systems/"><u>Hassle-Free Download & Installation of ASUS Touchpad Software for Microsoft Windows 11 Systems</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-from-your-iphone-xs-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled From your iPhone XS? How to Fix</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unlocking-nfl-sunday-tickets-at-no-charge-expert-tips-for-zero-expense/"><u>Unlocking NFL Sunday Tickets at No Charge – Expert Tips for Zero Expense</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-craft-your-first-impactful-facebook-phenomenon-giveaway/"><u>[New] Craft Your First Impactful Facebook Phenomenon Giveaway</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-the-art-of-cinematography-basic-shots-explained/"><u>[New] Unveiling the Art of Cinematography Basic Shots Explained</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/androidflac/"><u>Android上で高品質オーディオを楽しむためのFLAC再生手順</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-blocks-mastering-russian-number-skills/"><u>Building Blocks: Mastering Russian Number Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-enrichment-in-your-forties-top-reasons-to-learn-a-language-later-in-life/"><u>Cognitive Enrichment in Your Forties: Top Reasons to Learn a Language Later in Life</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/convert-mp4mp3-files-free-online-with-movavis-ogg-format-support/"><u>Convert MP4/MP3 Files Free Online with Movavi's OGG Format Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-fluency-with-friends-through-vr-multilingualism/"><u>Enhance Fluency With Friends Through VR Multilingualism</u></a></li>
+<li><a href="https://some-tips.techidaily.com/gratuit-online-convertiren-van-flac-naar-avi-avi-moveave/"><u>Gratuit Online - Convertiren Van Flac Naar Avi Avi - Moveave</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/high-priority-on-learning-abroad-languages/"><u>High Priority on Learning Abroad Languages</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-14-to-the-previous-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 14 to the Previous iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identificacion-de-errores-en-colores-espanol/"><u>Identificación De Errores en Colores Español</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-google-pixel-7a-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Google Pixel 7a Phone FRP Lock</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-guide-to-channel-growth-5-must-try-video-marketing-tactics/"><u>In 2024, The Ultimate Guide to Channel Growth 5 Must-Try Video Marketing Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577142908-join-our-free-access-family-get-lifetime-mondly-pro-for-no-cost/"><u>Join Our Free Access Family - Get Lifetime Mondly Pro for No Cost !</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-savings-on-mondly-gold/"><u>Lifetime Savings on Mondly Gold</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nine-tricks-to-turn-you-into-a-persuasive-english-orator/"><u>Nine Tricks to Turn You Into a Persuasive English Orator</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-how-to-confirm-your-pc-meets-the-d3d11-gpu-requirements/"><u>Troubleshooting Guide: How to Confirm Your PC Meets the D3D11 GPU Requirements</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-to-convert-dvds-into-avi-formats-on-windows-11-2024-edition/"><u>Ultimate Guide to Convert DVDs Into Avi Formats on Windows 11 - 2024 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/word-whizzes-discover-ultimate-term/"><u>Word Whizzes Discover Ultimate Term</u></a></li>
 </ul></div>
 

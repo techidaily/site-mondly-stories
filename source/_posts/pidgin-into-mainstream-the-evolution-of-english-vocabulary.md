@@ -1,7 +1,7 @@
 ---
 title: "Pidgin Into Mainstream: The Evolution of English Vocabulary"
-date: 2024-07-12T08:08:49.932Z
-updated: 2024-07-13T08:08:49.932Z
+date: 2025-02-24T20:13:08.709Z
+updated: 2025-03-01T03:52:24.073Z
 tags:
   - speak
   - english
@@ -27,8 +27,6 @@ thumbnail: https://thmb.techidaily.com/06b4f561e77b6da888e1e3e26d3fff8eafe69267e
  When the English language started to expand its vocabulary, the process seemed like a wedding ceremony. Do you know how they say brides need something old, something new, something borrowed and something blue? Well, English had all of that except the blue. Anglo-Saxon words were old,[Shakespeare’s words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) were new and all the loanwords from other languages were borrowed. If you can’t put your finger on the **English words borrowed from other languages, think_café, ballet, fiancé, spaghetti, espresso, pretzel._**  You got the point.
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
-
-
 
 ## Where did English Come From?
 
@@ -238,8 +236,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,6 +243,22 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-heartfelt-goodbyes-free-or-subscribed-video-endings/"><u>[New] Heartfelt Goodbyes Free or Subscribed Video Endings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-humor-at-your-fingertips-complimentary-toolset-for-2024/"><u>[New] Humor at Your Fingertips - Complimentary Toolset for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-exclusive-top-5-list-of-fb-video-downloaders/"><u>[New] In 2024, Exclusive TOP 5 List of FB Video Downloaders</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-motorola-razr-40-ultra-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Motorola Razr 40 Ultra? Try These Fixes</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-realme-narzo-n53-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Realme Narzo N53 FRP?</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-standing-out-on-tiktok-masterful-pfp-techniques-and-concepts/"><u>In 2024, Standing Out on TikTok Masterful PFP Techniques and Concepts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-first-augmented-reality-language-app-with-speech-recognition/"><u>Introducing the First Augmented Reality Language App with Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-by-locals-learn-romanian/"><u>Language Bridge by Locals, Learn Romanian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-salutations-the-ultimate-guide-to-bonjour/"><u>Mastering French Salutations: The Ultimate Guide to 'Bonjour'</u></a></li>
+<li><a href="https://os-tips.techidaily.com/resolving-itunes-error-code-3194-three-guaranteed-methods-for-a-smooth-download/"><u>Resolving iTunes Error Code 3194: Three Guaranteed Methods for a Smooth Download</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seize-language-power-6-ways-to-learn-arabic-via-mondly-online/"><u>Seize Language Power: 6 Ways to Learn Arabic via Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-la-palette-des-jours/"><u>Semaine Française: La Palette Des Jours</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-average-income-derived-from-each-video-watcher-for-2024/"><u>The Average Income Derived From Each Video Watcher for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-most-in-demand-world-languages-in-us-education/"><u>The Most In-Demand World Languages in U.S. Education</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Ultimate guide to get the meltan box pokemon go For Apple iPhone 13 | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Latin Language Lore: Best Quotations & Proverbs of Ancient Rome"
-date: 2025-02-04T02:40:58.718Z
-updated: 2025-02-10T17:09:39.603Z
+date: 2025-02-23T16:50:50.936Z
+updated: 2025-02-28T23:33:39.561Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 These are nearly as famous as Julius Caesar himself.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Veni, vidi, vici. —** _I came, I saw, I conquered._
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
@@ -44,17 +40,9 @@ These are nearly as famous as Julius Caesar himself.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Et tu, Brute? —** _“And you, Brutus?”_
 
@@ -65,10 +53,6 @@ These are nearly as famous as Julius Caesar himself.
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
@@ -270,15 +254,7 @@ Different phrase, same story. You’re welcome.
 
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Roman statue” by engin akyurt©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Latin Words and Phrases for Love
 
@@ -327,10 +303,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Speak Latin like Julius Caesar
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -356,21 +328,16 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-x-recorder-download-for-pc/"><u>[New] 2024 Approved X-Recorder Download for PC</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-surpass-your-competition-effective-youtube-seo-tips-for-2024/"><u>[Updated] Surpass Your Competition Effective YouTube SEO Tips for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/cross-platform-usbethernet-adapter-setup-manual/"><u>Cross-Platform USB/Ethernet Adapter Setup Manual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-global-patterns-in-french-speaking-populations/"><u>Deciphering Global Patterns in French-Speaking Populations</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tifying-the-world-of-youtube-shorts/"><u>Demystifying the World of YouTube Shorts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/distinctions-in-british-and-american-dialects/"><u>Distinctions in British and American Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diversity-in-dialogue-macaus-three-major-tongues/"><u>Diversity in Dialogue: Macau’s Three Major Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embark-on-a-new-language-expedition/"><u>Embark on a New Language Expedition!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580251708-embrace-hindi-learning-mondly-unveils-top-8-reasons-online/"><u>Embrace Hindi Learning: Mondly Unveils Top 8 Reasons Online!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580825709-enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580367068-enhancing-your-life-in-hindi-mondly-highlights-8-key-benefits/"><u>Enhancing Your Life in Hindi: Mondly Highlights 8 Key Benefits!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-google-pixel-8-pro-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Google Pixel 8 Pro</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcoming-unstable-visual-glitches-in-your-windows-10-device/"><u>Overcoming Unstable Visual Glitches in Your Windows 10 Device</u></a></li>
-<li><a href="https://win-info.techidaily.com/problembehandlung-und-workaround-tipps-fur-windows-11-die-installation-verhindert-wird/"><u>Problembehandlung Und Workaround-Tipps Für Windows 11, Die Installation Verhindert Wird</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-key-to-crisp-clear-cinematography/"><u>The Key to Crisp, Clear Cinematography</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unified-media-exchange-android-ios/"><u>Unified Media Exchange Android-iOS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-eliminate-inaccurate-image-portrayal-in-online-messaging/"><u>[Updated] In 2024, Eliminate Inaccurate Image Portrayal in Online Messaging</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-complete-analysis-gopro-silver-edition-hero4-assessment/"><u>2024 Approved Complete Analysis GoPro Silver Edition HERO4 Assessment</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-top-hd-cameras-for-wildlife-enthusiasts/"><u>2024 Approved Top HD Cameras For Wildlife Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/download-and-install-windows-xp-movie-maker-for-2024/"><u>Download and Install Windows XP Movie Maker for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-enhance-snapchat-media-with-smart-zooming-hacks/"><u>In 2024, Enhance Snapchat Media with Smart Zooming Hacks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-infinix-smart-7-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Infinix Smart 7 Phone Now with These Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-approaches-to-learn-lithuanian-from-home/"><u>Innovative Approaches to Learn Lithuanian From Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-latins-an-exhilarating-study-method/"><u>Lively Latins: An Exhilarating Study Method</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/navigating-insta-shopping-safely-recognize-essential-7-alert-indicators-first/"><u>Navigating Insta-Shopping Safely - Recognize Essential 7 Alert Indicators First</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learn-bengali-courses-online/"><u>Quick-Learn Bengali Courses Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-resources-for-learning-japanese-online-on-your-own-and-for-free/"><u>The Best Resources For Learning Japanese Online, On Your Own, And For Free</u></a></li>
 </ul></div>
 

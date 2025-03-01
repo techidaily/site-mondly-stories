@@ -1,7 +1,7 @@
 ---
 title: International Vocabulary, The Heart of English
-date: 2024-07-12T08:08:34.769Z
-updated: 2024-07-13T08:08:34.769Z
+date: 2025-02-22T18:17:12.241Z
+updated: 2025-02-28T21:34:27.391Z
 tags:
   - speak
   - english
@@ -27,8 +27,6 @@ thumbnail: https://thmb.techidaily.com/8b80e339dbd0915bb63a5c4ef4dc3b35128d5a8fe
  When the English language started to expand its vocabulary, the process seemed like a wedding ceremony. Do you know how they say brides need something old, something new, something borrowed and something blue? Well, English had all of that except the blue. Anglo-Saxon words were old,[Shakespeare’s words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) were new and all the loanwords from other languages were borrowed. If you can’t put your finger on the **English words borrowed from other languages, think_café, ballet, fiancé, spaghetti, espresso, pretzel._**  You got the point.
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
-
-
 
 ## Where did English Come From?
 
@@ -238,8 +236,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,6 +243,26 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-capturing-perfection-an-overview-of-the-5-best-cams/"><u>[New] Capturing Perfection An Overview of the 5 Best Cams</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/deal-video-intros-selecting-from-top-15-youtube-sets-for-2024/"><u>[New] Ideal Video Intros Selecting From Top 15 YouTube Sets for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-leveraging-high-roi-crafting-dynamic-animated-ads-for-fb/"><u>[Updated] In 2024, Leveraging High ROI Crafting Dynamic Animated Ads for FB</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-augmented-visions-vrs-cinematic-influence/"><u>2024 Approved Augmented Visions VR's Cinematic Influence</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-secret-sound-scribes-hidden-audio-logging-for-mobile-devices/"><u>2024 Approved Secret Sound Scribes Hidden Audio Logging for Mobile Devices</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-techniques-for-cell-counting-in-microsoft-excel/"><u>Effective Techniques for Cell Counting in Microsoft Excel</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/expert-tips-on-creating-striking-ae-titles/"><u>Expert Tips on Creating Striking AE Titles</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/how-to-fix-incorrect-path-names-on-windows-aturdays-proven-strategies/"><u>How to Fix Incorrect Path Names on Windows Aturdays - Proven Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesias-hospitality-in-everyday-language/"><u>Indonesia's Hospitality in Everyday Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interlingual-exploration-turkey-and-korea/"><u>Interlingual Exploration: Turkey & Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-5-mobile-apps-boosting-linguistic-training/"><u>Key 5 Mobile Apps Boosting Linguistic Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-a-google-play-best-2017/"><u>Mondly Kids: A Google Play Best - 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-shatters-boundaries-uniting-global-educators-of-70plus-millions/"><u>Mondly Shatters Boundaries - Uniting Global Educators of 70+ Millions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/must-know-russian-lingo-for-travel-efficiency/"><u>Must-Know Russian Lingo for Travel Efficiency</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcome-your-chromebooks-frozen-state-with-these-nine-fixes/"><u>Overcome Your Chromebook's Frozen State with These Nine Fixes</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/streamlining-your-pc-expert-techniques-for-optimal-startup-program-control-by-yl-software-professionals/"><u>Streamlining Your PC: Expert Techniques for Optimal Startup Program Control by YL Software Professionals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/students-benefit-from-mondlys-tech-upgrade-with-apple/"><u>Students Benefit From Mondly's Tech Upgrade with Apple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/un-viaje-descubrimiento-en-anatomia-de-la-boca-a-los-rinones-en-espanol/"><u>Un Viaje Descubrimiento en Anatomía: De La Boca A Los Riñones En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-translation-revolution-oculus-quest-and-mondly-unite/"><u>Voice Translation Revolution: Oculus Quest and Mondly Unite</u></a></li>
+</ul></div>
 

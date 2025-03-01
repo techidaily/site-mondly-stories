@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2025-02-09T16:17:11.549Z
-updated: 2025-02-10T20:53:45.839Z
+date: 2025-02-22T23:32:16.926Z
+updated: 2025-02-28T18:19:13.314Z
 tags:
   - speak
   - english
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/f5c71e67a7e48026b76caae61fa224d5139bed717
 ## Understanding and Using Spanish Verb Endings
 
  ¡Hola, Spanish language aficionado! Welcome to another essential Spanish lesson you’ll have to learn if you want to boost your Spanish conversation skills. Today, we are talking about**Spanish verbs** , their conjugations, and some [**Spanish grammar rules**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will naturally join the party. Are you ready? Let’s start with the basics.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Spanish verbs: rules for regular Spanish verbs
 
@@ -63,10 +59,6 @@ Spanish verbs conjugations make sense now, don’t they?
  If you want to go even further and achieve Spanish fluency, Mondly can help you**learn Spanish fast** in 5 minutes a day with compact and very entertaining lessons. And don’t worry about the conjugations! In Mondly, you can quickly see a verb’s conjugation by simply tapping on it.
 
 ![Mondly app screenshot verb conjugation](https://edge.mondly.com/blog/wp-content/uploads/2019/06/verb-conjugation-353x600.png "Spanish Verb Conjugation: Regular And Irregular Verbs 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  In Mondly, you can quickly see a verb’s conjugation by simply tapping on it
 
@@ -115,10 +107,6 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -156,10 +144,6 @@ And the conjugation of comer will look like this:
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
 
@@ -238,10 +222,6 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_salir_ (to exit) –_Yo salgo_ ,_Tú sales_
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
@@ -334,18 +314,24 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/aussie-vocabulary-from-surfing-to-bbqs/"><u>Aussie Vocabulary: From Surfing to BBQs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginning-your-italian-journey-top-10-welcoming-phrases/"><u>Beginning Your Italian Journey: Top 10 Welcoming Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-speech-barriers-with-english-twister-mastery/"><u>Breaking Speech Barriers with English Twister Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childhood-as-the-peak-time-for-second-language-acquisition/"><u>Childhood as the Peak Time for Second Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dannys-humanitarran-efforts-in-colombias-neediest-areas/"><u>Danny’s Humanitarran Efforts in Colombia's Neediest Areas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-enterprises-by-engineering-effective-linguistic-endeavors/"><u>Elevate Enterprises by Engineering Effective Linguistic Endeavors</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-seamlessly-cast-your-android-screen-onto-a-firestick-tv/"><u>How to Seamlessly Cast Your Android Screen Onto a Firestick TV</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-xiaomi-civi-3-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Xiaomi Civi 3 FRP</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-omegle-reinstated-guide-to-regaining-profile-approval-status/"><u>New In 2024, Omegle Reinstated Guide to Regaining Profile Approval Status</u></a></li>
-<li><a href="https://win-answers.techidaily.com/top-rated-dvd-ripper-software-for-pc-windows-10-and-11-2024-edition/"><u>Top Rated DVD Ripper Software for PC (Windows 10 & 11) - 2024 Edition</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-solution-for-eliminating-stutter-and-improving-performance-in-avatar-frontiers-of-pandora/"><u>Ultimate Solution for Eliminating Stutter and Improving Performance in 'Avatar: Frontiers of Pandora'</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-exploring-leading-free-mobile-audio-capture-solutions-for-android/"><u>Updated 2024 Approved Exploring Leading Free Mobile Audio Capture Solutions for Android</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-starting-point-decoding-display-resolution-basics/"><u>[Updated] 2024 Approved Starting Point Decoding Display Resolution Basics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-all-inclusive-list-of-prime-no-money-streaming-applications-and-software/"><u>[Updated] All-Inclusive List of Prime No-Money Streaming Applications & Software</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-master-the-monitor-game-samsungs-ue590-review-inside-out/"><u>2024 Approved Master the Monitor Game - Samsung's UE590 Review Inside Out</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pushing-boundaries-the-future-of-filmmaking-in-4k-with-yi/"><u>2024 Approved Pushing Boundaries The Future of Filmmaking in 4K With Yi</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/celebrate-thanksgiving-with-top-picks-movies-presents-tunes-and-creative-projects-for-a-memorable-holiday/"><u>Celebrate Thanksgiving with Top Picks: Movies, Presents, Tunes & Creative Projects for a Memorable Holiday</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-secrets-of-enjoying-netflix-at-zero-price-heres-how/"><u>Discover the Secrets of Enjoying Netflix at Zero Price - Here's How!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-for-learning-turkish-language-with-ease/"><u>Essential Guide for Learning Turkish Language with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-on-calls-for-japanese-enthusiasts/"><u>Essential On-Calls for Japanese Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beans-to-bars-heres-chocolate-in-30-languages/"><u>From Beans to Bars, Here's Chocolate in 30 Languages!</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-move-custom-ringtones-from-apple-iphone-se-2020-to-android-drfone-by-drfone-transfer-from-ios/"><u>How to Move Custom Ringtones from Apple iPhone SE (2020) to Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-essential-music-video-watching-apps-for-android/"><u>In 2024, Essential Music Video Watching Apps for Android</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/infantile-instinct-for-multilingual-excellence/"><u>Infantile Instinct for Multilingual Excellence</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leading-biz-cloud-storage-excellence-for-2024/"><u>Leading Biz Cloud Storage Excellence for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-revolution-by-mondly/"><u>Lifelong Learning Revolution by Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-languages-with-mondlys-updated-guide/"><u>Master Languages with Mondly's Updated Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-leap-slovak-essentials-learned-in-10-minute-spurts/"><u>Quick Language Leap: Slovak Essentials Learned in 10-Minute Spurts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-next-chapter-innovative-strategies-for-modern-language-learning/"><u>The Next Chapter: Innovative Strategies for Modern Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/um-preciso-guia-ao-falar-em-portugal-frases-de-cunho-amigavel/"><u>Um Préciso Guia Ao Falar Em Portugal - Frases De Cunho Amigável</u></a></li>
 </ul></div>
 

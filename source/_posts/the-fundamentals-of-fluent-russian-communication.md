@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Fluent Russian Communication
-date: 2025-02-04T03:12:48.181Z
-updated: 2025-02-10T21:59:42.324Z
+date: 2025-02-23T16:31:31.551Z
+updated: 2025-02-28T23:42:33.419Z
 tags:
   - speak
   - english
@@ -25,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 ## 1\. Most common Russian greetings
 
  Whether you’re planning an expedition, immersing in classic Russian literature, meeting with Russian-speaking friends, or even looking to impress with your language skills, using**Russian greetings** will surely be appreciated. Here are some of the most common ways to say “hello” in Russian:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Здравствуйте (Zdravstvuyte): Hello in Russian
 
@@ -56,10 +52,6 @@ Good job, you!
  These phrases are universal and can be used in both formal and informal situations.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Learn Russian today
 
@@ -89,10 +81,6 @@ Good job, you!
 * **Увидимся (Uvidimsya)** – See you: It’s relatively informal and akin to the English “see you later”. You can tell your friends Увидимся (Uvidimsya) if you expect to meet them again in the near future.
 * **До скорого (Do skorogo)** – See you soon: It’s a warm farewell, yet rather polite. In practice, it aligns more with “see you” than “see you soon”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Helpful phrases for greetings
 
  Now that you said “hello” in Russian, how will the conversation continue? It’s true that locals, including babushkas (grandmothers), will still shower you with hospitality regardless if you speak Russian or not. However, the following basic phrases will further help you to converse in Russian.
@@ -113,10 +101,6 @@ Good job, you!
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hello-in-russian-960x640.jpg "Russian Greetings: Common Phrases And Basic Words 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
 ## Cultural insights on Russian greetings
@@ -135,10 +119,6 @@ Good job, you!
 ### How can I learn to pronounce Russian words correctly?
 
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How do Russians say “hello” and “goodbye”?
 
@@ -182,22 +162,15 @@ Good job, you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-high-fidelity-on-the-big-screen-the-4k-monitor-tale-of-lgs-31mu97-b/"><u>[New] High Fidelity on the Big Screen The 4K Monitor Tale of LG's 31MU97-B</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-smart-image-management-adjusting-iphone-photo-sizes/"><u>[New] Smart Image Management Adjusting iPhone Photo Sizes</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-testimonials-on-screen-marketings-best-friend/"><u>[Updated] Testimonials on Screen Marketing's Best Friend</u></a></li>
-<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-realme-11-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/end-the-frustration-of-rainbow-six-siege-crashes-on-pc-with-these-effective-fixes/"><u>End the Frustration of 'Rainbow Six Siege' Crashes on PC with These Effective Fixes</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-iphone-se-2022-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On iPhone SE (2022) in the Best Ways</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leer-las-horas-en-espanol-para-principiantes/"><u>Leer Las Horas en Español Para Principiantes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-flirting-best-pick-up-lines-in-english/"><u>Mastering The Art Of Flirting: Best Pick Up Lines In English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/optimizing-your-obs-setup-for-zero-latency-expert-advice-on-dealing-with-stream-and-record-delays/"><u>Optimizing Your OBS Setup for Zero Latency: Expert Advice on Dealing with Stream & Record Delays</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/quick-and-easy-gif-to-video-transition-tools-listed-for-2024/"><u>Quick & Easy GIF-to-Video Transition Tools Listed for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-fixes-for-dormant-radeon-software-interface/"><u>Quick Fixes for Dormant Radeon Software Interface</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romantic-rhythms-italys-seduction-symphony/"><u>Romantic Rhythms: Italy's Seduction Symphony</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-comprehensive-guide-to-the-stanley-j5c09-strong-performance-for-a-sizable-tool/"><u>The Comprehensive Guide to the Stanley J5C09 - Strong Performance for a Sizable Tool</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-10-italian-hand-gestures-italians-use-all-the-time/"><u>Top 10 Italian Hand Gestures Italians Use All The Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/verbal-excellence-100-english-tongue-twisters/"><u>Verbal Excellence: 100 English Tongue Twisters</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/hoose-youtubes-av1-for-impeccable-video-playback-for-2024/"><u>Why Choose YouTube's AV1 for Impeccable Video Playback for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-essential-guide-9-cost-free-editing-tools-for-creatives-for-2024/"><u>[Updated] Essential Guide 9 Cost-Free Editing Tools for Creatives for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausdrucksreichtum-10-ubliche-deutsche-begrussungen-ohne-hallo/"><u>Ausdrucksreichtum: 10 Übliche Deutsche Begrüßungen Ohne Hallo</u></a></li>
+<li><a href="https://win-best.techidaily.com/comprehensive-step-by-step-process-for-upgrading-from-small-business-server-2008-to-windows-server-2012-r2/"><u>Comprehensive Step-by-Step Process for Upgrading From Small Business Server 2008 to Windows Server 2012 R2</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-finding-the-most-economical-streaming-apps-for-your-phone/"><u>In 2024, Finding the Most Economical Streaming Apps for Your Phone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-honor-v-purse-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Honor V Purse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-via-screen-top-tactics-and-guidance/"><u>Mastering Languages via Screen: Top Tactics & Guidance</u></a></li>
+<li><a href="https://games-able.techidaily.com/next-gen-contenders-who-will-outperform-sonys-playstation-5/"><u>Next Gen Contenders: Who Will Outperform Sony's PlayStation 5?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunrise-salutations-exploring-10-different-morning-expressions/"><u>Sunrise Salutations: Exploring 10 Different Morning Expressions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/switching-from-apple-vision-pro-and-meta-quest-3-top-affordable-xr-glasses-alternatives-revealed/"><u>Switching From Apple Vision Pro & Meta Quest 3: Top Affordable XR Glasses Alternatives Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-potential-of-your-mind-learn-languages-with-mondlys-ar/"><u>Unlock the Potential of Your Mind: Learn Languages with Mondly’s AR</u></a></li>
 </ul></div>
 

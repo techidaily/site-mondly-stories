@@ -1,7 +1,7 @@
 ---
 title: "Universal Breeze: Simplified Language Mastery Rankings"
-date: 2025-02-04T00:39:44.537Z
-updated: 2025-02-10T18:52:19.563Z
+date: 2025-02-23T20:40:02.568Z
+updated: 2025-02-28T19:53:52.362Z
 tags:
   - speak
   - english
@@ -44,19 +44,11 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
 ![norwegian landscape](https://edge.mondly.com/blog/wp-content/uploads/2019/06/norwegian-landscape-960x720.jpg "Top 10 Easiest Languages To Learn 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Lofoten Islands, Svolvær, Norway” by John O’Nolan©
 
  With around 5 million native speakers,[Norwegian has an interesting story](https://www.britannica.com/topic/Norwegian-language) behind its two distinct norms: Bokmål (also known as Dano-Norwegian or Riksmål) and New Norwegian (also known as Nynorsk).
 
  The story started back in the 15th century after the union of Norway with Denmark. That’s when Old Norwegian writing traditions gradually began to die out, and Dano-Norwegian took over. Then, in 1814, Norway became independent, and although the linguistic union with Danish persisted, the people felt they needed a language of their own. That’s when the New Norwegian norm began to be used. Today, the people of Norway learn to read and write in New Norwegian, but only about 20% of them use it as their language of choice in writing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Afrikaans – the easiest language to learn for both English and Dutch speakers
 
@@ -65,10 +57,6 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
  The Afrikaans language is spoken in South Africa, Namibia, and in some regions of Botswana and Zimbabwe. But the most exciting thing you must know [about Afrikaans](https://en.wikipedia.org/wiki/Afrikaans) is that 90 to 95% of its vocabulary is of Dutch origin as a consequence of Dutch settlers establishing in Cape Town in 1652\. As a result, the Afrikaans language gradually arose in the Dutch Cape Colony during the course of the 18th century.
 
  Thus, if you are a language nerd that also wants to become a [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , with Dutch you can kill one and three-quarters of a bird with one stone because you’ll also understand a big part of the Afrikaans language. If simplicity isn’t enough for you, here are [7 more reasons to learn Afrikaans!](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Dutch
 
@@ -96,19 +84,11 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  Seriously now, Italian is also highly readable, with a shorter alphabet than English: 21 letters instead of 26.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spanish
 
  Since we talked about Italian, Spanish couldn’t be far behind, right? The same advantages as with Italian apply here as well, the many [cognates](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) making the learning experience a lot easier.
 
  When it comes to pronunciation, things are also pretty straightforward, as it’s a phonetic language through and through. But keep in mind that, same as with French, grammar could be a little bewildering at first: we’re talking about different verb tenses, grammar rules, and exceptions. What more incentive do you need to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , aside from the fact that it is the second most spoken language in the world?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Romanian
 
@@ -161,22 +141,16 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-the-100plus-best-zodiac-bio-ideas-for-messaging-enthusiasts/"><u>[New] The 100+ Best Zodiac Bio Ideas for Messaging Enthusiasts</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unraveling-the-meaning-and-purpose-of-tiktoks-pfp-for-2024/"><u>[Updated] Unraveling the Meaning and Purpose of TikTok’s PFP for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
-<li><a href="https://win-lab.techidaily.com/a-comprehensive-guide-how-to-enable-booting-from-hpdelllenovo-hardware-recovery-partition/"><u>A Comprehensive Guide: How to Enable Booting From HP/Dell/Lenovo Hardware Recovery Partition</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/article-unveiling-the-role-of-digital-surveillance-in-monitoring-covid-19-immunization-efforts/"><u>Article: Unveiling the Role of Digital Surveillance in Monitoring COVID-19 Immunization Efforts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-fixing-the-ghost-runner-catastrophic-malfunction-in-windows-11-environment/"><u>Expert Tips for Fixing the 'Ghost Runner' Catastrophic Malfunction in Windows 11 Environment</u></a></li>
-<li><a href="https://techtrends.techidaily.com/from-apples-to-casting-a-simple-way-to-view-apple-tvplus-through-chromecast/"><u>From Apples to Casting: A Simple Way to View Apple TV+ Through Chromecast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/immersive-german-learning-experience-via-dark-show/"><u>Immersive German Learning Experience via Dark Show</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-12-with-a-broken-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone 12 with a Broken Screen? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-3-platforms-for-quick-and-seamless-language-learning/"><u>Leading 3 Platforms for Quick & Seamless Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leverage-multilingualism-why-mondly-is-ideal-for-afrikaans-learners/"><u>Leverage Multilingualism: Why Mondly Is Ideal for Afrikaans Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-etiquette-key-phrases/"><u>Mastering Japanese Etiquette - Key Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/troubleshooting-solutions-to-reactivate-grayed-out-icloud-options-on-ios-devices/"><u>Troubleshooting: Solutions to Reactivate Grayed-Out iCloud Options on iOS Devices</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/sh-creativity-with-customizable-animated-subscribers-on-youtube-filmora-for-2024/"><u>Unleash Creativity with Customizable Animated Subscribers on YouTube (Filmora) for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-mondly-sets-the-bar-for-language-app-success/"><u>Why Mondly Sets the Bar for Language App Success</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/windows-10-m2-ssd/"><u>Windows 10 M.2 SSD 挿入時の迅速なインストール手順</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevate-your-photography-access-to-10plus-free-purchasable-luts-for-canon-cams/"><u>[New] Elevate Your Photography Access to 10+ Free, Purchasable LUTs for Canon Cams</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-leverage-your-smartphones-capability-to-store-social-snaps-for-2024/"><u>[New] Leverage Your Smartphone's Capability to Store Social Snaps for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-professional-webcam-setup-on-macbook-for-2024/"><u>[New] Professional Webcam Setup on MacBook for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-tutorial-for-posting-pics-on-ig/"><u>[Updated] The Ultimate Tutorial for Posting Pics on IG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-persian-roots-unlock-language-potential/"><u>Discover Persian Roots, Unlock Language Potential</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-best-virtual-playground-for-ps3-games-on-windows-pcs/"><u>In 2024, The Best Virtual Playground for PS3 Games on Windows PCs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/januayer-resolutions-from-slogan-to-strategy/"><u>Januayer Resolutions: From Slogan To Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-on-calls-and-bows/"><u>Mastering Japanese On-Calls & Bows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-spanish-verb-forms/"><u>Navigating Through Spanish Verb Forms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/screenshots-of-success-decoding-post-viewer-demographics-for-2024/"><u>Screenshots of Success Decoding Post Viewer Demographics for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/young-minds-younger-fluency-kindergarten-elementary-in-espanol/"><u>Young Minds, Younger Fluency: Kindergarten-Elementary in Español</u></a></li>
 </ul></div>
 

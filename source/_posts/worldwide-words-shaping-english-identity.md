@@ -1,7 +1,7 @@
 ---
 title: Worldwide Words Shaping English Identity
-date: 2025-02-08T03:48:59.961Z
-updated: 2025-02-11T01:25:28.893Z
+date: 2025-02-24T22:44:13.229Z
+updated: 2025-03-01T02:17:04.342Z
 tags:
   - speak
   - english
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -84,10 +80,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 * **Loan translation,** also known as calque, which involves borrowing words, phrases, or expressions by translating their literal meanings into the borrowing language.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Improve your English fast 🚀
 
@@ -143,10 +135,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Italian loanwords: English words that are actually Italian
 
 | Zucchini  |
@@ -175,10 +163,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -202,10 +186,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -265,19 +245,17 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-elite-road-warriors-game-list/"><u>[Updated] 2024 Approved Elite Road Warriors' Game List</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-how-to-create-square-videos-to-gain-more-likes-on-facebook-for-2024/"><u>[Updated] How to Create Square Videos to Gain More Likes on Facebook for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-ensuring-every-detail-is-visible-during-google-meets/"><u>[Updated] In 2024, Ensuring Every Detail Is Visible During Google Meets</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/complete-guide-to-converting-your-favorite-twitch-content-into-high-quality-mp3-files/"><u>Complete Guide to Converting Your Favorite Twitch Content Into High-Quality MP3 Files</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/european-and-brazilian-portuguese-key-features-showdown/"><u>European & Brazilian Portuguese: Key Features Showdown</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-online-avenues-for-flawless-lithuanian-learning/"><u>Explore Online Avenues for Flawless Lithuanian Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-impressions-count-indonesian-greeting-basics/"><u>First Impressions Count: Indonesian Greeting Basics</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fix-no-speakers-or-headphones-are-plugged-in-issue-in-windows-1187/"><u>Fix No Speakers or Headphones Are Plugged in Issue in Windows 11/8/7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-expression-excellence-mastering-the-enchante-salute/"><u>French Expression Excellence: Mastering the 'Enchanté' Salute</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-aufrichtige-bedauernsatze-sprechen/"><u>German: Aufrichtige Bedauernsätze Sprechen</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-vivo-v30-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Vivo V30 Pro Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/21366938-in-2024-tripping-up-heres-how-to-avoid-it/"><u>In 2024, Tripping Up? Here's How to Avoid It!</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-missing-self-editing-feature-in-gpt/"><u>The Missing Self-Editing Feature in GPT</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-refining-zoom-image-precision-proactive-measures/"><u>[New] Refining Zoom Image Precision Proactive Measures</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-encompassing-angle-video-systems/"><u>[Updated] Encompassing Angle Video Systems</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-reclaim-lively-sounds-in-muted-video-tweets/"><u>[Updated] In 2024, Reclaim Lively Sounds in Muted Video Tweets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-con-nombres-animales-hispanos/"><u>Aprende a Agradecernos Con Nombres Animales Hispanos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dia-a-dia-de-la-luna-en-espanol-los-diez-nombres-del-ciclo/"><u>Día a Día De La Luna en Espanol: Los Diez Nombres Del Ciclo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/down-under-dialect-decoded-top-100-australian-phrases/"><u>Down Under Dialect Decoded: Top 100 Australian Phrases</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-correctly-address-issues-in-your-realtek-rtl8nceu-device-drivers/"><u>How to Correctly Address Issues in Your Realtek RTL8nceu Device Drivers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-iphone-15-pro-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from iPhone 15 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lay-the-groundwork-for-fluent-french-pronunciation/"><u>Lay the Groundwork for Fluent French Pronunciation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-successfully-starting-up-evil-genius-2-after-initial-failure/"><u>Troubleshooting Guide: Successfully Starting Up Evil Genius 2 After Initial Failure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vibrant-approach-to-studying-latin/"><u>Vibrant Approach to Studying Latin</u></a></li>
 </ul></div>
 

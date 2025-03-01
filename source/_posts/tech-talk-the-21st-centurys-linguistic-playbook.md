@@ -1,7 +1,7 @@
 ---
 title: "Tech Talk: The 21St Century's Linguistic Playbook"
-date: 2025-02-04T19:50:31.287Z
-updated: 2025-02-10T20:01:03.420Z
+date: 2025-02-27T23:48:14.362Z
+updated: 2025-03-01T03:44:47.667Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
  In terms of numbers, learning foreign languages has become a widespread activity for the majority of people, with English holding the number one spot in foreign languages learned in the EU followed by [French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and [German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  . This is a trend that is likely to continue for years to come. It is evolving, changing, faster than we as humans are. Whether it’s self-study books, regular classes or mobile apps, learning a new language is a trend without an expiration date. But what does the future hold for language learning?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Learning languages in the past**
 
  The traditional ways of learning are those where one learns from someone else. The most important factor was the human interaction, but as you will see further, the substitutes of this method are taking things to a whole new level.
@@ -33,10 +29,6 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
  In the past,[learning a foreign language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was seen as something high-level. Knowing multiple foreign languages was an advantage, as it proved you were highly educated and well-traveled. This sort of people would show off their abilities at social gatherings and amaze everybody in the audience. If apart from English, you spoke French, German and Italian, you were the star of any type of group meeting.
 
 ![pexels photo 46274](https://edge.mondly.com/blog/wp-content/uploads/2017/05/pexels-photo-46274.jpg "The Best Way To Learn A Foreign Language In The 21St Century 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learning a foreign language with the help of technology
 
@@ -76,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
  Socializing is crucial.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Socialize
 
  One of the best ways to learn something new is to expose yourself through practice. When learning a new language, developing the speaking skills is crucial, so try to socialize with people who speak the language at a proficiency level.
@@ -96,17 +84,9 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
  When you learn on your own, you need to be aware of the way you do things, what you need to improve and how. Noticing patterns will help you remember grammar rules and also notice them when you do speaking and listening exercises.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Have fun
 
  Learning needs to be fun and entertaining, otherwise you might lose interest in it. To avoid that, look at the process from a rather childish perspective and make all your lessons fun.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Always start with the basics
 
@@ -122,19 +102,11 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
 
  Is reading the best way to learn a language? It sure is one of them! Practice is essential and one of the best ways to do this is to choose books you already read, but go for those translated in the language you’re trying to learn. Make sure you also have a dictionary handy, to be able to look for new words easily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\. Watch movies without subtitles
 
  This must be the best way to learn for every cinephile out there. Watching movies without subtitles will help you get used to the conversations and pay attention to little details. Also, you can learn new vocabulary and help your brain recognize intonation and pronunciation patterns.
 
 [Start learning today](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-502&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-502%26mt%3D8)  and trust your efforts. Find the best program to learn a language and immerse yourself in this experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **So what’s next?**
 
@@ -166,22 +138,21 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-techniques-for-successful-photo-background-alteration-on-fb/"><u>[New] In 2024, Techniques for Successful Photo Background Alteration on FB</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-specialist-recommendations-the-quintessential-5-cameras-for-2024/"><u>[Updated] Specialist Recommendations The Quintessential 5 Cameras for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/bgm/"><u>最適なBGM選び：効果的な音楽加工スキル向上方法</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/designing-future-web-services-with-ai-assistance-from-chatgpt/"><u>Designing Future Web Services with AI Assistance From ChatGPT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhance-accent-intense-tongue-twister-training/"><u>Enhance Accent: Intense Tongue Twister Training</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/entry-points-to-arabic-language-exploration/"><u>Entry Points to Arabic Language Exploration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/express-with-authority-top-50-latin-expressions-revealed/"><u>Express with Authority: Top 50 Latin Expressions Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fifty-something-language-learning-why-it-matters-now/"><u>Fifty-Something Language Learning: Why It Matters Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/francais-du-lunis-a-dimanche/"><u>Français Du Lunis À Dimanche</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-poco-c55-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Poco C55 Quickly? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-viral-vector-tags-keywords-that-power-up-your-social-media-snaps/"><u>In 2024, Viral Vector Tags Keywords that Power Up Your Social Media Snaps</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/install-the-newest-zexmte-bluetooth-interface-driver-on-windows-1078/"><u>Install the Newest Zexmte Bluetooth Interface Driver on Windows 10/7/8</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-horizons-10-reasons-for-bilingual-mastery/"><u>Linguistic Horizons: 10 Reasons for Bilingual Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/optimal-language-selection-for-my-future-growth/"><u>Optimal Language Selection for My Future Growth</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/youtubes-finest-ranked-by-skyrocketing-subscriber-numbers-for-2024/"><u>YouTube's Finest Ranked by Skyrocketing Subscriber Numbers for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eyxh-kalwn-piatwn-gkreman/"><u>Ευχή Καλών Πιάτων Γκρεμάν</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-peak-psd-gradient-innovations/"><u>[New] 2024 Approved Peak PSD Gradient Innovations</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-essential-steps-for-iphone-screen-shotting/"><u>[New] In 2024, Essential Steps for iPhone Screen Shotting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-learners-guide-to-japanese-kanji-and-kana/"><u>A Learner's Guide to Japanese Kanji & Kana</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beat-time-learn-japanese-digits-fast/"><u>Beat Time, Learn Japanese Digits Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-slovak-in-minutes-easy-online-learning-pathway/"><u>Conquer Slovak in Minutes: Easy Online Learning Pathway</u></a></li>
+<li><a href="https://extra-information.techidaily.com/eliminate-blur-in-zoom-calls-actionable-strategies/"><u>Eliminate Blur in Zoom Calls – Actionable Strategies</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-samsung-galaxy-m14-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Samsung Galaxy M14 5G Phones</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/inside-scoop-on-gadgets-and-gizmos-from-toms-perspective/"><u>Inside Scoop on Gadgets and Gizmos From Tom's Perspective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-fastest-to-learn-global-languages/"><u>Language Leap Forward: Fastest-to-Learn Global Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-voices-teach-you-romanian/"><u>Local Voices Teach You Romanian</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/play-mp4-videos-without-hitches-get-the-best-free-mp4-player-for-pc-and-mac/"><u>Play MP4 Videos Without Hitches - Get the Best Free MP4 Player for PC and MAC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/steps-to-set-bing-images-as-default-background-in-windows-11/"><u>Steps to Set Bing Images as Default Background in Windows 11</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-guide-to-excellent-240hz-gaming-tvs/"><u>The Ultimate Guide to Excellent 240Hz Gaming Tvs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turbocharge-your-turkish-learning-with-this-phonetic-and-orthographic-guide/"><u>Turbocharge Your Turkish Learning With This Phonetic & Orthographic Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online</u></a></li>
 </ul></div>
 

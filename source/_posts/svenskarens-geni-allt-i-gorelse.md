@@ -1,7 +1,7 @@
 ---
 title: "Svenskarens Geni: Allt I Görelse"
-date: 2025-02-08T16:53:07.626Z
-updated: 2025-02-10T23:01:08.576Z
+date: 2025-02-27T00:34:19.528Z
+updated: 2025-03-01T00:00:42.338Z
 tags:
   - speak
   - english
@@ -26,25 +26,13 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
 
@@ -54,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
@@ -65,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -98,24 +78,18 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-community-cinema-collector/"><u>[New] 2024 Approved Community Cinema Collector</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-online-onyx-the-monetary-meaningfulness-of-pewdiepies-earnings/"><u>[New] Online Onyx The Monetary Meaningfulness of Pewdiepie's Earnings</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-experts-manual-to-efficient-screencasting/"><u>[Updated] 2024 Approved The Expert's Manual to Efficient Screencasting</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-how-to-start-a-facebook-giveaway-post/"><u>2024 Approved How to Start a Facebook Giveaway Post</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-intro-to-using-snap-camera-effectively-in-meetings/"><u>2024 Approved Intro to Using Snap Camera Effectively in Meetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eng-speaks-other-languages-a-lexical-mosaic/"><u>ENG Speaks Other Languages: A Lexical Mosaic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enunciate-elegance-tongue-twisters-for-improvement/"><u>Enunciate Elegance: Tongue Twisters for Improvement</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eternal-savings-on-mondly-ultimate-plan/"><u>Eternal Savings on Mondly Ultimate Plan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-language-bonds-turkey-and-korea/"><u>Exploring Language Bonds: Turkey and Korea</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-every-occasion-and-setting/"><u>Expressive French Greetings for Every Occasion & Setting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-augmented-reality-language-app-with-speech-recognition/"><u>First Augmented Reality Language App With Speech Recognition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-korean-lessons-on-squid-game/"><u>From Fan to Fluent: Korean Lessons on Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-zero-to-bilingual-your-french-self-learning-plan/"><u>From Zero to Bilingual: Your French Self-Learning Plan</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-oppo-a18-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Oppo A18</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-determining-frame-rates-master-choice-between-30fps-and-60fps/"><u>In 2024, Determining Frame Rates Master Choice Between 30Fps and 60Fps</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-infinix-note-30-vip-racing-edition-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Infinix Note 30 VIP Racing Edition to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/mac-users-path-to-professional-audio-with-audacity-for-2024/"><u>Mac Users' Path to Professional Audio with Audacity for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-google-pixel-8-pro-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Google Pixel 8 Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eygnwmwn-glwttothpeio-gkreman/"><u>Ευγνώμων Γλωττοτηπειό Γκρεμάν</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-how-to-prevent-obss-blackout-while-recording-games/"><u>[New] In 2024, How to Prevent OBS's Blackout While Recording Games</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-innovating-with-ideas-constructing-your-unique-tiktok-sequence-for-2024/"><u>[Updated] Innovating with Ideas Constructing Your Unique TikTok Sequence for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/awesome-free-webcam-games-for-computer/"><u>Awesome Free Webcam Games for Computer</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-nokia-c22-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Nokia C22 Phones? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-on-your-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID On your iPhone 12 Pro Max?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-offline-watching-made-simple-youtube-videos-for-ios-users/"><u>In 2024, Offline Watching Made Simple YouTube Videos for iOS Users</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-asmr-equipment-for-thoughtful-shoppers-seeking-performance/"><u>In 2024, Top ASMR Equipment for Thoughtful Shoppers Seeking Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mundo-lunar-en-espanol-del-domingo-al-lunes-y-todos-los-dias-en-camino/"><u>Mundo Lunar en Español: Del Domingo Al Lunes, Y Todos Los Días En Camino</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-sagas-spoken-the-lost-voice-of-vikings/"><u>Seafaring Sagas Spoken: The Lost Voice of Vikings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sveriges-mojligheter-svensk-forsal/"><u>Sveriges Möjligheter: Svensk Försal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-significance-of-ai-in-modern-educational-practices/"><u>The Significance of AI in Modern Educational Practices</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/vision-pro-eyewear-apples-next-step-towards-health-tracking-with-breath-analysis-says-zdnet/"><u>Vision Pro Eyewear: Apple's Next Step Towards Health Tracking with Breath Analysis, Says ZDNet</u></a></li>
 </ul></div>
 

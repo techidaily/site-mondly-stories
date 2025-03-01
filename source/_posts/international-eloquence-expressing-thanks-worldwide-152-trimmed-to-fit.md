@@ -1,7 +1,7 @@
 ---
 title: "International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]"
-date: 2025-02-05T22:35:19.792Z
-updated: 2025-02-10T18:02:44.452Z
+date: 2025-02-26T22:27:41.361Z
+updated: 2025-02-28T22:41:21.941Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -60,15 +56,7 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Thanks” by Hanny Naibaho©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -92,10 +80,6 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -127,22 +111,21 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-complete-analysis-of-gecatas-play-recorder-for-2024/"><u>[New] Complete Analysis of Gecata's Play Recorder for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-enhancing-mac-use-top-5-recommended-sniping-apps/"><u>[New] In 2024, Enhancing Mac Use Top 5 Recommended Sniping Apps</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-ultimate-guide-5-advanced-webcams-for-video-calls/"><u>[New] Ultimate Guide 5 Advanced Webcams for Video Calls</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/affordable-quality-exploring-how-beats-latest-solo-buds-could-revolutionize-your-audio-experience-under-100/"><u>Affordable Quality: Exploring How Beats' Latest Solo Buds Could Revolutionize Your Audio Experience Under $100</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-accents-from-queens-english-to-aussie/"><u>English Accents: From Queen’s English to Aussie</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-skills-for-a-seamless-travel-experience/"><u>Essential Croatian Language Skills for a Seamless Travel Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exciting-educational-experience-learn-spanish/"><u>Exciting Educational Experience: Learn Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-language-immersion-like-never-before-with-mondlyvr/"><u>Experience Language Immersion Like Never Before with MondlyVR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-of-its-kind-augmented-reality-with-speech-recognition/"><u>First of Its Kind: Augmented Reality with Speech Recognition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-learning-russian-figures/"><u>First Steps in Learning Russian Figures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-for-the-modern-world-saying-hello-in-the-21st-century/"><u>French for the Modern World: Saying Hello in the 21St Century</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frequently-learned-foreign-languages-americas-list/"><u>Frequently Learned Foreign Languages: America's List</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-smart-8-plus-phone-without-pin-by-drfone-android/"><u>How to Unlock Infinix Smart 8 Plus Phone without PIN</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-pop-7-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Tecno Pop 7 Pro PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-pioneering-stories-on-youtube-2023-edition/"><u>In 2024, Pioneering Stories on YouTube, 2023 Edition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/navigating-the-speed-control-interface-on-snapchat/"><u>Navigating The Speed Control Interface on Snapchat</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211179143-9798218264529-solving-the-mystery-of-you/"><u>Solving the Mystery of You | Free Book</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-iphone-and-samsung-faces-examining-their-biometric-security/"><u>[New] 2024 Approved IPhone & Samsung Faces Examining Their Biometric Security</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-fixed-what-if-i-accidentally-refreshed-tiktok/"><u>[Updated] Fixed! What If I Accidentally Refreshed Tiktok?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-obs-enhancing-integrating-a-timed-countdown-mechanism/"><u>2024 Approved Obs Enhancing Integrating a Timed Countdown Mechanism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-wochentags-namen-erlernt/"><u>Deutsche Wochentags-Namen Erlernt</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-arabic-world-discover-6-compelling-reasons-for-mondly-online-learning/"><u>Dive Into Arabic World - Discover 6 Compelling Reasons for Mondly Online Learning</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-apple-iphone-11-pro-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Ways to Transfer Music from Apple iPhone 11 Pro to Android | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-reno-9a-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo Reno 9A to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-uk-idioms-and-expressions-become-a-true-brit/"><u>Master UK Idioms & Expressions: Become a True Brit!</u></a></li>
+<li><a href="https://some-tips.techidaily.com/master-your-ipad-insider-tips-and-key-settings-every-apple-user-should-understand-explore/"><u>Master Your iPad: Insider Tips & Key Settings Every Apple User Should Understand Explore</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/memes-unite-reddit-and-twitters-top-twenty/"><u>Memes Unite Reddit & Twitter's Top Twenty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-empowers-education-via-cutting-edge-apple-tools/"><u>Mondly Empowers Education via Cutting-Edge Apple Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-local-language-in-australia/"><u>Navigating Local Language in Australia</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/navigating-through-youtubes-revenue-flow-after-monetization-for-2024/"><u>Navigating Through YouTube's Revenue Flow After Monetization for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/photo-and-video-streaming-from-android-to-iphone/"><u>Photo & Video Streaming From Android to iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-great-anglophone-divide/"><u>The Great Anglophone Divide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tongue-skill-boost-top-100-pronunciation-tests/"><u>Tongue Skill Boost: Top 100 Pronunciation Tests</u></a></li>
 </ul></div>
 

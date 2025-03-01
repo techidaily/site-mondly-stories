@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2025-02-05T18:55:04.740Z
-updated: 2025-02-11T02:44:35.216Z
+date: 2025-02-26T18:57:51.319Z
+updated: 2025-03-01T03:43:00.026Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
  Swedish people are sociable, and they care about traditions, so any foreigner should know how to, at least, properly introduce themselves and start a conversation. Learn more about all the Swedish greetings, and maybe you’ll feel inspired to try something new and [start learning the Nordic language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Here’s some to start with:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What you should know
 
  Swedes are respectful, but they rarely use last names or Mr. and Mrs in rather formal conversations as well. They like to call themselves by their first name, even in some professional circles. Equality and the lack of hierarchies in the workplace is a specific trait of the Swedish society. If you want to move to Sweden or visit the country, you must get accustomed to all these little details. This will make it easier for you to become “one of them” and meet new people
@@ -38,33 +34,17 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
 
@@ -98,14 +78,19 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-enhance-iphone-hd-video-clarity-in-premiere-pro-post-production/"><u>[Updated] 2024 Approved Enhance iPhone HD Video Clarity in Premiere Pro Post-Production</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtube-mastery-how-to-add-structure-and-subdivisions-for-enhanced-content-for-2024/"><u>[Updated] YouTube Mastery How to Add Structure and Subdivisions for Enhanced Content for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/advancing-privacy-measures-over-worker-monitoring-within-transit-sectors-innovations-featured-on-zdnet/"><u>Advancing Privacy Measures Over Worker Monitoring Within Transit Sectors - Innovations Featured on ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-easy-online-and-autonomous-learning-options/"><u>Break Language Barriers with Easy Online & Autonomous Learning Options</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-a-bilingual-future-young-learners-guide/"><u>Building a Bilingual Future: Young Learners' Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-the-language-first-steps-into-chinese-greetings/"><u>Embracing the Language: First Steps Into Chinese Greetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581465970-exploring-benefits-learn-german-now/"><u>Exploring Benefits: Learn German Now</u></a></li>
-<li><a href="https://windows11.techidaily.com/learn-to-disperse-windows-11-taskbar-clusters/"><u>Learn to Disperse Windows 11 Taskbar Clusters</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-whatsapp-sync-hurdles-step-by-step-solutions-for-icloud-backups-not-working/"><u>Overcoming WhatsApp Sync Hurdles: Step-by-Step Solutions for iCloud Backups Not Working</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-virtual-voyage-unlimited-the-ultimate-selection-of-free-roleplayers/"><u>[New] Virtual Voyage Unlimited The Ultimate Selection of Free Roleplayers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-direct-linking-of-youtube-content-to-facebook-feeds-via-autoplay-settings/"><u>[Updated] 2024 Approved Direct Linking of YouTube Content to Facebook Feeds via Autoplay Settings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-essential-mac-screen-recorder-alternatives-to-bandicam/"><u>[Updated] In 2024, Essential Mac Screen Recorder Alternatives to Bandicam</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-perfecting-skype-calls-dial-down-distractions-for-2024/"><u>[Updated] Perfecting Skype Calls Dial Down Distractions for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-hit-todays-app/"><u>Apple's Global Hit: Today's App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dash-to-catalan-fluency-daily-effort/"><u>Dash to Catalan Fluency – Daily Effort</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-digital-strategies-for-lithuanian-proficiency/"><u>Efficient Digital Strategies for Lithuanian Proficiency</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/get-your-creative-pebble-audio-players-up-and-running-with-these-proven-repair-techniques/"><u>Get Your Creative Pebble Audio Players Up and Running with These Proven Repair Techniques</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-update-boot-sector-on-an-ssd-with-windows-11-a-step-by-step-guide/"><u>How to Update Boot Sector on an SSD with Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italys-favorite-salutations-mastering-common-italian-greetings/"><u>Italy's Favorite Salutations: Mastering Common Italian Greetings</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-reversing-video-in-final-cut-pro-tips-tricks-and-techniques-for-2024/"><u>New Reversing Video in Final Cut Pro Tips, Tricks, and Techniques for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-resource-for-microsoft-azure-speech-services-for-2024/"><u>The Ultimate Resource for Microsoft Azure Speech Services for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transformer-gratuitement-un-film-mov-en-format-mkv-avec-movavi-facilement/"><u>Transformer Gratuitement Un Film MOV en Format MKV Avec Movavi, Facilement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-linguistic-bonds-between-turkey-and-korea/"><u>Unearthing Linguistic Bonds Between Turkey & Korea</u></a></li>
 </ul></div>
 

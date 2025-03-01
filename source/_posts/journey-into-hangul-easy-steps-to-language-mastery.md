@@ -1,7 +1,7 @@
 ---
 title: "Journey Into Hangul: Easy Steps to Language Mastery"
-date: 2025-02-06T04:43:47.137Z
-updated: 2025-02-10T17:27:36.671Z
+date: 2025-02-26T18:59:43.013Z
+updated: 2025-02-28T18:21:06.347Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
  Whether you’re a BTS fan (aka the Bangtan Boys, a South Korean boy band) or a Korean culture enthusiast in general, Hangul is the perfect starting point if you want to delve deeper into your passion. So, let’s learn the Korean alphabet!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## History of Hangul – World’s Most Ingenious Alphabet
 
  Usually, we don’t discuss history when it comes to writing systems, but the history of Hangul is absolutely fascinating, and you’ll surely want to find out more.
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
  Thus, to help more common people become literate, King Sejong the Great personally created and promulgated a new alphabet: the Korean alphabet. The new writing system was designed so people with little or no education could easily learn to read and write.
 
 ![hangul sejong](https://edge.mondly.com/blog/wp-content/uploads/2020/05/hangul-sejong-600x400.jpg "Korean Alphabet – A Quick Guide To Hangul 8")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “King Sejong the Great, creator of Hangul” by Mathew Schwartz©
 
@@ -63,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
  Then, thanks to Korean nationalism and Western missionaries’ promotion of the Korean alphabet,**Hangul** (a term coined by linguist Ju Si-gyeong in 1912)**was adopted in official documents for the first time in 1894.**
 
  The use of Hangul met even more opposition and reforms under Japanese rule, but it eventually became the exclusive writing system in both North and South Korea after 1950.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Guide to the Korean Alphabet
 
@@ -135,10 +123,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
 ![bts](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdHFmbmtibDFnOHU4YnM0YnQ5Y2VxNDBtbW9sMXZ5MGRodTY3bWI3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/McOXfLCpYA6mAQkKDj/giphy-downsized-large.gif "Korean Alphabet – A Quick Guide To Hangul 12")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Korean Letters Design
 
  The alphabetic order of the Korean alphabet is called_ganada_ (가나다 순) and it does not mix consonants and vowels. Rather, consonants come first and vowels come next.
@@ -171,10 +155,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
  As you can see, the table also includes the complex consonants. Let’s move on to vowels and see what their names are!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Korean Alphabet Chart: Vowel Names
 
 | Vowel/Name of the vowel | Romanized spelling |
@@ -202,10 +182,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 | ㅣ                       | i                  |
 
  Because the vowels’ names are actually the sounds they make, this bit will be easier to remember. Good luck!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Genius of Hangul: Korean Pronunciation
 
@@ -258,10 +234,6 @@ Moving to vowels, their design is based on three elements:
 
 Before you go, make sure you check out these frequently asked questions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How long does it take to learn Hangul?
 
  Hangul can be learned in as little as a couple of hours. According to a popular Korean saying about Hangul and its characters, “a wise man can acquaint himself with them \[the characters\] before the morning is over; a stupid man can learn them in the space of ten days”.
@@ -304,18 +276,15 @@ Before you go, make sure you check out these frequently asked questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-channel-name-wizardry-brainstorm-and-create/"><u>[Updated] 2024 Approved Channel Name Wizardry Brainstorm & Create!</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-visual-spectacle-becoming-a-reel-wizard-for-2024/"><u>[Updated] Instagram's Visual Spectacle Becoming a Reel Wizard for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-top-6-fiscal-picks-in-the-4k-projector-market/"><u>[Updated] Top 6 Fiscal Picks in the 4K Projector Market</u></a></li>
-<li><a href="https://win-forum.techidaily.com/exploring-global-connectivity-on-leading-platforms-facebook-twitter-instagram-and-youtube-journey/"><u>Exploring Global Connectivity on Leading Platforms: Facebook, Twitter, Instagram & YouTube Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/express-your-gratitude-essential-phrases-for-travelers/"><u>Express Your Gratitude: Essential Phrases for Travelers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/faster-fluency-cognitive-strategies-for-effortless-language-acquisition/"><u>Faster Fluency: Cognitive Strategies for Effortless Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-proficient-russian-numeral-acquisition/"><u>From Novice to Proficient: Russian Numeral Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-playgrounds-to-classrooms-spanish-for-kids/"><u>From Playgrounds to Classrooms: Spanish for Kids</u></a></li>
-<li><a href="https://win-forum.techidaily.com/protect-your-text-files-master-the-art-of-securing-data-with-simple-password-techniques/"><u>Protect Your Text Files: Master the Art of Securing Data with Simple Password Techniques</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unseen-linguist-how-gpt-deciphers-human-communication/"><u>Unseen Linguist: How GPT Deciphers Human Communication</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-10-best-meme-makers-online-free-to-use-for-2024/"><u>Updated 10 Best Meme Makers Online (Free to Use) for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-beyond-virtualdub-top-video-editing-software-options/"><u>Updated Beyond Virtualdub Top Video Editing Software Options</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-the-ultimate-guide-to-running-windows-and-mac-os-video-editing-apps-on-chrome-os/"><u>Updated In 2024, The Ultimate Guide to Running Windows and Mac OS Video Editing Apps on Chrome OS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-a-lister-secrets-unveiling-the-fastest-way-to-fame-with-our-expert-guide-for-2024/"><u>[New] Insta A-Lister Secrets Unveiling the Fastest Way to Fame with Our Expert Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-audience-allure-3-ultimate-video-growth-methods/"><u>[Updated] 2024 Approved Audience Allure 3 Ultimate Video Growth Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopt-simplest-path-for-learning-latin-digitally/"><u>Adopt Simplest Path for Learning Latin Digitally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/film-and-television-as-educational-resources/"><u>Film and Television as Educational Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-to-connect-japanese-greetings-for-beginners/"><u>Learning to Connect: Japanese Greetings for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-variability-insights-into-common-slang-usage/"><u>Linguistic Variability: Insights Into Common Slang Usage</u></a></li>
+<li><a href="https://win-answers.techidaily.com/save-big-on-prime-day-with-the-finest-acer-offers-of-2024/"><u>Save Big on Prime Day with the Finest Acer Offers of 2024!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-art-of-audio-in-a-virtual-world-your-ultimate-zoom-recording-tutorial-for-2024/"><u>The Art of Audio in a Virtual World Your Ultimate Zoom Recording Tutorial for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-newcomers-notebook-navigating-through-pixel-perfect-videos/"><u>The Newcomer’s Notebook Navigating Through Pixel-Perfect Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-stabilizing-your-gameplay-for-monster-hunter-world-on-pc/"><u>Troubleshooting Guide: Stabilizing Your Gameplay for Monster Hunter World on PC</u></a></li>
 </ul></div>
 

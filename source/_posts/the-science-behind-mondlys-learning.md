@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2025-02-07T02:58:02.024Z
-updated: 2025-02-10T19:55:42.526Z
+date: 2025-02-25T17:19:21.752Z
+updated: 2025-02-28T17:06:05.169Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -46,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -57,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -72,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
 
@@ -102,17 +86,21 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-expert-tips-on-choosing-the-best-youtube-to-avi-software/"><u>[New] 2024 Approved Expert Tips on Choosing the Best YouTube-to-AVI Software</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-compilation-of-top-5-mkv-apps-for-mac/"><u>[New] In 2024, Compilation of Top 5 MKV Apps for Mac</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-sharing-joy-iphone-memes/"><u>2024 Approved Sharing Joy IPhone Memes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-steps-for-home-based-french-proficiency/"><u>Essential Steps for Home-Based French Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-vietnamese-expressions-a-travelers-guidebook/"><u>Essential Vietnamese Expressions: A Traveler's Guidebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-heartbeats-international-loving-terms-on-14th/"><u>Expressive Heartbeats: International Loving Terms on 14Th</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-francophone-literature-recommended-20-novels/"><u>First Steps in Francophone Literature: Recommended 20 Novels</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixing-non-functional-bluetooth-drivers-a-step-by-step-for-qualcomm-atheros-on-windows-10/"><u>Fixing Non-Functional Bluetooth Drivers: A Step-by-Step for Qualcomm Atheros on Windows 10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-how-mondly-transformed-my-language-learning-top-10/"><u>From Novice to Expert: How Mondly Transformed My Language Learning (Top 10)</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-on-apple-iphone-xr-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 On Apple iPhone XR</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-nokia-130-music-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Nokia 130 Music FRP</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-with-ease-a-review-of-mapmyrides-mapping-capabilities/"><u>Navigating with Ease: A Review of MapMyRide's Mapping Capabilities</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-capturing-live-discussions-iphoneandroids-screen-recording-for-2024/"><u>[Updated] Capturing Live Discussions IPhone/Android's Screen Recording for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-the-ultimate-stardew-ginger-island-playbook/"><u>2024 Approved The Ultimate Stardew Ginger Island Playbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accessible-japanese-study-freebies-and-solo-strategies/"><u>Accessible Japanese Study: Freebies and Solo Strategies</u></a></li>
+<li><a href="https://win-studio.techidaily.com/determining-windows-compatible-graphic-cards-insights-from-yl-computing-and-yl-software/"><u>Determining Windows-Compatible Graphic Cards: Insights From YL Computing & YL Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammars-impact-on-second-language-acquisition/"><u>Grammar's Impact on Second Language Acquisition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/initiating-a-join-in-google-meet-through-computermobile/"><u>Initiating a Join in Google Meet Through Computer/Mobile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macaus-trilingual-richness-revealed/"><u>Macau's Trilingual Richness Revealed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/maximizing-inner-illumination-with-natures-glow/"><u>Maximizing Inner Illumination with Nature's Glow</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-welcome-strategies/"><u>Multilingual Welcome Strategies</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-final-cut-pro-x-a-step-by-step-guide-to-adding-subtitles-and-captions-for-2024/"><u>New Final Cut Pro X A Step-by-Step Guide to Adding Subtitles and Captions for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-tongues-old-brains-fresh-minds-in-silver-years/"><u>New Tongues, Old Brains: Fresh Minds in Silver Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ranking-the-worlds-oldest-verbal-expressions/"><u>Ranking the World’s Oldest Verbal Expressions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-your-pcs-audio-problems-a-5-step-guide-for-windows-11/"><u>Solving Your PC's Audio Problems: A 5-Step Guide for Windows 11</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-prime-day-electronics-bargains-find-the-best-laptops-in-oct-24-exclusive-guide-by-zdnet/"><u>Top Prime Day Electronics Bargains: Find the Best Laptops in Oct '24 - Exclusive Guide by ZDNet</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-windows-podcast-providers-the-ultimate-1-to-8-list/"><u>Top Windows Podcast Providers - The Ultimate #1 to #8 List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-vocabulary-top-phrases-to-conquer-francophone-lands/"><u>Voyage Vocabulary: Top Phrases to Conquer Francophone Lands</u></a></li>
 </ul></div>
 

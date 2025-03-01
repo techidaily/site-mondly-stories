@@ -1,7 +1,7 @@
 ---
 title: "Global Vernacular Infusion: English' Written and Spoken Forms"
-date: 2025-02-09T17:01:30.697Z
-updated: 2025-02-11T04:28:59.577Z
+date: 2025-02-24T23:01:03.124Z
+updated: 2025-02-28T17:25:39.966Z
 tags:
   - speak
   - english
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -89,14 +85,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## French loanwords: English words that are actually French
 
 | Ballet       |
@@ -124,10 +112,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Gourmet      |
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
 
@@ -203,10 +187,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Understanding the Size of the English Vocabulary
 
  How many words are there in English? Many sources agree that**the English language consists of roughly 470,000 words.** However, most linguists advise to take that with a pinch of salt. While some words have become obsolete, new additions are always making their way into the English vocabulary, so it’s difficult to put our finger on an exact number. Then, there’s also the question of different variations of a single word like “go”, “went”, “gone”. Do we count that as a single word or as three separate ones?
@@ -265,17 +245,24 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-spectral-control-enhancing-image-aesthetics/"><u>[New] Spectral Control Enhancing Image Aesthetics</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725289762372-dvd/"><u>DVDコピー時に遭遇する一般的なエラーとその解決策</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-magyar-loving-words/"><u>Expressing Affection in Magyar: Loving Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-thanks-universal-language-lessons-156/"><u>Expressing Thanks: Universal Language Lessons (156)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fastest-ways-to-learn-a-language-quick-language-learning-techniques/"><u>Fastest Ways To Learn A Language - Quick Language Learning Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/finding-ways-to-profess-love-in-hungarian/"><u>Finding Ways to Profess Love in Hungarian</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-fluency-to-mastery-overcoming-the-top-9-hardest-languages/"><u>From Fluency to Mastery: Overcoming the Top 9 Hardest Languages</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-vivo-y200e-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-quiet-quality-of-comfort-asmr-expert-choices/"><u>In 2024, The Quiet Quality of Comfort ASMR Expert Choices</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/splitcam-review-for-2024/"><u>SplitCam Review for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/tips-to-optimize-and-lower-cpu-load-in-new-software-updates/"><u>Tips to Optimize and Lower CPU Load in New Software Updates</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-lava-blaze-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Lava Blaze Pro 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-inside-the-world-of-superior-screen-recording-with-recmeister/"><u>[New] 2024 Approved Inside the World of Superior Screen Recording with Recmeister</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-conquer-video-production-obs-studio-and-android-for-2024/"><u>[New] Conquer Video Production OBS Studio and Android for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-copyright-and-sharing-guide/"><u>[New] Instagram's Copyright & Sharing Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-explore-audio-customization-on-sony-playstation-devices/"><u>[Updated] Explore Audio Customization on Sony PlayStation Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-one-connected-video-experience-joining-on-youtube/"><u>[Updated] One Connected Video Experience Joining on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-4-compelling-motives-for-senior-language-learning/"><u>Age Is Just a Number – 4 Compelling Motives for Senior Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-as-a-perfect-language-learning-time/"><u>Childhood as a Perfect Language-Learning Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-languages-turkey-and-koreas-tale/"><u>Crossing Languages: Turkey & Korea's Tale</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/free-online-converter-mp3-and-wmv-formats-by-movavi/"><u>Free Online Converter - MP3 & WMV Formats by Movavi</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-tecno-spark-go-2023-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Tecno Spark Go (2023) online without jailbreak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-language-your-new-year-aspirations/"><u>New Year, New Language: Your New Year Aspirations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/silver-tongues-senior-brains-and-new-languages/"><u>Silver Tongues: Senior Brains & New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sneak-in-some-slovak-today-daily-10-minute-language-dive/"><u>Sneak in Some Slovak Today: Daily 10-Minute Language Dive</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/speeding-up-windows-11-and-11s-troubleshooting-slow-boot-problems/"><u>Speeding Up Windows 11 and 11S: Troubleshooting Slow Boot Problems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-learning-russian-arithmetic/"><u>Step-by-Step Guide: Learning Russian Arithmetic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-path-to-urdu-mastery/"><u>Swift Path to Urdu Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-linguistic-journey-key-immersive-strategies/"><u>The Ultimate Linguistic Journey: Key Immersive Strategies</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/understanding-printer-connectivity-issues-insights-by-yl-software-specialists/"><u>Understanding Printer Connectivity Issues: Insights by YL Software Specialists</u></a></li>
 </ul></div>
 

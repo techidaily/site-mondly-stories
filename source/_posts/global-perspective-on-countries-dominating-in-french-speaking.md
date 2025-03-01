@@ -1,7 +1,7 @@
 ---
 title: Global Perspective on Countries Dominating in French Speaking
-date: 2025-02-09T03:10:49.034Z
-updated: 2025-02-10T17:21:46.467Z
+date: 2025-02-27T20:12:37.888Z
+updated: 2025-03-01T01:47:35.998Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
  French is one of the most spoken and widespread languages in the world. As a result of the French colonization from the 16th century onward, we have a**long list of French-speaking countries** today. In fact, along with English, French is the only language spoken on five continents: Europe, Africa, Asia, America and Oceania (or Australia). Naturally, we can’t help but ask ourselves: **how many people [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?** Let’s find out.
 
  Meanwhile, if you’re not sure whether you should [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or not, our advice would be to go for it. **French has been adopted as the official language of the largest number of countries after English.** For this reason alone, speaking French will help you make friends and easily communicate all over the world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How many people speak French?
 
@@ -47,14 +43,6 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
  Now let’s go into a little more detail and split the countries into continents.
 
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### French-speaking countries in Europe
 
@@ -101,10 +89,6 @@ The French-speaking countries of Africa are:
 
  \* the number represents the percentage of the population who speak French.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### French-speaking countries in North America
 
  If we know anything about Canada, it is the fact that the French language occupies a special place in its heart. At a national level, both English and French are recognized as official languages, but their status differs from one province to another. For example, in Quebec, French is the only official language.
@@ -122,10 +106,6 @@ We told you that French speakers could be found everywhere in the world!
 * Haiti — 42% (percentage of the entire population speaking French).
 
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
 
@@ -193,20 +173,17 @@ We told you that French speakers could be found everywhere in the world!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-child-prodigy-ryan-kaji-dominates-youtube-revenue-race/"><u>[New] 2024 Approved Child Prodigy Ryan Kaji Dominates YouTube Revenue Race</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-rapid-routines-transferring-iphone-content-for-2024/"><u>[New] Rapid Routines Transferring iPhone Content for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-live-video-showdown-which-is-superior-obs-or-twitch-studio/"><u>[Updated] In 2024, Live Video Showdown Which Is Superior, OBS or Twitch Studio?</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-navigating-vimeo-success-strategies-for-staff-picked-videos/"><u>[Updated] Navigating Vimeo Success Strategies for Staff-Picked Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-world-in-words-why-learn-another-tongue/"><u>A World in Words: Why Learn Another Tongue?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-teaching-aid-top-5-language-learning-mobile-apps/"><u>Best Teaching Aid: Top 5 Language Learning Mobile Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-with-words-immersion-techniques-demystified/"><u>Breaking Barriers with Words: Immersion Techniques Demystified</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cognitive-conditioning-for-quick-quality-linguistic-proficiency/"><u>Cognitive Conditioning for Quick, Quality Linguistic Proficiency</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/crossflow-heat-exchangers-involve-fluids-moving-perpendicular-to-each-other/"><u>Crossflow Heat Exchangers Involve Fluids Moving Perpendicular to Each Other</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/distinguishing-between-server-downtime-and-user-connectivity-issues-on-blizzard-battlenet/"><u>Distinguishing Between Server Downtime and User Connectivity Issues on Blizzard Battle.net</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortless-hangul-learning-discovering-the-korean-writing-system/"><u>Effortless Hangul Learning: Discovering the Korean Writing System</u></a></li>
-<li><a href="https://win-latest.techidaily.com/exploring-the-root-causes-of-the-chinese-cultural-movement-an-in-depth-analysis-from-yl-computing-systems/"><u>Exploring the Root Causes of the Chinese Cultural Movement: An In-Depth Analysis From YL Computing Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580476815-get-ahead-of-the-game-snag-a-lifetime-savings-deal-with-mondly/"><u>Get Ahead of the Game: Snag a Lifetime Savings Deal with Mondly</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-5-solutions-for-motorola-edge-2023-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Motorola Edge 2023 Unlock Without Password</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581658535-mondly-elite-never-paying-forever/"><u>Mondly Elite: Never Paying Forever!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-full-time-employees-guide-to-video-content-success/"><u>[New] In 2024, The Full-Time Employee's Guide to Video Content Success</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-drone-lighting-tunes-with-dji-mini-2air-2s-no-cost/"><u>[Updated] 2024 Approved Drone Lighting Tunes with DJI Mini 2/Air 2S (No Cost)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-simple-path-your-guide-to-convert-youtube-audio-on-mac/"><u>[Updated] Simple Path Your Guide to Convert YouTube Audio on Mac</u></a></li>
+<li><a href="https://driver-download.techidaily.com/epson-xp-245-driver-download-on-windows-7810/"><u>Epson XP 245 Driver Download on Windows 7/8/10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-6-pivotal-steps-for-seamless-surrender/"><u>From Novice to Native: 6 Pivotal Steps for Seamless Surrender</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-unveiling-the-best-top-10-for-dating-in-discord/"><u>In 2024, Unveiling the Best Top 10 for Dating in Discord</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-presents-its-revamped-question-answer-center/"><u>Mondly Presents Its Revamped Question Answer Center</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-influence-on-my-multilingual-journey-the-essential-10-tips/"><u>Mondly's Influence on My Multilingual Journey – The Essential 10 Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconnaitre-en-francais-la-delivrance-dun-merci/"><u>Reconnaître en Français La Délivrance D'Un 'Merci'</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/solving-the-mystery-of-vanishing-documents-a-guide-to-restoring-deleted-items-on-your-hard-drive/"><u>Solving the Mystery of Vanishing Documents: A Guide to Restoring Deleted Items on Your Hard Drive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedish-letters-and-sound-practice-manual/"><u>Swedish Letters & Sound Practice Manual</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341731936-the-future-of-resin-3d-printing-with-elegoos-saturn-4-ultra-a-detailed-review-exploring-its-technological-advancements/"><u>The Future of Resin 3D Printing with Elegoo's Saturn 4 Ultra - A Detailed Review Exploring Its Technological Advancements.</u></a></li>
 </ul></div>
 

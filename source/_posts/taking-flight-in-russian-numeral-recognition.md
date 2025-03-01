@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2025-02-08T22:51:45.044Z
-updated: 2025-02-11T04:11:27.370Z
+date: 2025-02-21T23:18:22.337Z
+updated: 2025-02-28T16:50:28.454Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -31,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
  Here are the numbers from 1 to 10 in Russian with their respective pronunciations so you can begin practicing right now:
 
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Russian numbers 1-10
 
@@ -58,10 +50,6 @@ If you did manage, good job! You must be a natural.
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
@@ -84,19 +72,11 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -143,24 +123,21 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-formulating-an-easy-to-use-youtube-subscriber-link/"><u>[New] 2024 Approved Formulating an Easy-to-Use YouTube Subscriber Link</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-how-vr-revolutionizes-movie-watching/"><u>[New] In 2024, How VR Revolutionizes Movie-Watching</u></a></li>
-<li><a href="https://network-issues.techidaily.com/resolved-ao3-crash-at-start-directx-compatibility-problem/"><u>[RESOLVED] AO3 Crash at Start - DirectX Compatibility Problem</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-significant-life-enhancements-through-languages/"><u>10 Significant Life Enhancements Through Languages</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-windows-screen-imaging-technique/"><u>2024 Approved Windows Screen Imaging Technique</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-manieres-francaises-de-celebrer-laccueil/"><u>4 Manières Françaises De Célébrer L'Accueil</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-acknowledges-mondlys-stellar-performance-in-educational-arena/"><u>Apple Acknowledges Mondly's Stellar Performance in Educational Arena</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-benefits-for-the-golden-generation/"><u>Brain Benefits for the Golden Generation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprehensive-insight-into-spanish-verbs/"><u>Comprehensive Insight Into Spanish Verbs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dispelling-top-5-myths-about-multilingualism/"><u>Dispelling Top 5 Myths About Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educators-conclave-the-future-of-learning/"><u>Educators’ Conclave - The Future of Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576193680-efficient-language-learning-10-minute-routines/"><u>Efficient Language Learning, 10-Minute Routines!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-global-citizenship-why-learning-a-language-after-40-makes-sense/"><u>Embrace Global Citizenship: Why Learning a Language After 40 Makes Sense</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-crashes-during-the-link-process-in-granblue-fantasy-for-pc-players/"><u>Fixing Crashes During the Link Process in Granblue Fantasy for PC Players</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-vivo-s17-pro-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-realme-c67-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Realme C67 5G?</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-unlocking-fcpx-freeze-frames-slow-motion-and-beyond/"><u>New In 2024, Unlocking FCPX Freeze Frames, Slow Motion, and Beyond</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-cure-for-that-persistent-green-pixel-problem-mac-edition-for-2024/"><u>Quick Cure for That Persistent Green Pixel Problem (Mac Edition) for 2024</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/step-by-step-tutorial-on-implementing-forced-or-softsub-titles-for-dvd-movie-files/"><u>Step-by-Step Tutorial on Implementing Forced or Softsub Titles for DVD Movie Files</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-influencer-integration-amplifying-engagement-through-collaborations/"><u>[New] In 2024, Influencer Integration Amplifying Engagement Through Collaborations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nveiling-the-secrets-to-high-impact-live-streaming-with-wirecast-on-youtube/"><u>[New] Unveiling the Secrets to High-Impact Live Streaming with WireCast on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-ageing-language-learnings-untapped-potential/"><u>Beyond Ageing: Language Learning's Untapped Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bow-or-shake-hands-japanese-greetings-explained/"><u>Bow or Shake Hands? Japanese Greetings Explained</u></a></li>
+<li><a href="https://win-community.techidaily.com/comment-reinitialiser-et-restaurer-les-fichiers-du-systeme-avec-le-utilitaire-verification-de-lintegrite-des-composants-dans-windows-11/"><u>Comment Réinitialiser Et Restaurer Les Fichiers Du Système Avec Le Utilitaire Vérification De L'Intégrité Des Composants Dans Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-israels-preferred-mode-of-communication/"><u>Exploring Israel's Preferred Mode of Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hasten-time-learn-1-10-in-japanese-numbers/"><u>Hasten Time, Learn 1-10 in Japanese Numbers!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-and-certificate-for-jpg-by-ldigisigner-sign-a-jpg-sign-a-jpg/"><u>How to create a digital signature and certificate for .jpg</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-3-key-copywriting-frameworks-for-social-media-promotion/"><u>In 2024, Mastering 3 Key Copywriting Frameworks for Social Media Promotion</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-uniting-social-spheres-from-instagram-to-tiktok-triumphs/"><u>In 2024, Uniting Social Spheres From Instagram to TikTok Triumphs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-motorola-moto-g23-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Motorola Moto G23 Users</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/memorial-day-sale-alert-save-big-on-the-apple-watch-se-just-60-off-now-dont-miss-out/"><u>Memorial Day Sale Alert: Save Big on the Apple Watch SE - Just $60 Off Now! Don't Miss Out!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580234171-new-years-gift-to-you-free-mondly-pro-for-life/"><u>New Year's Gift to You - Free Mondly Pro for Life</u></a></li>
+<li><a href="https://program-issues.techidaily.com/no-more-game-interruptions-follow-these-6-steps-to-stop-minecraft-crashing-issues-today/"><u>No More Game Interruptions: Follow These 6 Steps to Stop Minecraft Crashing Issues Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sonic-semantics-melody-enhanced-communication-techniques/"><u>Sonic Semantics: Melody-Enhanced Communication Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-greeting-guide/"><u>Universal Greeting Guide</u></a></li>
 </ul></div>
 

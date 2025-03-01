@@ -1,7 +1,7 @@
 ---
 title: Saudações Básicas Em Português Para Ficar De Olho
-date: 2025-02-08T01:37:38.913Z
-updated: 2025-02-10T17:37:37.802Z
+date: 2025-02-24T17:06:42.967Z
+updated: 2025-02-28T22:17:28.849Z
 tags:
   - speak
   - english
@@ -20,27 +20,15 @@ thumbnail: https://thmb.techidaily.com/9e8b456962dede45b52947713c8978e1ca5454c2b
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -64,10 +52,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Beleza?_ – What’s up?** – universally informal and perfect for greeting close friends. It literally translates to “what’s going on with your life?”
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
@@ -130,10 +114,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -165,19 +145,24 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-calculating-youtubes-adsense-gains-per-thousand-viewer-income/"><u>[New] Calculating Youtube's AdSense Gains Per Thousand Viewer Income</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-maximizing-stability-the-art-of-tripod-placement-in-vlogs/"><u>[Updated] 2024 Approved Maximizing Stability The Art of Tripod Placement in Vlogs</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-quick-and-the-funny-with-kinemaster-memes/"><u>2024 Approved The Quick and the Funny with KineMaster Memes</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-your-images-with-picart-clear-canvas-technique/"><u>2024 Approved Transform Your Images with PicArt Clear Canvas Technique</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579607069-bangla-for-busy-learners-10-mins/"><u>Bangla for Busy Learners, 10 Mins</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/colombo-aid-by-danny-assisting-struggling-families/"><u>Colombo Aid by Danny: Assisting Struggling Families</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-language-barriers-6-best-online-korean-resources/"><u>Conquer Language Barriers: 6 Best Online Korean Resources</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dawn-dialogues-multilingual-morning-greetings-compilation/"><u>Dawn Dialogues: Multilingual Morning Greetings Compilation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsch-im-alltag-vielfaltige-deutsche-grusse-abseits-von-hallo/"><u>Deutsch Im Alltag: Vielfältige Deutsche Grüße Abseits Von Hallo</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-samsung-galaxy-m14-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Samsung Galaxy M14 5G Location Settings | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/null-device-alert-a-guide-for-win-11-users/"><u>Null Device Alert: A Guide for Win 11 Users</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-instructions-on-converting-spotify-playlists-into-txt-format/"><u>Step-by-Step Instructions on Converting Spotify Playlists Into TXT Format</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-reviews-in-depth-computer-and-gadget-analysis/"><u>Tom's Tech Reviews: In-Depth Computer and Gadget Analysis</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/vlog-versus-channels-choosing-between-obs-and-twitch-for-2024/"><u>Vlog Versus Channels Choosing Between OBS & Twitch for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-initial-steps-creating-a-new-twitter-identity/"><u>[New] Initial Steps Creating a New Twitter Identity</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-streamline-broadcasting-going-from-xbox-to-fb-live-for-2024/"><u>[New] Streamline Broadcasting Going From Xbox to FB Live for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-tips-for-entering-a-friends-tiktok-live-stream/"><u>[New] Tips for Entering a Friend's TikTok Live Stream</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-crafting-clicks-top-tags-for-gamers-content/"><u>2024 Approved Crafting Clicks Top Tags for Gamers' Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-from-studio-to-stage-stream-your-mp3-tunes-on-youtube/"><u>2024 Approved From Studio to Stage Stream Your MP3 Tunes on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-five-false-beliefs-in-language-education/"><u>A Closer Look at Five False Beliefs in Language Education</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-xs-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>Apple iPhone XS Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comenzar-a-conocer-el-tiempo-en-espanol/"><u>Comenzar a Conocer El Tiempo en Español</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-sades-headset-drivers-securely-for-windows-guaranteed-safety/"><u>Download Sades Headset Drivers Securely for Windows - Guaranteed Safety</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-iphone-14-drfone-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/knowledge-for-all-honoring-the-1500th-of-costless-daily-lessons/"><u>Knowledge for All: Honoring the 1500Th of Costless Daily Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-family-edition-google-plays-best-kids-app-of-the-year/"><u>Mondly Family Edition: Google Play's Best Kids App of the Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prodigy-pathways-to-succeeding-in-international-language-assessments/"><u>Prodigy Pathways to Succeeding in International Language Assessments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/smooth-language-journey-top-10-simple-to-learn-tongues/"><u>Smooth Language Journey: Top 10 Simple to Learn Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-how-similar-are-these-two-languages/"><u>Ukrainian and Russian: How Similar Are These Two Languages?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-greatness-at-a-low-cost-review-of-asus-chromebook-flip-c302cas-remarkable-capabilities/"><u>Unlocking Greatness at a Low Cost: Review of Asus Chromebook Flip C302CA's Remarkable Capabilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-team-efficiency-the-best-language-learning-apps/"><u>Unlocking Team Efficiency: The Best Language Learning Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-basics-of-chinese-social-interactions/"><u>Unveiling the Basics of Chinese Social Interactions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-visual-identity-made-easy-for-2024/"><u>YouTube Visual Identity Made Easy for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Intersections with English
-date: 2025-02-06T01:30:22.411Z
-updated: 2025-02-10T20:53:15.719Z
+date: 2025-02-25T00:53:18.069Z
+updated: 2025-02-28T18:15:13.589Z
 tags:
   - speak
   - english
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  When the English language started to expand its vocabulary, the process seemed like a wedding ceremony. Do you know how they say brides need something old, something new, something borrowed and something blue? Well, English had all of that except the blue. Anglo-Saxon words were old,[Shakespeare’s words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) were new and all the loanwords from other languages were borrowed. If you can’t put your finger on the **English words borrowed from other languages, think_café, ballet, fiancé, spaghetti, espresso, pretzel._**  You got the point.
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Where did English Come From?
 
@@ -77,10 +73,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -89,17 +81,9 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -178,10 +162,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Balcony   |
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
 
@@ -265,20 +245,22 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/100plus-essential-croatian-phrases-youll-need-before-traveling-to-croatia/"><u>100+ Essential Croatian Phrases You'll Need Before Traveling To Croatia</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-best-asmr-microphones/"><u>2024 Approved Best ASMR Microphones</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-summit-creation-pro-x-evaluation/"><u>2024 Approved Summit Creation Pro X Evaluation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-underrated-advantages-to-speaking-multiple-languages/"><u>6 Underrated Advantages to Speaking Multiple Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amplify-sales-and-success-with-top-tier-talk-skills/"><u>Amplify Sales & Success with Top-Tier Talk Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-language-evolution-por-que-to-por-que/"><u>Decoding Language Evolution: Por Que to Por Qué</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/drive-growth-with-strategic-communication-capability-building/"><u>Drive Growth with Strategic Communication Capability Building</u></a></li>
-<li><a href="https://extra-information.techidaily.com/from-basic-to-brilliant-top-10-pixlr-techniques/"><u>From Basic to Brilliant Top 10 Pixlr Techniques</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/gtx-950-code-43-error-on-windows-10-solved/"><u>GTX 950 Code 43 Error on Windows 10 [Solved]</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-iphone-transfer-transfer-contact-from-apple-iphone-13-pro-max-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, iPhone Transfer Transfer Contact from Apple iPhone 13 Pro Max to iPhone without iCloud | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-quick-skill-enhancing-images-in-windows-11/"><u>In 2024, Quick Skill Enhancing Images in Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577740237-mondlys-ar-innovation-the-ultimate-vr-language-app/"><u>Mondly's AR Innovation - The Ultimate VR Language App!</u></a></li>
-<li><a href="https://article-helps.techidaily.com/seamlessly-embedded-your-tiktok-bios-direct-link-method/"><u>Seamlessly Embedded Your TikTok Bio's Direct Link Method</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-guide-top-10-photography-frame-tools-for-2024/"><u>Ultimate Guide Top 10 Photography Frame Tools for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-the-ultimate-handbook-for-watching-facebook-livestreams/"><u>[New] In 2024, The Ultimate Handbook for Watching Facebook Livestreams</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-mastering-multitasking-ideas-with-podcasts/"><u>[New] Mastering Multitasking Ideas with Podcasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-direct-entry-into-your-channel-simplifying-the-follow-button-creation-for-2024/"><u>[Updated] Direct Entry Into Your Channel Simplifying the Follow Button Creation for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-recognizes-mondly-as-one-of-the-top-10-education-apps-worldwide/"><u>Apple Recognizes Mondly As One Of The Top 10 Education Apps Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-russian-arithmetic-basics/"><u>Embracing Russian Arithmetic Basics</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-tecno-spark-20-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Tecno Spark 20</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-s23-ultra-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy S23 Ultra to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-vivo-y56-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Vivo Y56 5G Lock Screen Password</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-proficiency-and-brain-health-synergy/"><u>Language Proficiency and Brain Health Synergy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-new-tongues-through-film-selections/"><u>Mastering New Tongues Through Film Selections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-speaks-volumes-1-s-app-rankings/"><u>Mondly Speaks Volumes: #1 'S App Rankings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-accurately-through-ru-alphabets/"><u>Navigating Accurately Through RU Alphabets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/scripting-success-in-japanese-characters-mastery/"><u>Scripting Success in Japanese Characters Mastery</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/step-by-step-incorporating-audio-into-ppts/"><u>Step-by-Step Incorporating Audio Into PPTs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/synergistic-filters-mondly-pearson-unified-solution/"><u>Synergistic Filters: Mondly-Pearson Unified Solution</u></a></li>
+<li><a href="https://games-able.techidaily.com/tips-and-tricks-for-ultimate-blue-ray-performance-sx/"><u>Tips & Tricks for Ultimate Blue-Ray Performance SX</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unlock-ultimate-smartphone-bargains-march-202/"><u>Unlock Ultimate Smartphone Bargains: March 202지 최고의 할인 몇 가지</u></a></li>
 </ul></div>
 

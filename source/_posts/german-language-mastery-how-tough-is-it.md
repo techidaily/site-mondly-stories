@@ -1,7 +1,7 @@
 ---
 title: "German Language Mastery: How Tough Is It?"
-date: 2025-02-05T01:32:37.795Z
-updated: 2025-02-10T19:54:56.910Z
+date: 2025-02-27T16:57:26.129Z
+updated: 2025-02-28T21:05:10.534Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
  Like people, languages are very different but also sometimes similar. This doesn’t mean you can’t be friends. Read on to discover a fair evaluation of the complexity of the German language. If_Deutsch_ is as hard as they say, we will reveal a safe method to make it easy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why is German considered hard to learn?
 
  We can all probably agree that German has a bad reputation for being one of the [hardest languages to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Society, entertainment, and memes in particular, always seem to maintain and even solidify our prejudices about the German language. The two most popular justifications are its neverending long words and their harsh pronunciation. Over the course of history, we had and still have a lot of preconceptions, but this one is particularly hard to break. So let’s shatter all the myths right here, right now.
@@ -35,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
  So rest assured, German pronunciation doesn’t really require twisting your tongue like a pretzel.
 
 **Verdict: false assumption.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. German words are neverending
 
@@ -63,14 +55,6 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. German grammar is too hard to learn
 
  It’s true that German grammar is a bit more complex, but German is a very logical language. Once you will understand the basics, you’ll have no problem going forward with the rest of the curriculum. In addition, due to the shared vocabulary, there are many English and German phrases that follow the same order. For example:
@@ -90,10 +74,6 @@ Doesn’t this sound familiar?
  The answer truly lies somewhere in between. While it is closely related to English because they both belong to the West Germanic group of the [Indo-European language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) family, German is not necessarily easy to learn. It’s much easier for an English speaker to learn the Romance languages or other Germanic languages such as Afrikaans, Danish, or Dutch than to study German.
 
  However, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, which ranks languages in terms of difficulty,**German is a tier II language.** Considering that there are five tiers in total, with tier V including Arabic, Chinese, Japanese and Korean, tier II doesn’t seem so daunting. This indicates that German is not hard to learn after all.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How long does it take to study German?
 
@@ -141,20 +121,16 @@ Doesn’t this sound familiar?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-10-youtube-video-ideas-for-sharing-your-personal-story/"><u>[Updated] 10 YouTube Video Ideas for Sharing Your Personal Story</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-comprehensive-affinity-guide-banishing-backgrounds-with-ease/"><u>[Updated] The Comprehensive Affinity Guide Banishing Backgrounds with Ease</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/best-mozs-local-seo-tools-enhancing-your-brand-visibility-globally/"><u>Best Moz's Local SEO Tools: Enhancing Your Brand Visibility Globally</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/best-no-cost-artificial-intelligence-programs-for-revitalizing-antique-photographs-top-10-selections/"><u>Best No-Cost Artificial Intelligence Programs for Revitalizing Antique Photographs: Top 10 Selections</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-xiaomi-redmi-k70-pro-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Xiaomi Redmi K70 Pro Activity | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insightful-look-at-the-samsung-galaxy-tab-a-2020-the-critical-feature-it-fails-to-include/"><u>Insightful Look at the Samsung Galaxy Tab A (2020) - The Critical Feature It Fails to Include</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quickly-conquer-bulgarian-with-10-min-daily/"><u>Quickly Conquer Bulgarian with 10 Min Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/starting-language-skills-kindergarten-elementary-spanish/"><u>Starting Language Skills: Kindergarten-Elementary Spanish</u></a></li>
-<li><a href="https://games-able.techidaily.com/supercharge-your-switch-with-these-key-settings/"><u>Supercharge Your Switch with These Key Settings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sweet-sentences-expressing-chocolate-in-30plus-languages/"><u>Sweet Sentences: Expressing 'Chocolate' In 30+ Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/troubleshooting-guide-getting-your-origin-game-up-and-running-again/"><u>Troubleshooting Guide: Getting Your Origin Game Up and Running Again</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-your-potential-through-international-linguistics/"><u>Unleash Your Potential Through International Linguistics</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unveiling-essential-holiday-gift-ideas-for-crafters-and-builders-expert-suggestions/"><u>Unveiling Essential Holiday Gift Ideas for Crafters and Builders: Expert Suggestions</u></a></li>
-<li><a href="https://facebook.techidaily.com/weighing-in-should-you-utilize-meta-ai-on-social-networks/"><u>Weighing In: Should You Utilize Meta AI on Social Networks?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-accents-from-canadian-rs-to-cockney-rhyming-slang/"><u>World Accents: From Canadian R's to Cockney Rhyming Slang</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-optimal-filming-equipment-advice-on-choosing-the-best-lenses/"><u>[New] 2024 Approved Optimal Filming Equipment Advice on Choosing the Best Lenses</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-rhythm-of-the-room-mac-audio-guide/"><u>[Updated] The Rhythm of the Room Mac Audio Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-driver-update-in-windows-10117/"><u>AMD Driver Update in Windows 10/11/7</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cg318-4k-unveiled-eizos-high-res-monitor-review-for-2024/"><u>CG318-4K Unveiled EIZO's High-Res Monitor Review for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enriching-life-at-sixty-by-learning-languages/"><u>Enriching Life at Sixty by Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ahead-of-the-game-snag-a-lifetime-savings-deal-with-mondly/"><u>Get Ahead of the Game: Snag a Lifetime Savings Deal with Mondly!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-pixelprofessionalzoom7-expertly-scaling-your-photography/"><u>In 2024, PixelProfessionalZoom7 Expertly Scaling Your Photography</u></a></li>
+<li><a href="https://some-tips.techidaily.com/inside-look-the-comprehensive-methodology-behind-our-vpn-assessments-at-zdnet/"><u>Inside Look: The Comprehensive Methodology Behind Our VPN Assessments at ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-social-dynamics-with-these-iconic-50-latin-expressions/"><u>Master Social Dynamics with These Iconic 50 Latin Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-the-world-the-power-of-multilingualism-explored/"><u>Speak the World: The Power of Multilingualism Explored</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-top-motion-detection-apps-for-mobile-devices/"><u>Updated 2024 Approved Top Motion Detection Apps for Mobile Devices</u></a></li>
 </ul></div>
 

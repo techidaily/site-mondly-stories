@@ -1,7 +1,7 @@
 ---
 title: Navigating Local Language in Australia
-date: 2024-07-12T08:08:45.672Z
-updated: 2024-07-13T08:08:45.672Z
+date: 2025-02-24T17:40:48.274Z
+updated: 2025-02-28T17:32:45.703Z
 tags:
   - speak
   - english
@@ -25,8 +25,6 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 ``
 
  You don’t really know a language until you’ve learned its [slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . And when it comes to English, many people agree that Australian slang is the richest, liveliest and funniest slang you could learn. Sure, there’s always British English, but the Brits don’t call their barbecue “barbie”. And that’s a missed opportunity. Wouldn’t you agree? How can you have just a plain, dull barbecue when you could have a “barbie”? The Aussie slang is the best slang.
-
-
 
 ## Top 10 Popular Australian Slang Terms & Words
 
@@ -305,8 +303,6 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -314,6 +310,23 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-enhancing-your-media-production-skills-with-easy-to-follow-guides-for-windows-8-movie-maker-for-2024/"><u>[Updated] Enhancing Your Media Production Skills with Easy-to-Follow Guides for Windows 8 Movie Maker for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-list-of-easy-filming-cameras-for-starters-for-2024/"><u>[Updated] The Ultimate List of Easy Filming Cameras for Starters for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-from-sky-to-framing-a-compreenasive-review-of-the-drone-dji-spark/"><u>2024 Approved From Sky to Framing A Compreenasive Review of the Drone DJI Spark</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-swiftly-craft-custom-thumbnails-for-youtube-shorts-with-these-hacks/"><u>2024 Approved Swiftly Craft Custom Thumbnails for YouTube Shorts with These Hacks</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amd-vs-intel-an-in-depth-analysis-of-cpu-performance-leaders/"><u>AMD vs Intel: An In-Depth Analysis of CPU Performance Leaders</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/cartoon-video-creation-made-easy-top-10-online-and-pc-tools/"><u>Cartoon Video Creation Made Easy Top 10 Online and PC Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-meets-the-queens-speech/"><u>Global Vernacular Meets the Queen's Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-diversity-a-journey-through-african-languages/"><u>Harmonizing Diversity: A Journey Through African Languages</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-honor-magic-6-lite-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Honor Magic 6 Lite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguagem-verde-saudacoes-a-toda-hora-no-brasil/"><u>Linguagem Verde - Saudações a Toda Hora No Brasil</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-facebook-messages-overcoming-window-snags/"><u>Mastering Facebook Messages: Overcoming Window Snags</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-rewrites-the-future-of-multilingual-education-with-ar/"><u>Mondly Rewrites the Future of Multilingual Education with AR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-widely-learned-foreign-languages-for-americans/"><u>Most Widely Learned Foreign Languages for Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-privacy-statement-available/"><u>New Privacy Statement Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-chinese-thank-you-phrases/"><u>The Ultimate Guide to Chinese Thank You Phrases</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On OnePlus Ace 2V | Dr.fone</u></a></li>
+</ul></div>
 

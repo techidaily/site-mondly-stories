@@ -1,7 +1,7 @@
 ---
 title: "Myth and Mouth Movement: The Language of Vikings"
-date: 2025-02-03T19:07:49.553Z
-updated: 2025-02-11T03:53:29.659Z
+date: 2025-02-27T18:31:55.150Z
+updated: 2025-03-01T02:30:55.589Z
 tags:
   - speak
   - english
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
 ![Vikings english](https://media.giphy.com/media/V5474zfp6NveE/giphy.gif "What Language Did Vikings Speak? 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
 
 ## What language did Vikings speak?
@@ -62,23 +58,11 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What language today is closest to Old Norse?
 
  **Modern Icelandic is widely regarded as the Nordic language that most closely resembles Old Norse.** In fact, the writing system is so similar that Icelandic speakers can read Old Norse texts with relative ease. Some specialists compare the likeness between modern Icelandic and Old Norse to that of Shakespearean English and present-day English. Old West Norse is the direct ancestor of Icelandic, and many surviving Old Norse manuscripts originated from Iceland. Consequently, Old West Norse is the most commonly taught variant of Old Norse at present.
 
 So yeah, you can learn Old Norse if you want to.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is Old Norse still spoken?
 
@@ -100,10 +84,6 @@ So yeah, you can learn Old Norse if you want to.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Learn the Scandinavian languages fast
 
@@ -136,19 +116,22 @@ So yeah, you can learn Old Norse if you want to.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-elevate-your-content-with-these-24-best-video-translating-tools/"><u>[Updated] Elevate Your Content with These 24 Best Video Translating Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-for-newcomers-discover-these-essential-gopro-upgrades/"><u>[Updated] For Newcomers, Discover These Essential GoPro Upgrades</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-inside-look-3d-lut-creation-process-for-2024/"><u>[Updated] Inside Look 3D LUT Creation Process for 2024</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/comprehensive-tutorial-on-saving-system-revert-data-in-windows-computers/"><u>Comprehensive Tutorial on Saving System Revert Data in Windows Computers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/guide-to-enable-windows-11-auto-hdr-settings/"><u>Guide to Enable Windows 11 Auto-HDR Settings</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/launch-your-clips-free-intro-downloads-for-2024/"><u>Launch Your Clips Free Intro Downloads for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-gain-proficiency-with-urdu-online/"><u>Rapidly Gain Proficiency with Urdu Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-online-introduction-to-the-romance-language/"><u>Seamless Online Introduction to the Romance Language</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/sneaking-preview-into-unreleased-windows-capabilities-with-vivetool/"><u>Sneaking Preview Into Unreleased Windows Capabilities with ViVeTool</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/solving-the-issue-of-unwanted-humming-sounds-in-your-earbuds/"><u>Solving the Issue of Unwanted Humming Sounds in Your Earbuds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-slovak-straightforward-sneak-in-learning-during-your-free-minutes/"><u>Speak Slovak Straightforward: Sneak in Learning During Your Free Minutes</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-mystery-of-off-facebook-activity-what-to-know-and-do-for-2024/"><u>The Mystery of Off-Facebook Activity What to Know & Do for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-children-excel-in-multilingualism/"><u>Why Children Excel in Multilingualism</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/your-go-to-places-for-endless-music-video-viewing-our-number-one-choices/"><u>Your Go-To Places for Endless Music Video Viewing: Our Number One Choices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-embrace-authenticity-your-style-journey-begins-here/"><u>[Updated] In 2024, Embrace Authenticity Your Style Journey Begins Here</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-excellent-tech-for-premium-4k-editors/"><u>[Updated] In 2024, Excellent Tech for Premium 4K Editors</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-5-pc-clipping-apps-essential-shortcuts-for-2024/"><u>[Updated] Top 5 PC Clipping Apps Essential Shortcuts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-down-the-jargon-top-10-slang-words-explained/"><u>Breaking Down the Jargon: Top 10 Slang Words Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-ages-past-understanding-viking-vernacular/"><u>Echoes From Ages Past: Understanding Viking Vernacular</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/future-proofing-your-career-how-82-of-executives-are-committing-to-expanding-remote-work-opportunities/"><u>Future-Proofing Your Career: How 82% of Executives Are Committing to Expanding Remote Work Opportunities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hands-on-exploration-of-the-wireless-led-floodlight-surveillance-by-blink/"><u>Hands-On Exploration of the Wireless LED Floodlight Surveillance by Blink</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-note-30-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Note 30 using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learners-unite-with-googled-editors-recommended-mondly/"><u>Language Learners Unite with Googled Editors' Recommended Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-anywhere-speak-everywhere-enjoy-a-major-discount-on-language-lessons/"><u>Learn Anywhere, Speak Everywhere – Enjoy a Major Discount on Language Lessons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-mastery-your-complete-user-manual/"><u>Mondly Mastery: Your Complete User Manual</u></a></li>
+<li><a href="https://blog-min.techidaily.com/new-features-in-the-latest-winx-dvd-ripper-mac-software-upgrade/"><u>New Features in the Latest WinX DVD Ripper Mac Software Upgrade</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/revolutionizing-restocking-strategies-unveiling-the-use-of-ml-and-cv-in-retail-inventory-optimization-industry-innovations/"><u>Revolutionizing Restocking Strategies: Unveiling the Use of ML and CV in Retail Inventory Optimization | Industry Innovations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythms-for-roots-musical-language-mastery-techniques/"><u>Rhythms for Roots: Musical Language Mastery Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluent-korean-unveiling-the-top-6-digital-tools/"><u>Speak Fluent Korean: Unveiling the Top 6 Digital Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-spelling-pitfall-index-englands-top-100-errors/"><u>The Spelling Pitfall Index: England's Top 100 Errors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-4-marvel-intro-makers-online-for-2024/"><u>Top 4 Marvel Intro Makers Online for 2024</u></a></li>
 </ul></div>
 

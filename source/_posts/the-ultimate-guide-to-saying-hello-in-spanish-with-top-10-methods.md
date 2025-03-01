@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2025-02-07T02:37:33.260Z
-updated: 2025-02-11T01:12:03.427Z
+date: 2025-02-23T18:42:56.208Z
+updated: 2025-02-28T18:34:03.128Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
  Learning the basics of Spanish – like**“hello” in Spanish** or any other greetings or introductions – is the best preparation you can do for a future trip to a Spanish-speaking country. Either that or maybe you need to get your basic Spanish on point for a first date (wink wink) or a business meeting where you want to make a good first impression. No matter the situation, you came to the right place!
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## “Hello” in Spanish: ¡Hola
 
@@ -50,15 +46,7 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  ¡Hola, señor! by Bruce Jastrow©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
 
@@ -71,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Qué tal?** – it translates to “how are you?” in English and if you add “todo” at the end – ¿qué tal todo? – it expands its meaning to “how is it all going?”  
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
 
@@ -105,10 +89,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -142,16 +122,19 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/2024-approved-gear-for-capturing-journeys-on-camera/"><u>2024 Approved Gear for Capturing Journeys on Camera</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-language-etiquette/"><u>Global Language Etiquette</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-iphone-12-mini-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 mini When We Dont Have Apple ID or Password?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-asus-rog-phone-7-ultimate-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Asus ROG Phone 7 Ultimate Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-mastering-fast-forward-on-vimeo/"><u>In 2024, Mastering Fast-Forward on Vimeo</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/july-2024s-most-sought-after-apple-watch-deals-the-ultimate-guide-featuring-the-best-value-picks/"><u>July 2024'S Most Sought-After Apple Watch Deals: The Ultimate Guide Featuring the Best Value Picks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-grow-thrive-with-mondly-in-ukraine/"><u>Learn, Grow, Thrive with Mondly in Ukraine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-joins-pearson/"><u>Mondly Joins Pearson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oxford-mondly-the-core-vocabulary-journey/"><u>Oxford-Mondly: The Core Vocabulary Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-saying-thank-you-in-germany/"><u>The Essential Guide to Saying Thank You in Germany</u></a></li>
-<li><a href="https://win-web.techidaily.com/effektivnye-metody-rezervnogo-kopirovaniya-dannyh-na-nas-s-pomoshyu-besplatnyh-programmnyh-reshenij/"><u>Эффективные Методы Резервного Копирования Данных На NAS С Помощью Бесплатных Программных Решений</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-navigating-snapchat-spotlight-feature/"><u>[New] Navigating Snapchat Spotlight Feature</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-streamline-image-editing-ditching-backgrounds-in-affinity-photo-for-2024/"><u>[New] Streamline Image Editing Ditching Backgrounds in Affinity Photo for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-transform-photos-and-videos-with-these-androidiphone-montage-apps/"><u>[Updated] In 2024, Transform Photos & Videos with These Android/iPhone Montage Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-conquest-mastery-with-daily-dedication/"><u>Catalan Conquest: Mastery with Daily Dedication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-beginner-friendly-french-literature-with-best-novels/"><u>Explore Beginner-Friendly French Literature with Best Novels</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-honor-x7b-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Honor X7b</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/innovative-tips-for-a-flawless-cover-letter-using-chatgpts-power/"><u>Innovative Tips for a Flawless Cover Letter Using ChatGPT's Power</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-expanded-interactive-faq-section/"><u>Introducing Mondly’s Expanded Interactive FAQ Section</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-tagalog-online-in-just-10-minutes-a-day/"><u>Learn Tagalog Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/m1-advantages-in-high-quality-video-production-workstations/"><u>M1 Advantages in High-Quality Video Production Workstations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-scales-new-heights-supporting-a-community-of-70plus-million/"><u>Mondly Scales New Heights, Supporting a Community of 70+ Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-pirate-jargon-with-ease/"><u>Navigating Pirate Jargon with Ease</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-12th-circle-of-conversation-personalizing-whatsapp-bios-by-signs-for-2024/"><u>The 12Th Circle of Conversation - Personalizing WhatsApp Bios by Signs for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unlocking-the-secrets-to-sharing-videos-on-instagram-for-2024/"><u>Unlocking the Secrets to Sharing Videos on Instagram for 2024</u></a></li>
 </ul></div>
 
